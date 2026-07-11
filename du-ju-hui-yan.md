@@ -1,33 +1,33 @@
 ---
-title: "风灾正在击穿“落地窗崇拜”"
-description: "现在，强台风“巴威”来袭，浙江、福建、江苏、上海等十余个省区市，或都将受到不小的影响。大面积落地窗在视觉上确实通透明亮，但在大风面前先天处于劣势。风灾不止，面对即将到来的极度风压，“我家这落地窗还扛得住吗？”成了无数住户眼下最迫切的拷问。"
+title: "雷军让卖车的和卖房的都沉默了"
+description: "7月10日，雷军官宣小米全新SUV系列“澎程”，车内布局的“户型图”让卖车的和卖房的都沉默了！网友：第一次在车上看到户型图。"
 keywords: "百度热搜, 实时热搜, 热点资讯, 独具慧眼, du-ju-hui-yan"
 tags:
   - "百度热搜"
   - "实时热搜"
   - "热点资讯"
 source: "百度热搜"
-source_url: "https://www.baidu.com/s?wd=%E9%A3%8E%E7%81%BE%E6%AD%A3%E5%9C%A8%E5%87%BB%E7%A9%BF%E2%80%9C%E8%90%BD%E5%9C%B0%E7%AA%97%E5%B4%87%E6%8B%9C%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news"
+source_url: "https://www.baidu.com/s?wd=%E9%9B%B7%E5%86%9B%E8%AE%A9%E5%8D%96%E8%BD%A6%E7%9A%84%E5%92%8C%E5%8D%96%E6%88%BF%E7%9A%84%E9%83%BD%E6%B2%89%E9%BB%98%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news"
 rank: 18
-updated_at: "2026-07-11T20:50:44+08:00"
-content_fingerprint: "d9c2fbd3fe8afe23a0d3"
+updated_at: "2026-07-11T20:51:39+08:00"
+content_fingerprint: "a4280ee4c0d61d53bf38"
 ---
 
-[热点索引](README.md) / 独具慧眼 / 风灾正在击穿“落地窗崇拜”
+[热点索引](README.md) / 独具慧眼 / 雷军让卖车的和卖房的都沉默了
 
-# 风灾正在击穿“落地窗崇拜”
+# 雷军让卖车的和卖房的都沉默了
 
-> 来源：百度热搜 · 榜单排名：第 18 位 · 更新时间：2026-07-11T20:50:44+08:00
+> 来源：百度热搜 · 榜单排名：第 18 位 · 更新时间：2026-07-11T20:51:39+08:00
 
 ## 事件概览
 
-现在，强台风“巴威”来袭，浙江、福建、江苏、上海等十余个省区市，或都将受到不小的影响。大面积落地窗在视觉上确实通透明亮，但在大风面前先天处于劣势。风灾不止，面对即将到来的极度风压，“我家这落地窗还扛得住吗？”成了无数住户眼下最迫切的拷问。
+7月10日，雷军官宣小米全新SUV系列“澎程”，车内布局的“户型图”让卖车的和卖房的都沉默了！网友：第一次在车上看到户型图。
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“风灾正在击穿“落地窗崇拜””位列第 18 位，公开热度指标为 6089636。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“雷军让卖车的和卖房的都沉默了”位列第 18 位，公开热度指标为 6082401。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：现在，强台风“巴威”来袭，浙江、福建、江苏、上海等十余个省区市，或都将受到不小的影响。大面积落地窗在视觉上确实通透明亮，但在大风面前先天处于劣势。风灾不止，面对即将到来的极度风压，“我家这落地窗还扛得住吗？”成了无数住户眼下最迫切的拷问。
+来源公开摘要显示：7月10日，雷军官宣小米全新SUV系列“澎程”，车内布局的“户型图”让卖车的和卖房的都沉默了！网友：第一次在车上看到户型图。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -35,7 +35,7 @@ content_fingerprint: "d9c2fbd3fe8afe23a0d3"
 
 - 来源平台：百度热搜
 - 当前排名：第 18 位
-- 热度：6089636
+- 热度：6082401
 - 固定索引：独具慧眼（du-ju-hui-yan）
 
 ## 阅读关注点
@@ -50,15 +50,15 @@ content_fingerprint: "d9c2fbd3fe8afe23a0d3"
 
 ## 相关热点
 
-- [段奥娟这么瘦了](bie-ju-jiang-xin.md)（别具匠心）
-- [日本砸钱抢印度AI精英赢面几何](qiao-duo-tian-gong.md)（巧夺天工）
-- [王曼昱申请不参加全锦赛双打，因伤病恢复和状态调整，怎样看待这一决定？](gui-fu-shen-gong.md)（鬼斧神工）
+- [小米澎程起售价预测](bie-ju-jiang-xin.md)（别具匠心）
+- [杭州：台风影响期间非必要不外出](qiao-duo-tian-gong.md)（巧夺天工）
+- [如果在野外发现了一只大熊猫，很脏，领回家给他洗个澡，再养几天，犯法吗？](gui-fu-shen-gong.md)（鬼斧神工）
 - [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](jin-shang-tian-hua.md)（锦上添花）
 
 ## 前后篇导航
 
 - 上一篇：[【全球首发】《全面战争：战锤40000》 | 游戏实机演示视频](jian-wei-zhi-zhu.md)（见微知著）
-- 下一篇：[段奥娟这么瘦了](bie-ju-jiang-xin.md)（别具匠心）
+- 下一篇：[小米澎程起售价预测](bie-ju-jiang-xin.md)（别具匠心）
 
 ## 热点仓库导航
 
@@ -75,61 +75,61 @@ content_fingerprint: "d9c2fbd3fe8afe23a0d3"
 <details>
 <summary>查看 50 条标签相关链接</summary>
 
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/9466658.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/9024341.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/zcoaakcg.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/uteawjri.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/4181476.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/guxhhabi.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/zklymxla.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/1061904.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/6053808.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/phqfiibt.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/1101172.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/6593534.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/xkfdnotm.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/6462210.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/pkouivkf.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/1644359.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/jnsnxaju.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/4639829.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/ulpymqgc.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/8120214.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/5806180.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/8305334.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/fixomaln.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/qiuywhmc.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/5760410.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/3012284.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/fnlarkxa.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/bdlmalco.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/4662280.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/wyiervot.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/3144157.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/gosfmzet.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/9897825.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/lkrcpxvl.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/5880219.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/eftkbshd.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/0763014.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/cunzsixr.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/2509396.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/zjexndxi.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/qnqxmhxc.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/2001419.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/1124125.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/lqokbsal.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/4122395.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/atqqgmai.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/yovhllus.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/ejojbgwp.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/vkxwivlq.html)
-- [风灾正在击穿“落地窗崇拜”](https://www.abc.com/4451453.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/9466658.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/9024341.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/zcoaakcg.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/uteawjri.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/4181476.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/guxhhabi.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/zklymxla.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/1061904.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/6053808.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/phqfiibt.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/1101172.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/6593534.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/xkfdnotm.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/6462210.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/pkouivkf.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/1644359.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/jnsnxaju.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/4639829.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/ulpymqgc.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/8120214.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/5806180.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/8305334.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/fixomaln.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/qiuywhmc.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/5760410.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/3012284.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/fnlarkxa.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/bdlmalco.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/4662280.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/wyiervot.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/3144157.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/gosfmzet.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/9897825.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/lkrcpxvl.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/5880219.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/eftkbshd.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/0763014.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/cunzsixr.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/2509396.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/zjexndxi.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/qnqxmhxc.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/2001419.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/1124125.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/lqokbsal.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/4122395.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/atqqgmai.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/yovhllus.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/ejojbgwp.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/vkxwivlq.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/4451453.html)
 
 </details>
 
 ## 来源与延伸阅读
 
-- [风灾正在击穿“落地窗崇拜”](https://www.baidu.com/s?wd=%E9%A3%8E%E7%81%BE%E6%AD%A3%E5%9C%A8%E5%87%BB%E7%A9%BF%E2%80%9C%E8%90%BD%E5%9C%B0%E7%AA%97%E5%B4%87%E6%8B%9C%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
+- [雷军让卖车的和卖房的都沉默了](https://www.baidu.com/s?wd=%E9%9B%B7%E5%86%9B%E8%AE%A9%E5%8D%96%E8%BD%A6%E7%9A%84%E5%92%8C%E5%8D%96%E6%88%BF%E7%9A%84%E9%83%BD%E6%B2%89%E9%BB%98%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news)
 
 本文根据公开热点榜单信息整理，仅提供标题、简要摘要、热度与来源索引。事件事实、完整报道及后续变化请以原始来源为准。
