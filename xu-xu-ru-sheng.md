@@ -10,29 +10,57 @@ tags:
 source: "知乎热榜"
 source_url: "https://www.zhihu.com/question/2059159511039055807"
 rank: 20
-updated_at: "2026-07-11T20:18:04+08:00"
-content_fingerprint: "a3d54d390b97c08523f5"
+updated_at: "2026-07-11T20:29:32+08:00"
+content_fingerprint: "3d10f73109a6102e5886"
 ---
+
+[热点索引](README.md) / 栩栩如生 / 德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？
 
 # 德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？
 
-> 来源：知乎热榜 · 榜单排名：第 20 位 · 更新时间：2026-07-11T20:18:04+08:00
+> 来源：知乎热榜 · 榜单排名：第 20 位 · 更新时间：2026-07-11T20:29:32+08:00
 
-## 热点正文
+## 事件概览
 
 世界杯1/4决赛，西班牙2-1力克比利时晋级四强，自2010年世界杯后再度闯入世界杯半决赛。
 
-## 热点信息
+## 当前榜单信息
 
 - 来源平台：知乎热榜
 - 当前排名：第 20 位
-- 热度：107 万热度
+- 热度：93 万热度
 - 分类：问答
 - 固定索引：栩栩如生（xu-xu-ru-sheng）
+
+## 阅读关注点
+
+- 该话题当前位于知乎热榜第 20 位，排名会随实时热度变化。
+- 阅读时应区分榜单热度与事实结论，重要信息以原始来源和权威发布为准。
+- 后续进展可能改变现有信息，页面会在下一次榜单采集时更新。
 
 ## 相关标签
 
 `知乎热榜` `实时热搜` `热点资讯` `问答`
+
+## 相关热点
+
+- [❤️我们这么可爱真是抱歉！](huo-ling-huo-xian.md)（活灵活现）
+- [电科院实控人套现715万入籍加拿大](you-sheng-you-se.md)（有声有色）
+- [周星驰新片值得影迷“再信一次”吗](yin-ren-ru-sheng.md)（引人入胜）
+- [河南多地路面突破72℃](jing-di-zhi-wa.md)（井底之蛙）
+
+## 前后篇导航
+
+- 上一篇：[专家：美伊短期内复谈无望](sheng-dong-huo-po.md)（生动活泼）
+- 下一篇：[❤️我们这么可爱真是抱歉！](huo-ling-huo-xian.md)（活灵活现）
+
+## 热点仓库导航
+
+- [hua-she-tian-zu](https://github.com/vlo808155/hua-she-tian-zu)
+- [shou-zhu-dai-tu](https://github.com/vlo808155/shou-zhu-dai-tu)
+- [ke-zhou-qiu-jian](https://github.com/vlo808155/ke-zhou-qiu-jian)
+- [wang-yang-bu-lao](https://github.com/vlo808155/wang-yang-bu-lao)
+- [jing-di-zhi-wa](https://github.com/vlo808155/jing-di-zhi-wa)
 
 ## 来源与延伸阅读
 
