@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 诺斯科娃温网女单冠军
+# 杭州 台风
 
-> 来源：微博热搜 · 排名：第 18 位 · 热度：65630 · 分类：体育 · 更新：2026-07-12T04:27:05+08:00
+> 来源：微博热搜 · 排名：第 18 位 · 热度：66457 · 分类：民生新闻 · 更新：2026-07-12T04:29:05+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“诺斯科娃温网女单冠军”位列第 18 位，公开热度指标为 65630，榜单分类为“体育”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“杭州 台风”位列第 18 位，公开热度指标为 66457，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,7 +14,7 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `体育`
+`微博热搜` `实时热搜` `热点资讯` `民生新闻`
 
 ## 相关热点
 
@@ -28,7 +28,7 @@
 - [《功夫女足》票房突破 2 亿，你觉得最终票房能到多少？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
 - [上海中心千吨阻尼器开始摆动](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
 - [杭州20分钟变了4个色](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [广西洪水](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [丁程鑫说王俊凯太能存钱了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
 - [台风巴威1小时走30到50公里](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
@@ -42,9 +42,9 @@
 - [新娘结婚当天一觉睡到10点多](http://www.movie.hkepx.cn/movie/6761076.htm)
 - [“我不在的日子里，你们很嚣张啊”](http://www.movie.hkepx.cn/movie/4354942.htm)
 - [台风巴威已登陆](http://www.play.hengshemaoyi.cn/kongbu/7691913.htm)
-- [这才是《The Other Side Of Paradise》原版MV！](http://www.daogukj.com/zxhxffqk/)
+- [《功夫女足》猫眼开分9.4](http://www.daogukj.com/zxhxffqk/)
 - [特大暴雨来了：台风巴威登陆浙江玉环，危险的暴雨才刚刚开始](http://www.play.hengshemaoyi.cn/kongbu/0581403.htm)
-- [曝25岁南非国脚自杀离世](http://www.play.hengshemaoyi.cn/xiju/8368894.htm)
+- [“两倍的价格 我买100吨西瓜”](http://www.play.hengshemaoyi.cn/xiju/8368894.htm)
 - [梅里诺绝杀完葡萄牙又绝杀比利时](http://www.movie.hkepx.cn/movie/3724589.htm)
 - [朝鲜通报特大腐败犯罪](http://www.movie.hkepx.cn/movie/4073082.htm)
 - [张辽为何没有成为曹魏军事集团的核心？](http://www.movie.hkepx.cn/movie/7225991.htm)
@@ -52,13 +52,13 @@
 - [《请看VCR》](http://www.play.hengshemaoyi.cn/xiju/1901702.htm)
 - [巴威最新位置](http://www.daogukj.com/1487547)
 - [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](http://www.daogukj.com/sqqsfnyh/)
-- [丁程鑫说王俊凯太能存钱了](http://www.movie.hkepx.cn/movie/3969864.htm)
+- [广西洪水](http://www.movie.hkepx.cn/movie/3969864.htm)
 - [福袋不发飙升10万人+！今天这局偷家卡牌，大司马人气彻底重回巅峰](http://www.daogukj.com/iqmqrbhp/)
 - [镇干部接受采访全程挡脸：太像作秀了](http://www.play.hengshemaoyi.cn/xiju/8313158.htm)
 - [挪威主厨没想到会进8强](http://www.movie.hkepx.cn/xiju/9816658.htm)
 - [吾从人族来，自当为人族竭尽全力！](http://www.daogukj.com/3514427)
 - [上海中心1000吨阻尼器开始摆动](http://www.movie.hkepx.cn/movie/5821299.htm)
-- [DeepSeek V4 正式版将于 7 月中旬上线，你有什么期待？](http://www.movie.hkepx.cn/movie/7016997.htm)
+- [这才是《The Other Side Of Paradise》原版MV！](http://www.movie.hkepx.cn/movie/7016997.htm)
 - [直接工作与读大专，哪个更划算？](http://www.daogukj.com/klgjmmqw/)
 - [如果在野外发现了一只大熊猫，很脏，领回家给他洗个澡，再养几天，犯法吗？](http://www.play.hengshemaoyi.cn/kongbu/2965446.htm)
 - [教育部：“教师全面硕士化”系谣言](http://www.daogukj.com/8554716)
@@ -68,7 +68,7 @@
 - [周星驰林子聪“callback”少林足球](http://www.play.hengshemaoyi.cn/xiju/3303937.htm)
 - [为什么西班牙蓝鳍金枪鱼被公认为高端食材？有什么方法让普通人也能平价吃到正宗蓝鳍金枪鱼？](http://www.play.hengshemaoyi.cn/xiju/6811831.htm)
 - [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/5731979.htm)
-- [手麻脚麻真的要赶紧进医院](http://www.play.hengshemaoyi.cn/kongbu/8531788.htm)
+- [为什么不能用炸弹摧毁台风](http://www.play.hengshemaoyi.cn/kongbu/8531788.htm)
 - [台风巴威在浙江玉环登陆](http://www.play.hengshemaoyi.cn/xiju/3940464.htm)
 - [你们觉得哪个菜系是八大菜系之首？](http://www.play.hengshemaoyi.cn/xiju/5367021.htm)
 - [广西贵港原副市长潘汉胜被双开](http://www.movie.hkepx.cn/xiju/7619002.htm)
@@ -91,8 +91,8 @@
 
 ## 原始来源
 
-- [诺斯科娃温网女单冠军](https://s.weibo.com/weibo?q=%E8%AF%BA%E6%96%AF%E7%A7%91%E5%A8%83%E6%B8%A9%E7%BD%91%E5%A5%B3%E5%8D%95%E5%86%A0%E5%86%9B)
+- [杭州 台风](https://s.weibo.com/weibo?q=%E6%9D%AD%E5%B7%9E%20%E5%8F%B0%E9%A3%8E)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 8f892476e34e45e8e547 -->
+<!-- content-fingerprint: c8f8d1aed7df276a751b -->

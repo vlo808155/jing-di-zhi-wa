@@ -2,7 +2,7 @@
 
 # 长征十号乙回收时为什么会冒出大量黑烟？
 
-> 来源：知乎热榜 · 排名：第 19 位 · 热度：56 万热度 · 分类：问答 · 更新：2026-07-12T04:27:05+08:00
+> 来源：知乎热榜 · 排名：第 19 位 · 热度：56 万热度 · 分类：问答 · 更新：2026-07-12T04:29:05+08:00
 
 ## 热点正文
 
@@ -44,7 +44,7 @@
 - [好震撼的一句话瞬间醍醐灌顶](http://www.daogukj.com/4841868)
 - [《潜伏》里的李涯很能干，但是站长为什么更喜欢余则成？](http://www.play.hengshemaoyi.cn/kongbu/6429820.htm)
 - [全国电力应急支援能力大幅提升](http://www.daogukj.com/jehuxdgs/)
-- [杭州 台风](http://www.movie.hkepx.cn/xiju/1384580.htm)
+- [诺斯科娃温网女单冠军](http://www.movie.hkepx.cn/xiju/1384580.htm)
 - [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](http://www.daogukj.com/qyeqjnqv/)
 - [温州台风](http://www.movie.hkepx.cn/movie/7212048.htm)
 - [哈兰德PK凯恩 世一锋终极对决](http://www.movie.hkepx.cn/xiju/5780029.htm)
@@ -52,7 +52,7 @@
 - [巴威最新位置](http://www.play.hengshemaoyi.cn/kongbu/8328027.htm)
 - [万物都能撞脸哈兰德](http://www.movie.hkepx.cn/xiju/5360773.htm)
 - [时隔三十年周星驰刘嘉玲再度合作](http://www.movie.hkepx.cn/movie/9566975.htm)
-- [手麻脚麻真的要赶紧进医院](http://www.daogukj.com/8649041)
+- [为什么不能用炸弹摧毁台风](http://www.daogukj.com/8649041)
 - [宝妈手麻3小时确诊脑梗进抢救室](http://www.daogukj.com/zvuykujr/)
 - [张辽为何没有成为曹魏军事集团的核心？](http://www.daogukj.com/smataala/)
 - [锐评100部恋爱番（求保护）](http://www.daogukj.com/mzqlfhhq/)
@@ -64,24 +64,24 @@
 - [特大暴雨来了：台风巴威登陆浙江玉环，危险的暴雨才刚刚开始](http://www.play.hengshemaoyi.cn/kongbu/0820222.htm)
 - [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](http://www.daogukj.com/btolggbq/)
 - [北京9区市民非必要不外出](http://www.play.hengshemaoyi.cn/xiju/2703241.htm)
-- [“两倍的价格 我买100吨西瓜”](http://www.play.hengshemaoyi.cn/xiju/1475778.htm)
+- [曝25岁南非国脚自杀离世](http://www.play.hengshemaoyi.cn/xiju/1475778.htm)
 - [无人机吊起2人神图系AI合成](http://www.play.hengshemaoyi.cn/xiju/4475779.htm)
 - [上海中心1000吨阻尼器开始摆动](http://www.play.hengshemaoyi.cn/xiju/3969235.htm)
 - [你觉得孩子住校好还是走读好？](http://www.play.hengshemaoyi.cn/kongbu/1797022.htm)
 - [不到两年现炒称重快餐纷纷倒闭，顾客为什么放弃了自选称重快餐？](http://www.movie.hkepx.cn/xiju/9886322.htm)
-- [为什么不能用炸弹摧毁台风](http://www.play.hengshemaoyi.cn/xiju/1914744.htm)
+- [DeepSeek V4 正式版将于 7 月中旬上线，你有什么期待？](http://www.play.hengshemaoyi.cn/xiju/1914744.htm)
 - [挪威VS英格兰：凯恩PK哈兰德](http://www.movie.hkepx.cn/movie/2301491.htm)
 - [中国癌症谱50年：“富癌”上升](http://www.play.hengshemaoyi.cn/xiju/2353249.htm)
 - [周星驰新电影值得大家去走个面儿吗？《功夫女足》诚实观后感](http://www.daogukj.com/fownzino/)
-- [诺斯科娃温网女单冠军](http://www.play.hengshemaoyi.cn/xiju/3652466.htm)
+- [杭州 台风](http://www.play.hengshemaoyi.cn/xiju/3652466.htm)
 - [海贼王为什么剧情为什么越来越差？](http://www.daogukj.com/7447842)
 - [台风巴威在浙江玉环登陆](http://www.daogukj.com/kzpjmnze/)
 - [知名主持人喷周星驰新电影：好难看](http://www.play.hengshemaoyi.cn/kongbu/4160936.htm)
-- [浙江惊现“台风霞”粉紫色天空](http://www.daogukj.com/5391271)
-- [曝25岁南非国脚自杀离世](http://www.play.hengshemaoyi.cn/xiju/1037193.htm)
+- [救援期间冒雨吃饭的消防员找到了](http://www.daogukj.com/5391271)
+- [“两倍的价格 我买100吨西瓜”](http://www.play.hengshemaoyi.cn/xiju/1037193.htm)
 - [女儿女婿自杀后妈妈投身防性侵宣传](http://www.daogukj.com/4166842)
 - [姆巴佩：为法国效力不赢会被千刀万剐](http://www.movie.hkepx.cn/xiju/6638941.htm)
-- [这才是《The Other Side Of Paradise》原版MV！](http://www.play.hengshemaoyi.cn/kongbu/4151588.htm)
+- [《功夫女足》猫眼开分9.4](http://www.play.hengshemaoyi.cn/kongbu/4151588.htm)
 - [你们觉得哪个菜系是八大菜系之首？](http://www.daogukj.com/jguwcjlw/)
 - [各地全力以赴防范台风巴威](http://www.movie.hkepx.cn/xiju/6322184.htm)
 - [台风巴威二次登陆](http://www.play.hengshemaoyi.cn/xiju/2530472.htm)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: a25ddc6c17d445505f76 -->
+<!-- content-fingerprint: 5f98b4533d185dae7064 -->

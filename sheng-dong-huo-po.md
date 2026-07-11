@@ -2,7 +2,7 @@
 
 # 你觉得孩子住校好还是走读好？
 
-> 来源：知乎热榜 · 排名：第 20 位 · 热度：55 万热度 · 分类：问答 · 更新：2026-07-12T04:27:05+08:00
+> 来源：知乎热榜 · 排名：第 20 位 · 热度：55 万热度 · 分类：问答 · 更新：2026-07-12T04:29:05+08:00
 
 ## 热点正文
 
@@ -20,7 +20,7 @@
 
 - [《请看VCR》](xu-xu-ru-sheng.md)
 - [万物都能撞脸哈兰德](huo-ling-huo-xian.md)
-- [桃黑黑直播回应](you-sheng-you-se.md)
+- [南非25岁世界杯参赛球员去世](you-sheng-you-se.md)
 - [梅里诺绝杀完葡萄牙又绝杀比利时](yin-ren-ru-sheng.md)
 
 ## 站内推荐
@@ -39,28 +39,28 @@
 - [《和最讨厌的人灵魂互换了》完整版](http://www.play.hengshemaoyi.cn/xiju/2367459.htm)
 - [曝余承东内部群发飙](http://www.daogukj.com/whykihfw/)
 - [海贼王为什么剧情为什么越来越差？](http://www.daogukj.com/1896871)
-- [为什么不能用炸弹摧毁台风](http://www.movie.hkepx.cn/movie/7726331.htm)
+- [DeepSeek V4 正式版将于 7 月中旬上线，你有什么期待？](http://www.movie.hkepx.cn/movie/7726331.htm)
 - [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](http://www.play.hengshemaoyi.cn/kongbu/7591988.htm)
 - [台风巴威在浙江玉环登陆](http://www.movie.hkepx.cn/movie/9833785.htm)
 - [台风巴威1小时走30到50公里](http://www.movie.hkepx.cn/movie/5639163.htm)
 - [台风巴威二次登陆](http://www.daogukj.com/2186746)
 - [福袋不发飙升10万人+！今天这局偷家卡牌，大司马人气彻底重回巅峰](http://www.play.hengshemaoyi.cn/kongbu/2268018.htm)
-- [“两倍的价格 我买100吨西瓜”](http://www.play.hengshemaoyi.cn/kongbu/6473132.htm)
+- [曝25岁南非国脚自杀离世](http://www.play.hengshemaoyi.cn/kongbu/6473132.htm)
 - [朝鲜通报特大腐败犯罪](http://www.daogukj.com/1106243)
-- [北京暴雨红色预警](http://www.play.hengshemaoyi.cn/xiju/5943556.htm)
-- [这才是《The Other Side Of Paradise》原版MV！](http://www.daogukj.com/9530499)
+- [浙江惊现“台风霞”粉紫色天空](http://www.play.hengshemaoyi.cn/xiju/5943556.htm)
+- [《功夫女足》猫眼开分9.4](http://www.daogukj.com/9530499)
 - [《功夫女足》票房突破 2 亿，你觉得最终票房能到多少？](http://www.movie.hkepx.cn/xiju/0808829.htm)
-- [DeepSeek V4 正式版将于 7 月中旬上线，你有什么期待？](http://www.play.hengshemaoyi.cn/kongbu/8834808.htm)
+- [这才是《The Other Side Of Paradise》原版MV！](http://www.play.hengshemaoyi.cn/kongbu/8834808.htm)
 - [时隔三十年周星驰刘嘉玲再度合作](http://www.movie.hkepx.cn/xiju/0940758.htm)
 - [周星驰林子聪“callback”少林足球](http://www.movie.hkepx.cn/movie/9022890.htm)
 - [霸占车位女干部已停职](http://www.play.hengshemaoyi.cn/kongbu/2216390.htm)
 - [广西贵港原副市长潘汉胜被双开](http://www.play.hengshemaoyi.cn/xiju/1375823.htm)
 - [特大暴雨来了：台风巴威登陆浙江玉环，危险的暴雨才刚刚开始](http://www.daogukj.com/goeqgpai/)
 - [直接工作与读大专，哪个更划算？](http://www.play.hengshemaoyi.cn/kongbu/1757591.htm)
-- [救援期间冒雨吃饭的消防员找到了](http://www.play.hengshemaoyi.cn/kongbu/9879555.htm)
+- [北京暴雨红色预警](http://www.play.hengshemaoyi.cn/kongbu/9879555.htm)
 - [台风巴威实时路径](http://www.play.hengshemaoyi.cn/xiju/7503553.htm)
 - [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](http://www.movie.hkepx.cn/xiju/5861166.htm)
-- [杭州 台风](http://www.play.hengshemaoyi.cn/xiju/5549607.htm)
+- [诺斯科娃温网女单冠军](http://www.play.hengshemaoyi.cn/xiju/5549607.htm)
 - [好震撼的一句话瞬间醍醐灌顶](http://www.play.hengshemaoyi.cn/kongbu/6769731.htm)
 - [北京9区市民非必要不外出](http://www.play.hengshemaoyi.cn/xiju/8003531.htm)
 - [中国癌症谱50年：“富癌”上升](http://www.movie.hkepx.cn/xiju/9172364.htm)
@@ -72,7 +72,7 @@
 - [25岁南非国脚亚当斯自杀离世](http://www.daogukj.com/frbhpamg/)
 - [为什么西班牙蓝鳍金枪鱼被公认为高端食材？有什么方法让普通人也能平价吃到正宗蓝鳍金枪鱼？](http://www.daogukj.com/8218296)
 - [长征十号乙回收时为什么会冒出大量黑烟？](http://www.movie.hkepx.cn/xiju/3382411.htm)
-- [桃黑黑直播回应](http://www.play.hengshemaoyi.cn/kongbu/3195197.htm)
+- [南非25岁世界杯参赛球员去世](http://www.play.hengshemaoyi.cn/kongbu/3195197.htm)
 - [女孩遭前男友杀害被逼每日视频8次](http://www.movie.hkepx.cn/xiju/8373508.htm)
 - [妈妈去世4个月 女儿同样确诊红斑狼疮](http://www.daogukj.com/uamigzyj/)
 - [锐评100部恋爱番（求保护）](http://www.daogukj.com/uevljbcs/)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9c1259b8fa42f0b27347 -->
+<!-- content-fingerprint: b4f8a32e2fcb96c24dda -->

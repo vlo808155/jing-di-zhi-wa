@@ -2,11 +2,11 @@
 
 # 【老番茄/某幻】你毕业啦！
 
-> 来源：哔哩哔哩热门 · 排名：第 19 位 · 热度：740386 · 分类：MV · 更新：2026-07-12T04:27:05+08:00
+> 来源：哔哩哔哩热门 · 排名：第 19 位 · 热度：740514 · 分类：MV · 更新：2026-07-12T04:29:05+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“【老番茄/某幻】你毕业啦！”位列第 19 位，公开热度指标为 740386，榜单分类为“MV”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“【老番茄/某幻】你毕业啦！”位列第 19 位，公开热度指标为 740514，榜单分类为“MV”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：《远方见》 词曲:老番茄/某幻君 编曲:隆历奇 录音:杨秋儒 混音/母带:隆历奇 录音棚:Soundwave Studio
 
@@ -44,10 +44,10 @@
 - [无人机吊起2人神图系AI合成](http://www.play.hengshemaoyi.cn/kongbu/7293063.htm)
 - [新娘结婚当天一觉睡到10点多](http://www.play.hengshemaoyi.cn/xiju/4857183.htm)
 - [梅里诺绝杀完葡萄牙又绝杀比利时](http://www.movie.hkepx.cn/xiju/7889734.htm)
-- [诺斯科娃温网女单冠军](http://www.play.hengshemaoyi.cn/kongbu/0667195.htm)
+- [杭州 台风](http://www.play.hengshemaoyi.cn/kongbu/0667195.htm)
 - [妈妈去世4个月 女儿同样确诊红斑狼疮](http://www.play.hengshemaoyi.cn/kongbu/1579498.htm)
 - [原来疯狂吃零食的日子只有十年](http://www.movie.hkepx.cn/movie/0667278.htm)
-- [曝25岁南非国脚自杀离世](http://www.movie.hkepx.cn/movie/2598628.htm)
+- [“两倍的价格 我买100吨西瓜”](http://www.movie.hkepx.cn/movie/2598628.htm)
 - [《和最讨厌的人灵魂互换了》完整版](http://www.daogukj.com/vbrxejif/)
 - [为什么西班牙蓝鳍金枪鱼被公认为高端食材？有什么方法让普通人也能平价吃到正宗蓝鳍金枪鱼？](http://www.play.hengshemaoyi.cn/xiju/6786751.htm)
 - [路怒症被反杀，真的很解气](http://www.daogukj.com/kpifomse/)
@@ -58,8 +58,8 @@
 - [巴威最新位置](http://www.daogukj.com/1001749)
 - [杭州20分钟变了4个色](http://www.daogukj.com/9435306)
 - [台风](http://www.play.hengshemaoyi.cn/kongbu/5701265.htm)
-- [北京暴雨红色预警](http://www.movie.hkepx.cn/xiju/3842120.htm)
-- [桃黑黑直播回应](http://www.movie.hkepx.cn/xiju/7251868.htm)
+- [浙江惊现“台风霞”粉紫色天空](http://www.movie.hkepx.cn/xiju/3842120.htm)
+- [南非25岁世界杯参赛球员去世](http://www.movie.hkepx.cn/xiju/7251868.htm)
 - [万物都能撞脸哈兰德](http://www.movie.hkepx.cn/movie/8872274.htm)
 - [直接工作与读大专，哪个更划算？](http://www.daogukj.com/yniobcvk/)
 - [上海台风](http://www.movie.hkepx.cn/movie/0768259.htm)
@@ -68,11 +68,11 @@
 - [《功夫女足》票房突破 2 亿，你觉得最终票房能到多少？](http://www.daogukj.com/kgtebwbx/)
 - [完整版 NIGHT DANCER 翻唱 【给爱豆做抽象MV】](http://www.play.hengshemaoyi.cn/xiju/1497703.htm)
 - [你们觉得哪个菜系是八大菜系之首？](http://www.movie.hkepx.cn/xiju/0744889.htm)
-- [DeepSeek V4 正式版将于 7 月中旬上线，你有什么期待？](http://www.movie.hkepx.cn/xiju/0791643.htm)
+- [这才是《The Other Side Of Paradise》原版MV！](http://www.movie.hkepx.cn/xiju/0791643.htm)
 - [暑期防汛科普小知识请查收](http://www.movie.hkepx.cn/movie/3601600.htm)
 - [台风“巴威”在浙江乐清二次登陆](http://www.daogukj.com/6606882)
 - [全国电力应急支援能力大幅提升](http://www.play.hengshemaoyi.cn/kongbu/5430461.htm)
-- [这才是《The Other Side Of Paradise》原版MV！](http://www.play.hengshemaoyi.cn/xiju/1401530.htm)
+- [《功夫女足》猫眼开分9.4](http://www.play.hengshemaoyi.cn/xiju/1401530.htm)
 - [广西贵港原副市长潘汉胜被双开](http://www.play.hengshemaoyi.cn/kongbu/6874966.htm)
 - [巴威逼近 上海已紧急撤离3.4万人](http://www.movie.hkepx.cn/xiju/0869674.htm)
 - [《请看VCR》](http://www.movie.hkepx.cn/xiju/8892121.htm)
@@ -82,9 +82,9 @@
 - [周星驰林子聪“callback”少林足球](http://www.daogukj.com/4927582)
 - [温州台风](http://www.movie.hkepx.cn/xiju/7135657.htm)
 - [上海中心千吨阻尼器开始摆动](http://www.daogukj.com/edbsjtbr/)
-- [手麻脚麻真的要赶紧进医院](http://www.movie.hkepx.cn/movie/3015116.htm)
+- [为什么不能用炸弹摧毁台风](http://www.movie.hkepx.cn/movie/3015116.htm)
 - [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/8223902.htm)
-- [为什么不能用炸弹摧毁台风](http://www.daogukj.com/goublmac/)
+- [DeepSeek V4 正式版将于 7 月中旬上线，你有什么期待？](http://www.daogukj.com/goublmac/)
 - [挪威VS英格兰：凯恩PK哈兰德](http://www.movie.hkepx.cn/xiju/7589973.htm)
 
 </details>
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 635f9f60ad04204b8096 -->
+<!-- content-fingerprint: 87b03bdb12541dd28ee4 -->
