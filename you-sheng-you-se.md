@@ -1,35 +1,35 @@
 [热点索引](README.md)
 
-# 没有人！比我！更懂！重庆！
+# 桃黑黑直播回应
 
-> 来源：哔哩哔哩热门 · 排名：第 20 位 · 热度：2931943 · 分类：日常 · 更新：2026-07-11T23:35:56+08:00
+> 来源：微博热搜 · 排名：第 21 位 · 热度：125407 · 分类：游戏,网红 · 更新：2026-07-12T02:38:30+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“没有人！比我！更懂！重庆！”位列第 20 位，公开热度指标为 2931943，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“桃黑黑直播回应”位列第 21 位，公开热度指标为 125407，榜单分类为“游戏,网红”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：《你好美国》里扮演特朗普的Neil来中国啦！这把咱们带他去重庆逛逛~
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `日常`
+`微博热搜` `实时热搜` `热点资讯` `游戏,网红`
 
 ## 相关热点
 
-- [镇干部接受采访全程挡脸：太像作秀了](yin-ren-ru-sheng.md)
-- [印度女法学生弑母只为接班当公务员](jing-di-zhi-wa.md)
-- [女儿女婿自杀后妈妈投身防性侵宣传](hai-kuo-tian-kong.md)
-- [为什么西班牙蓝鳍金枪鱼被公认为高端食材？有什么方法让普通人也能平价吃到正宗蓝鳍金枪鱼？](gao-zhan-yuan-zhu.md)
+- [金身告破！西班牙本届首次丢球](yin-ren-ru-sheng.md)
+- [海贼王为什么剧情为什么越来越差？](jing-di-zhi-wa.md)
+- [这也太他喵的逆天了吧](hai-kuo-tian-kong.md)
+- [巴威逼近 上海已紧急撤离3.4万人](gao-zhan-yuan-zhu.md)
 
 ## 站内推荐
 
-- [台风巴威或将提前登陆，十级风圈抵达浙江，你家那里怎么样？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [《潜伏》里的李涯很能干，但是站长为什么更喜欢余则成？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
-- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [《和最讨厌的人灵魂互换了》完整版](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [死装哥](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [吾从人族来，自当为人族竭尽全力！](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
+- [上海中心千吨阻尼器开始摆动](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [女孩遭前男友杀害被逼每日视频8次](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [温州台风](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [台风](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
@@ -37,62 +37,62 @@
 <summary>展开更多相关内容</summary>
 
 - [台风巴威实时路径](http://www.abc.com/4971088.html)
-- [印度女法学生弑母只为接班当公务员](http://www.abc.com/4844004.html)
-- [迪丽热巴拍功夫女足同一时期长这样](http://www.abc.com/4991298.html)
-- [巴威逼近 上海已紧急撤离3.4万人](http://www.abc.com/cwreywdu.html)
-- [温州台风](http://www.abc.com/9772997.html)
-- [妈妈去世4个月 女儿同样确诊红斑狼疮](http://www.abc.com/ixfuxcyl.html)
-- [新兵清淤受伤又愧又急](http://www.abc.com/ikzlhimg.html)
-- [不到两年现炒称重快餐纷纷倒闭，顾客为什么放弃了自选称重快餐？](http://www.abc.com/5822674.html)
-- [英格兰和挪威生死大战谁能胜出](http://www.abc.com/asesjnek.html)
-- [镇干部接受采访全程挡脸：太像作秀了](http://www.abc.com/rdcpthma.html)
-- [女儿女婿自杀后妈妈投身防性侵宣传](http://www.abc.com/5927077.html)
-- [《潜伏》里的李涯很能干，但是站长为什么更喜欢余则成？](http://www.abc.com/yllhsdva.html)
-- [侯明昊叫卢昱晓晓晓](http://www.abc.com/jnrqnldb.html)
-- [男生为看世界杯准备“哈兰德套餐”](http://www.abc.com/4791067.html)
-- [晋江崩了](http://www.abc.com/5851148.html)
-- [张辽为何没有成为曹魏军事集团的核心？](http://www.abc.com/zncuucmd.html)
-- [上海中心千吨阻尼器开始摆动](http://www.abc.com/7991117.html)
-- [海水倒灌](http://www.abc.com/8866389.html)
-- [无人机吊起2人神图系AI合成](http://www.abc.com/zujbjwrt.html)
-- [北京9区市民非必要不外出](http://www.abc.com/4631177.html)
-- [记者直播时手机被台风吹走](http://www.abc.com/0366136.html)
-- [台风来袭科学避险完整指南](http://www.abc.com/3463549.html)
-- [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](http://www.abc.com/2594393.html)
-- [我----问你为什么要折断奥特钥匙！大结局！（中）](http://www.abc.com/3471694.html)
-- [再刷亿遍！第五人格夏日同人演绎「深海的试炼」正片](http://www.abc.com/wotliznk.html)
-- [浙江海边掀起10多米巨浪](http://www.abc.com/1276430.html)
-- [12日6时起杭州地铁全线网停运](http://www.abc.com/mhoyvlve.html)
-- [你们觉得哪个菜系是八大菜系之首？](http://www.abc.com/3050868.html)
-- [路怒症被反杀，真的很解气](http://www.abc.com/kdnhtcki.html)
-- [哈兰德PK凯恩 世一锋终极对决](http://www.abc.com/9703122.html)
-- [知名主持人喷周星驰新电影：好难看](http://www.abc.com/7671891.html)
-- [上海台风](http://www.abc.com/tmntmrzl.html)
-- [上海中心1000吨阻尼器开始摆动](http://www.abc.com/1541033.html)
-- [周星驰官宣星女郎雪野](http://www.abc.com/dplnhesn.html)
-- [教育部：“教师全面硕士化”系谣言](http://www.abc.com/qatfzmwj.html)
-- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](http://www.abc.com/plprmsfi.html)
-- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/4344940.html)
-- [浙江惊现“台风霞”粉紫色天空](http://www.abc.com/lsjykbeq.html)
-- [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](http://www.abc.com/9172580.html)
-- [周星驰《功夫女足》口碑两极分化](http://www.abc.com/vcanadbp.html)
-- [A股下周怎么走](http://www.abc.com/9812288.html)
-- [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](http://www.abc.com/5362076.html)
-- [《下一个是谁》第七季（1）](http://www.abc.com/ujxjhzut.html)
-- [150斤男记者在浙江沿海被吹到变形](http://www.abc.com/4959601.html)
-- [如何评价周星驰执导、编剧的电影《功夫女足》？](http://www.abc.com/vlwdscaj.html)
-- [死装哥](http://www.abc.com/5544609.html)
-- [【TF家族练习生】《突围II破局》EP03：来自舞台的邀请函（上）](http://www.abc.com/jeajjdmt.html)
-- [25岁南非国脚亚当斯自杀离世](http://www.abc.com/jehnnhzn.html)
-- [如何看待二次元3D动作游戏《深空之眼》官方宣布将停止更新？](http://www.abc.com/uddptxab.html)
-- [《功夫女足》票房突破 2 亿，你觉得最终票房能到多少？](http://www.abc.com/frwslrfz.html)
+- [海贼王为什么剧情为什么越来越差？](http://www.abc.com/4844004.html)
+- [这才是《The Other Side Of Paradise》原版MV！](http://www.abc.com/4991298.html)
+- [姆巴佩：为法国效力不赢会被千刀万剐](http://www.abc.com/cwreywdu.html)
+- [我----问你为什么要折断奥特钥匙！大结局！（中）](http://www.abc.com/9772997.html)
+- [台风巴威在浙江台州玉环登陆，中心附近最大风力 13 级，你家那里怎么样？](http://www.abc.com/ixfuxcyl.html)
+- [“一定不要着急，看我装糖阴他一手”【装糖阴人の小曲】【One kiss-DJ】](http://www.abc.com/ikzlhimg.html)
+- [路怒症被反杀，真的很解气](http://www.abc.com/5822674.html)
+- [周星驰新电影值得大家去走个面儿吗？《功夫女足》诚实观后感](http://www.abc.com/asesjnek.html)
+- [金身告破！西班牙本届首次丢球](http://www.abc.com/rdcpthma.html)
+- [这也太他喵的逆天了吧](http://www.abc.com/5927077.html)
+- [上海中心千吨阻尼器开始摆动](http://www.abc.com/yllhsdva.html)
+- [《和最讨厌的人灵魂互换了》完整版](http://www.abc.com/jnrqnldb.html)
+- [记者直播时手机被台风吹走](http://www.abc.com/4791067.html)
+- [直接工作与读大专，哪个更划算？](http://www.abc.com/5851148.html)
+- [台风天里为何暑假也要发停课通知](http://www.abc.com/zncuucmd.html)
+- [如果在野外发现了一只大熊猫，很脏，领回家给他洗个澡，再养几天，犯法吗？](http://www.abc.com/7991117.html)
+- [《功夫女足》票房突破 2 亿，你觉得最终票房能到多少？](http://www.abc.com/8866389.html)
+- [《功夫女足》猫眼开分9.4](http://www.abc.com/zujbjwrt.html)
+- [宝妈手麻3小时确诊脑梗进抢救室](http://www.abc.com/4631177.html)
+- [周星驰林子聪“callback”少林足球](http://www.abc.com/0366136.html)
+- [暑期防汛科普小知识请查收](http://www.abc.com/3463549.html)
+- [迪丽热巴张小斐手拉手热聊](http://www.abc.com/2594393.html)
+- [无人机吊起2人神图系AI合成](http://www.abc.com/3471694.html)
+- [各地全力以赴防范台风巴威](http://www.abc.com/wotliznk.html)
+- [【TF家族练习生】《突围II破局》EP03：来自舞台的邀请函（上）](http://www.abc.com/1276430.html)
+- [教育部：“教师全面硕士化”系谣言](http://www.abc.com/mhoyvlve.html)
+- [北京9区市民非必要不外出](http://www.abc.com/3050868.html)
+- [手麻脚麻真的要赶紧进医院](http://www.abc.com/kdnhtcki.html)
+- [中国癌症谱50年：“富癌”上升](http://www.abc.com/9703122.html)
+- [上海中心大厦千吨阻尼器开始动了](http://www.abc.com/7671891.html)
+- [台风巴威已登陆](http://www.abc.com/tmntmrzl.html)
+- [曝余承东内部群发飙](http://www.abc.com/1541033.html)
+- [不久前，在瑞幸隔壁，有家烧饼店的视频火了](http://www.abc.com/dplnhesn.html)
+- [世界杯半决赛，法国将对阵西班牙，强强对抗，谁会更胜一筹?](http://www.abc.com/qatfzmwj.html)
+- [为什么不能用炸弹摧毁台风](http://www.abc.com/plprmsfi.html)
+- [女孩遭前男友杀害被逼每日视频8次](http://www.abc.com/4344940.html)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](http://www.abc.com/lsjykbeq.html)
+- [台风巴威1小时走30到50公里](http://www.abc.com/9172580.html)
+- [为什么西班牙蓝鳍金枪鱼被公认为高端食材？有什么方法让普通人也能平价吃到正宗蓝鳍金枪鱼？](http://www.abc.com/vcanadbp.html)
+- [【老番茄/某幻】你毕业啦！](http://www.abc.com/9812288.html)
+- [巴威最新位置](http://www.abc.com/5362076.html)
+- [12日6时起杭州地铁全线网停运](http://www.abc.com/ujxjhzut.html)
+- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/4959601.html)
+- [上海台风](http://www.abc.com/vlwdscaj.html)
+- [台风](http://www.abc.com/5544609.html)
+- [浙江海边掀起10多米巨浪](http://www.abc.com/jeajjdmt.html)
+- [浙江惊现“台风霞”粉紫色天空](http://www.abc.com/jehnnhzn.html)
+- [“两倍的价格 我买100吨西瓜”](http://www.abc.com/uddptxab.html)
+- [广西洪水](http://www.abc.com/frwslrfz.html)
 
 </details>
 
 ## 原始来源
 
-- [没有人！比我！更懂！重庆！](https://b23.tv/BV11ENn6EEge)
+- [桃黑黑直播回应](https://s.weibo.com/weibo?q=%E6%A1%83%E9%BB%91%E9%BB%91%E7%9B%B4%E6%92%AD%E5%9B%9E%E5%BA%94)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 02af12c386fc072e6f37 -->
+<!-- content-fingerprint: 115de8ad7f2e4c622d83 -->
