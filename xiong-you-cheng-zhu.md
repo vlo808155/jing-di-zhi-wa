@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 浙江湖州市长：全面进入战时状态
+# 最新研判！台风巴威登陆时间或提前
 
-> 来源：百度热搜 · 排名：第 17 位 · 热度：6185932 · 更新：2026-07-11T20:56:41+08:00
+> 来源：百度热搜 · 排名：第 17 位 · 热度：6190432 · 更新：2026-07-11T20:57:28+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“浙江湖州市长：全面进入战时状态”位列第 17 位，公开热度指标为 6185932。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“最新研判！台风巴威登陆时间或提前”位列第 17 位，公开热度指标为 6190432。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：7月11日，湖州市委副书记、市长连坤明主持召开全市会商调度会并强调，台风“巴威”防御工作已经到了最关键的时刻。全市各级各部门要进一步强化底线思维、极限思维，闻令而动、听令而行，全面进入战时状态，坚决打赢防御台风“巴威”攻坚战。
+来源公开摘要显示：最新研判！台风“巴威”登陆时间或提前，快速逼近我国或于11日晚登陆。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -36,63 +36,63 @@
 <details>
 <summary>展开更多相关内容</summary>
 
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/oajryccu.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/zrjjcmba.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/9497805.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/1358255.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/eyzpwotz.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/bqerjmdr.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/8343204.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/0341683.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/5528549.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/hknbtqyv.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/5692159.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/7445438.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/gynzygva.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/ntngiecs.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/gfpgapuo.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/kjtynpok.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/3825546.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/mmybeydd.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/iqpietyn.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/6024763.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/4668608.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/7133799.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/rlebupnz.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/3945867.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/bzrennyv.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/1401039.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/1408570.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/cjyangki.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/8342507.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/groigogg.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/6251499.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/0328642.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/7303427.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/3576653.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/ugubuiop.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/lfktviez.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/sdbemlcq.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/8356635.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/uzloelrr.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/3679272.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/5786771.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/fqvqggcz.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/4295914.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/6871663.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/zhdviclx.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/5591950.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/hforeyvd.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/oviehvbw.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/7881517.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/4613978.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/oajryccu.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/zrjjcmba.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/9497805.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/1358255.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/eyzpwotz.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/bqerjmdr.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/8343204.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/0341683.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/5528549.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/hknbtqyv.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/5692159.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/7445438.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/gynzygva.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/ntngiecs.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/gfpgapuo.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/kjtynpok.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/3825546.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/mmybeydd.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/iqpietyn.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/6024763.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/4668608.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/7133799.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/rlebupnz.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/3945867.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/bzrennyv.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/1401039.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/1408570.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/cjyangki.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/8342507.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/groigogg.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/6251499.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/0328642.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/7303427.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/3576653.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/ugubuiop.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/lfktviez.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/sdbemlcq.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/8356635.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/uzloelrr.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/3679272.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/5786771.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/fqvqggcz.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/4295914.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/6871663.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/zhdviclx.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/5591950.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/hforeyvd.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/oviehvbw.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/7881517.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/4613978.html)
 
 </details>
 
 ## 原始来源
 
-- [浙江湖州市长：全面进入战时状态](https://www.baidu.com/s?wd=%E6%B5%99%E6%B1%9F%E6%B9%96%E5%B7%9E%E5%B8%82%E9%95%BF%EF%BC%9A%E5%85%A8%E9%9D%A2%E8%BF%9B%E5%85%A5%E6%88%98%E6%97%B6%E7%8A%B6%E6%80%81&sa=fyb_news&rsv_dl=fyb_news)
+- [最新研判！台风巴威登陆时间或提前](https://www.baidu.com/s?wd=%E6%9C%80%E6%96%B0%E7%A0%94%E5%88%A4%EF%BC%81%E5%8F%B0%E9%A3%8E%E5%B7%B4%E5%A8%81%E7%99%BB%E9%99%86%E6%97%B6%E9%97%B4%E6%88%96%E6%8F%90%E5%89%8D&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: b2312cac8cfeecf62002 -->
+<!-- content-fingerprint: e3fe5d1ddf826e11e1fa -->

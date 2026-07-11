@@ -2,11 +2,11 @@
 
 # 家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？
 
-> 来源：知乎热榜 · 排名：第 17 位 · 热度：125 万热度 · 分类：问答 · 更新：2026-07-11T20:56:41+08:00
+> 来源：知乎热榜 · 排名：第 17 位 · 热度：126 万热度 · 分类：问答 · 更新：2026-07-11T20:57:28+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？”位列第 17 位，公开热度指标为 125 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？”位列第 17 位，公开热度指标为 126 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：[视频]
 
@@ -19,14 +19,14 @@
 ## 相关热点
 
 - [没有人！比我！更懂！重庆！](gao-zhan-yuan-zhu.md)
-- [浙江湖州市长：全面进入战时状态](xiong-you-cheng-zhu.md)
+- [最新研判！台风巴威登陆时间或提前](xiong-you-cheng-zhu.md)
 - [小米澎程起售价预测](yun-chou-wei-wo.md)
 - [浙江海边掀起10多米巨浪](shen-mou-yuan-lv.md)
 
 ## 站内推荐
 
 - [台风来袭科学避险完整指南](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [迪丽热巴工作室发的live图](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [巴威路线东移](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
 - [无人机吊起2人神图系AI合成](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
 - [杭州：台风影响期间非必要不外出](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
 - [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 76c1269512e51147c227 -->
+<!-- content-fingerprint: 28fe55af4c4fd6ec74eb -->

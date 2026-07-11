@@ -2,11 +2,11 @@
 
 # 北京9区市民非必要不外出
 
-> 来源：百度热搜 · 排名：第 19 位 · 热度：5997336 · 更新：2026-07-11T20:56:41+08:00
+> 来源：百度热搜 · 排名：第 19 位 · 热度：5993241 · 更新：2026-07-11T20:57:28+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“北京9区市民非必要不外出”位列第 19 位，公开热度指标为 5997336。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“北京9区市民非必要不外出”位列第 19 位，公开热度指标为 5993241。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：7月11日15时，北京市气象台升级发布房山、平谷等9区暴雨红色预警，市应急办要求上述区域市民非必要不外出，企事业单位非必要不要求员工到岗，并关闭景区、停课停工以应对强降雨。
 
@@ -19,7 +19,7 @@
 ## 相关热点
 
 - [Jennie神图诞生了](miao-bi-sheng-hua.md)
-- [日本勾连北约意欲何为](sheng-dong-huo-po.md)
+- [日本砸钱抢印度AI精英赢面几何](sheng-dong-huo-po.md)
 - [德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？](xu-xu-ru-sheng.md)
 - [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](huo-ling-huo-xian.md)
 
@@ -29,7 +29,7 @@
 - [如何评价周星驰执导、编剧的电影《功夫女足》？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
 - [《下一个是谁》第七季（1）](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
 - [《大扫除是你的谎言》](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [浙江湖州市长：全面进入战时状态](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [最新研判！台风巴威登陆时间或提前](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: a2929d5d2e7b0bf6478f -->
+<!-- content-fingerprint: f3fda8fb3ce836687b88 -->
