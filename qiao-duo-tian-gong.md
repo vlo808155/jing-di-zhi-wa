@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# “26版西游记”团队回应爆火出圈
+# 博主：泽连斯基避谈乌国内战损情况
 
-> 来源：今日头条热榜 · 排名：第 19 位 · 热度：15973801 · 更新：2026-07-11T21:13:48+08:00
+> 来源：今日头条热榜 · 排名：第 19 位 · 热度：15996239 · 分类：新事件上榜 · 更新：2026-07-11T21:14:46+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，““26版西游记”团队回应爆火出圈”位列第 19 位，公开热度指标为 15973801。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“博主：泽连斯基避谈乌国内战损情况”位列第 19 位，公开热度指标为 15996239，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,7 +14,7 @@
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`今日头条热榜` `实时热搜` `热点资讯` `新事件上榜`
 
 ## 相关热点
 
@@ -57,7 +57,7 @@
 - [PC今日公测！《遗忘之海》PV「初航乐章」](http://www.abc.com/txuivtbu.html)
 - [曝25岁南非国脚自杀离世](http://www.abc.com/gqdehiol.html)
 - [杭州地铁停运](http://www.abc.com/2324053.html)
-- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/7411156.html)
+- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/7411156.html)
 - [大雨中吃盒饭的消防员找到了](http://www.abc.com/1323907.html)
 - [各地全力以赴防范台风巴威](http://www.abc.com/qpwwdsjm.html)
 - [【全球首发】《全面战争：战锤40000》 | 游戏实机演示视频](http://www.abc.com/ndnikags.html)
@@ -75,7 +75,7 @@
 - [【TF家族练习生】《突围II破局》EP03：来自舞台的邀请函（上）](http://www.abc.com/6227409.html)
 - [如何评价凡人修仙传182集，慕兰之战第六集？](http://www.abc.com/8458372.html)
 - [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](http://www.abc.com/hwwvmpvs.html)
-- [长沙霸占车位公职人员被停职](http://www.abc.com/7213003.html)
+- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/7213003.html)
 - [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](http://www.abc.com/4984308.html)
 - [迪丽热巴工作室发的live图](http://www.abc.com/wfyfmydt.html)
 - [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](http://www.abc.com/4075465.html)
@@ -91,8 +91,8 @@
 
 ## 原始来源
 
-- [“26版西游记”团队回应爆火出圈](https://www.toutiao.com/trending/7661125400504729643/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%220%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227661125400504729643%22%2C%22hot_board_impr_id%22%3A%22202607112113480D73E291302E867138F2%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [博主：泽连斯基避谈乌国内战损情况](https://www.toutiao.com/trending/7661245251503263283/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2213%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227661245251503263283%22%2C%22hot_board_impr_id%22%3A%222026071121144475B35755F140C0387E12%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: daf2994bcfbaecc510a9 -->
+<!-- content-fingerprint: e4462d7777e39b8be547 -->

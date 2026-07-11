@@ -2,7 +2,7 @@
 
 # 浙江湖州市长：全面进入战时状态
 
-> 来源：百度热搜 · 排名：第 20 位 · 热度：5898670 · 更新：2026-07-11T21:13:48+08:00
+> 来源：百度热搜 · 排名：第 20 位 · 热度：5898670 · 更新：2026-07-11T21:14:46+08:00
 
 ## 热点正文
 
@@ -26,7 +26,7 @@
 ## 站内推荐
 
 - [你会去看周星驰的新电影《功夫女足》吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [吾从人族来，自当为人族竭尽全力！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
 - [我----问你为什么要折断奥特钥匙！大结局！（中）](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
 - [哈兰德PK凯恩 世一锋终极对决](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
 - [大雨中吃盒饭的消防员找到了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
@@ -38,7 +38,7 @@
 
 - [台风巴威实时路径](http://www.abc.com/4971088.html)
 - [浙江海边掀起10多米巨浪](http://www.abc.com/4844004.html)
-- [应对台风上海转移3.4万人](http://www.abc.com/4991298.html)
+- [南非25岁世界杯参赛球员去世](http://www.abc.com/4991298.html)
 - [日媒拆台日本火箭只飞了11米](http://www.abc.com/cwreywdu.html)
 - [朝鲜通报特大腐败犯罪](http://www.abc.com/9772997.html)
 - [巴威即将登陆](http://www.abc.com/ixfuxcyl.html)
@@ -47,10 +47,10 @@
 - [国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？](http://www.abc.com/asesjnek.html)
 - [Jennie神图诞生了](http://www.abc.com/rdcpthma.html)
 - [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](http://www.abc.com/5927077.html)
-- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/yllhsdva.html)
-- [巴威路线东移](http://www.abc.com/jnrqnldb.html)
+- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/yllhsdva.html)
+- [哈兰德被评“世界第一玩得起的人”](http://www.abc.com/jnrqnldb.html)
 - [《大扫除是你的谎言》](http://www.abc.com/4791067.html)
-- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/5851148.html)
+- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/5851148.html)
 - [《和最讨厌的人灵魂互换了》完整版](http://www.abc.com/zncuucmd.html)
 - [广西贵港原副市长潘汉胜被双开](http://www.abc.com/7991117.html)
 - [迪丽热巴工作室发的live图](http://www.abc.com/8866389.html)
@@ -73,7 +73,7 @@
 - [周星驰官宣星女郎雪野](http://www.abc.com/qatfzmwj.html)
 - [台风巴威1小时走30到50公里](http://www.abc.com/plprmsfi.html)
 - [我----问你为什么要折断奥特钥匙！大结局！（中）](http://www.abc.com/4344940.html)
-- [南非25岁世界杯参赛球员去世](http://www.abc.com/lsjykbeq.html)
+- [长沙霸占车位公职人员被停职](http://www.abc.com/lsjykbeq.html)
 - [《下一个是谁》第七季（1）](http://www.abc.com/9172580.html)
 - [上海天空](http://www.abc.com/vcanadbp.html)
 - [2026年温网男单半决赛，德约科维奇三盘不敌辛纳，全场只获一个破发点，未能复刻澳网逆转奇迹。如何评价？](http://www.abc.com/9812288.html)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 5623a63afbca999fd94d -->
+<!-- content-fingerprint: 5348ffb8f3b7ef11bd89 -->

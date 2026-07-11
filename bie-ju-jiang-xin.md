@@ -2,7 +2,7 @@
 
 # 巴威发威了暴雨狂风高温一起来
 
-> 来源：微博热搜 · 排名：第 19 位 · 热度：339623 · 分类：民生新闻 · 更新：2026-07-11T21:13:48+08:00
+> 来源：微博热搜 · 排名：第 19 位 · 热度：339623 · 分类：民生新闻 · 更新：2026-07-11T21:14:46+08:00
 
 ## 热点正文
 
@@ -18,7 +18,7 @@
 
 ## 相关热点
 
-- [“26版西游记”团队回应爆火出圈](qiao-duo-tian-gong.md)
+- [博主：泽连斯基避谈乌国内战损情况](qiao-duo-tian-gong.md)
 - [2026年温网男单半决赛，德约科维奇三盘不敌辛纳，全场只获一个破发点，未能复刻澳网逆转奇迹。如何评价？](gui-fu-shen-gong.md)
 - [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](jin-shang-tian-hua.md)
 - [北京9区市民非必要不外出](hua-long-dian-jing.md)
@@ -48,13 +48,13 @@
 - [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](http://www.abc.com/0010602.html)
 - [HLE晋级MSI决赛](http://www.abc.com/7171781.html)
 - [这才是《The Other Side Of Paradise》原版MV！](http://www.abc.com/6183643.html)
-- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/ytimlgve.html)
+- [巴威路线东移](http://www.abc.com/ytimlgve.html)
 - [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](http://www.abc.com/6983419.html)
 - [巴威实时路径](http://www.abc.com/3800159.html)
 - [16岁高中生踢门玩闹后被捅杀](http://www.abc.com/8592452.html)
 - [《和最讨厌的人灵魂互换了》完整版](http://www.abc.com/6945709.html)
 - [国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？](http://www.abc.com/9373895.html)
-- [南非25岁世界杯参赛球员去世](http://www.abc.com/7765406.html)
+- [长沙霸占车位公职人员被停职](http://www.abc.com/7765406.html)
 - [小米澎程起售价预测](http://www.abc.com/nhyuztjc.html)
 - [巴威过境日本 大树连根拔起雨横飞](http://www.abc.com/ndhqgmuu.html)
 - [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](http://www.abc.com/wfzaevpf.html)
@@ -66,11 +66,11 @@
 - [25岁南非国脚亚当斯自杀离世](http://www.abc.com/8922882.html)
 - [金鳞岂是池中物，哄好岳母便化龙](http://www.abc.com/appqqjit.html)
 - [如何评价周星驰执导、编剧的电影《功夫女足》？](http://www.abc.com/9643879.html)
-- [哈兰德被评“世界第一玩得起的人”](http://www.abc.com/jquuaokp.html)
+- [应对台风上海转移3.4万人](http://www.abc.com/jquuaokp.html)
 - [浙江惊现“台风霞”粉紫色天空](http://www.abc.com/5906293.html)
 - [去了一趟得克萨斯州。](http://www.abc.com/plzataqk.html)
 - [台风巴威1小时走30到50公里](http://www.abc.com/6487021.html)
-- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/5030963.html)
+- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/5030963.html)
 - [直击东北超：沈阳vs哈尔滨](http://www.abc.com/3100280.html)
 - [北京9区市民非必要不外出](http://www.abc.com/1444365.html)
 - [最新研判！台风巴威登陆时间或提前](http://www.abc.com/gcyxqoxw.html)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: e0679ab40815e5fc6ef5 -->
+<!-- content-fingerprint: f6cc6ff476fe985a98fb -->

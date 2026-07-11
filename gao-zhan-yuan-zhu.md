@@ -2,11 +2,11 @@
 
 # 没有人！比我！更懂！重庆！
 
-> 来源：哔哩哔哩热门 · 排名：第 17 位 · 热度：2806974 · 分类：日常 · 更新：2026-07-11T21:13:48+08:00
+> 来源：哔哩哔哩热门 · 排名：第 17 位 · 热度：2808567 · 分类：日常 · 更新：2026-07-11T21:14:46+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“没有人！比我！更懂！重庆！”位列第 17 位，公开热度指标为 2806974，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“没有人！比我！更懂！重庆！”位列第 17 位，公开热度指标为 2808567，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：《你好美国》里扮演特朗普的Neil来中国啦！这把咱们带他去重庆逛逛~
 
@@ -20,7 +20,7 @@
 
 - [150斤男记者在浙江沿海被吹到变形](xiong-you-cheng-zhu.md)
 - [日媒拆台日本火箭只飞了11米](yun-chou-wei-wo.md)
-- [远炸近攻 乌军对俄放两大招意欲何为](shen-mou-yuan-lv.md)
+- [A股一周熊股出炉：最熊股跌超84%](shen-mou-yuan-lv.md)
 - [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](ming-cha-qiu-hao.md)
 
 ## 站内推荐
@@ -40,20 +40,20 @@
 - [教育部：“教师全面硕士化”系谣言](http://www.abc.com/4106589.html)
 - [巴威登陆地点范围再缩小](http://www.abc.com/6301622.html)
 - [路怒症被反杀，真的很解气](http://www.abc.com/1564015.html)
-- [应对台风上海转移3.4万人](http://www.abc.com/2467613.html)
-- [哈兰德被评“世界第一玩得起的人”](http://www.abc.com/aewlsfcq.html)
+- [南非25岁世界杯参赛球员去世](http://www.abc.com/2467613.html)
+- [应对台风上海转移3.4万人](http://www.abc.com/aewlsfcq.html)
 - [广西贵港原副市长潘汉胜被双开](http://www.abc.com/bjnuumpn.html)
-- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/7459802.html)
+- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/7459802.html)
 - [《下一个是谁》第七季（1）](http://www.abc.com/5762798.html)
 - [杭州：台风影响期间非必要不外出](http://www.abc.com/0794558.html)
-- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/etghdvai.html)
+- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/etghdvai.html)
 - [150斤男记者在浙江沿海被吹到变形](http://www.abc.com/xmlfjvcz.html)
 - [日本可回收火箭着陆成功 仅飞11米](http://www.abc.com/zmgzandi.html)
 - [巴威最新位置](http://www.abc.com/9698256.html)
 - [浙江惊现“台风霞”粉紫色天空](http://www.abc.com/gqufynnx.html)
 - [台风巴威实时路径](http://www.abc.com/ybhjniwa.html)
 - [世界杯四强大胆预测，会是法国，阿根廷，英格兰和西班牙吗？](http://www.abc.com/eurlcpur.html)
-- [长沙霸占车位公职人员被停职](http://www.abc.com/9559127.html)
+- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/9559127.html)
 - [最新研判！台风巴威登陆时间或提前](http://www.abc.com/7492972.html)
 - [女儿女婿自杀后妈妈投身防性侵宣传](http://www.abc.com/lxjgoehb.html)
 - [【全球首发】《全面战争：战锤40000》 | 游戏实机演示视频](http://www.abc.com/6869084.html)
@@ -70,7 +70,7 @@
 - [如何看待广西洪灾中无人机打破「不许吊人」规定进行人员转运？](http://www.abc.com/zwzbvjeq.html)
 - [《和最讨厌的人灵魂互换了》完整版](http://www.abc.com/bfinvgsx.html)
 - [哈兰德PK凯恩 世一锋终极对决](http://www.abc.com/5227234.html)
-- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/ttvpfysp.html)
+- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/ttvpfysp.html)
 - [海水倒灌](http://www.abc.com/6136460.html)
 - [朝鲜通报特大腐败犯罪](http://www.abc.com/wgjcmmii.html)
 - [浙江湖州市长：全面进入战时状态](http://www.abc.com/8599400.html)
@@ -81,7 +81,7 @@
 - [台风巴威或将提前于 11 日夜间至 12 日凌晨登陆，十级风圈抵达浙江，你家那里怎么样？](http://www.abc.com/ighstfhv.html)
 - [曝余承东内部群发飙](http://www.abc.com/7023904.html)
 - [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](http://www.abc.com/ukvzcwmu.html)
-- [巴威路线东移](http://www.abc.com/3372557.html)
+- [哈兰德被评“世界第一玩得起的人”](http://www.abc.com/3372557.html)
 - [日本可回收火箭小型实验机 RV-X「着陆成功」，日媒报道只飞了11米，这是什么水平？对其有何意义？](http://www.abc.com/uhjspqfi.html)
 - [德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？](http://www.abc.com/8103741.html)
 - [HLE晋级MSI决赛](http://www.abc.com/4684663.html)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6d61093f4164b2817399 -->
+<!-- content-fingerprint: d60583879d2fdd3ed8b5 -->

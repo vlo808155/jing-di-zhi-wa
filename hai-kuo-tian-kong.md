@@ -2,7 +2,7 @@
 
 # 家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？
 
-> 来源：知乎热榜 · 排名：第 17 位 · 热度：129 万热度 · 分类：问答 · 更新：2026-07-11T21:13:48+08:00
+> 来源：知乎热榜 · 排名：第 17 位 · 热度：129 万热度 · 分类：问答 · 更新：2026-07-11T21:14:46+08:00
 
 ## 热点正文
 
@@ -21,12 +21,12 @@
 - [没有人！比我！更懂！重庆！](gao-zhan-yuan-zhu.md)
 - [150斤男记者在浙江沿海被吹到变形](xiong-you-cheng-zhu.md)
 - [日媒拆台日本火箭只飞了11米](yun-chou-wei-wo.md)
-- [远炸近攻 乌军对俄放两大招意欲何为](shen-mou-yuan-lv.md)
+- [A股一周熊股出炉：最熊股跌超84%](shen-mou-yuan-lv.md)
 
 ## 站内推荐
 
 - [台风来袭科学避险完整指南](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [应对台风上海转移3.4万人](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [南非25岁世界杯参赛球员去世](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
 - [无人机吊起2人神图系AI合成](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
 - [如何评价凡人修仙传182集，慕兰之战第六集？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
 - [2026年温网男单半决赛，德约科维奇三盘不敌辛纳，全场只获一个破发点，未能复刻澳网逆转奇迹。如何评价？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
@@ -59,12 +59,12 @@
 - [TF四代考核人气分](http://www.abc.com/qyeuokoz.html)
 - [巴威过境日本 大树连根拔起雨横飞](http://www.abc.com/myqzkpea.html)
 - [世界杯四强大胆预测，会是法国，阿根廷，英格兰和西班牙吗？](http://www.abc.com/6199096.html)
-- [南非25岁世界杯参赛球员去世](http://www.abc.com/lylarqcq.html)
+- [长沙霸占车位公职人员被停职](http://www.abc.com/lylarqcq.html)
 - [日媒拆台日本火箭只飞了11米](http://www.abc.com/6560266.html)
 - [小米澎程起售价预测](http://www.abc.com/brldamyh.html)
 - [巴威发威了暴雨狂风高温一起来](http://www.abc.com/twynjmmy.html)
 - [150斤男记者在浙江沿海被吹到变形](http://www.abc.com/jhejffyo.html)
-- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/2255947.html)
+- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/2255947.html)
 - [巴威即将登陆](http://www.abc.com/7740551.html)
 - [杭州：台风影响期间非必要不外出](http://www.abc.com/9122021.html)
 - [杭州 台风](http://www.abc.com/uoiyrdsn.html)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: dd6d6f7c4b1e9722921f -->
+<!-- content-fingerprint: 66dc9e7b097673d97a57 -->
