@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 金身告破！西班牙本届首次丢球
+# 广西贵港原副市长潘汉胜被双开
 
-> 来源：今日头条热榜 · 排名：第 21 位 · 热度：3909329 · 更新：2026-07-12T02:38:30+08:00
+> 来源：今日头条热榜 · 排名：第 21 位 · 热度：4065887 · 更新：2026-07-12T04:17:33+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“金身告破！西班牙本届首次丢球”位列第 21 位，公开热度指标为 3909329。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“广西贵港原副市长潘汉胜被双开”位列第 21 位，公开热度指标为 4065887。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -19,80 +19,80 @@
 ## 相关热点
 
 - [海贼王为什么剧情为什么越来越差？](jing-di-zhi-wa.md)
-- [这也太他喵的逆天了吧](hai-kuo-tian-kong.md)
+- [完整版 NIGHT DANCER 翻唱 【给爱豆做抽象MV】](hai-kuo-tian-kong.md)
 - [巴威逼近 上海已紧急撤离3.4万人](gao-zhan-yuan-zhu.md)
-- [杭州20分钟变了4个色](xiong-you-cheng-zhu.md)
+- [挪威主厨没想到会进8强](xiong-you-cheng-zhu.md)
 
 ## 站内推荐
 
-- [各地全力以赴防范台风巴威](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
-- [妈妈去世4个月 女儿同样确诊红斑狼疮](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
+- [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
+- [朝鲜通报特大腐败犯罪](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
 - [无人机吊起2人神图系AI合成](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- [中国癌症谱50年：“富癌”上升](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [新娘结婚当天一觉睡到10点多](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [为什么不能用炸弹摧毁台风](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [浙江海边掀起10多米巨浪](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [如何看待广西洪灾中无人机打破「不许吊人」规定进行人员转运？](http://www.abc.com/dkpdwbui.html)
-- [长征十号乙回收时为什么会冒出大量黑烟？](http://www.abc.com/thxqncst.html)
-- [【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](http://www.abc.com/1190558.html)
-- [张辽为何没有成为曹魏军事集团的核心？](http://www.abc.com/7984756.html)
-- [台风](http://www.abc.com/8110521.html)
-- [日本可回收火箭小型实验机 RV-X「着陆成功」，日媒报道只飞了11米，这是什么水平？对其有何意义？](http://www.abc.com/gcdslnhy.html)
-- [女孩遭前男友杀害被逼每日视频8次](http://www.abc.com/2226840.html)
-- [南非25岁世界杯参赛球员去世](http://www.abc.com/yqyivhbv.html)
-- [你们觉得哪个菜系是八大菜系之首？](http://www.abc.com/mcenmfew.html)
-- [镇干部接受采访全程挡脸：太像作秀了](http://www.abc.com/wsdezhqn.html)
-- [暑期防汛科普小知识请查收](http://www.abc.com/ysczjlzx.html)
-- [台风“巴威”在浙江乐清二次登陆](http://www.abc.com/6318918.html)
-- [“我不在的日子里，你们很嚣张啊”](http://www.abc.com/6281160.html)
-- [大风中上海机场绑完飞机绑舷梯](http://www.abc.com/bjomackr.html)
-- [直接工作与读大专，哪个更划算？](http://www.abc.com/4265181.html)
-- [海贼王为什么剧情为什么越来越差？](http://www.abc.com/4009876.html)
-- [宝妈手麻3小时确诊脑梗进抢救室](http://www.abc.com/6610887.html)
-- [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](http://www.abc.com/6250767.html)
-- [台风巴威已登陆](http://www.abc.com/yzuzdzgo.html)
-- [海水倒灌](http://www.abc.com/egnornlm.html)
-- [你觉得孩子住校好还是走读好？](http://www.abc.com/yvtddlbq.html)
-- [防汛避险安全指南](http://www.abc.com/5592013.html)
-- [交警罚完瓜农又掏钱买下110元瓜](http://www.abc.com/xkkfsgux.html)
-- [浙江惊现“台风霞”粉紫色天空](http://www.abc.com/jesmjfuu.html)
-- [《潜伏》里的李涯很能干，但是站长为什么更喜欢余则成？](http://www.abc.com/ehcrsfuv.html)
-- [12日6时起杭州地铁全线网停运](http://www.abc.com/idpaoddx.html)
-- [霸占车位女干部已停职](http://www.abc.com/pdnkpbgx.html)
-- [“一定不要着急，看我装糖阴他一手”【装糖阴人の小曲】【One kiss-DJ】](http://www.abc.com/4890944.html)
-- [上海中心千吨阻尼器开始摆动](http://www.abc.com/3500379.html)
-- [台风天里为何暑假也要发停课通知](http://www.abc.com/8434311.html)
-- [手麻脚麻真的要赶紧进医院](http://www.abc.com/ofpfhbaw.html)
-- [新娘结婚当天一觉睡到10点多](http://www.abc.com/7015862.html)
-- [巴威逼近 上海已紧急撤离3.4万人](http://www.abc.com/5258897.html)
-- [挪威主厨没想到会进8强](http://www.abc.com/bhngsniy.html)
-- [温州台风](http://www.abc.com/aznopbay.html)
-- [曝余承东内部群发飙](http://www.abc.com/3613466.html)
-- [为什么不能用炸弹摧毁台风](http://www.abc.com/zpxuzxbt.html)
-- [周星驰林子聪“callback”少林足球](http://www.abc.com/ztsznaiy.html)
-- [25岁南非国脚亚当斯自杀离世](http://www.abc.com/sxnoklch.html)
-- [姆巴佩：为法国效力不赢会被千刀万剐](http://www.abc.com/ukuezxee.html)
-- [丁程鑫说王俊凯太能存钱了](http://www.abc.com/1785939.html)
-- [周星驰新电影值得大家去走个面儿吗？《功夫女足》诚实观后感](http://www.abc.com/1462622.html)
-- [不到两年现炒称重快餐纷纷倒闭，顾客为什么放弃了自选称重快餐？](http://www.abc.com/5295867.html)
-- [路怒症被反杀，真的很解气](http://www.abc.com/kaadyyjm.html)
-- [原来疯狂吃零食的日子只有十年](http://www.abc.com/mftgurhw.html)
-- [台风巴威在浙江台州玉环登陆，中心附近最大风力 13 级，你家那里怎么样？](http://www.abc.com/2614422.html)
-- [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](http://www.abc.com/rsglpgvi.html)
-- [【老番茄/某幻】你毕业啦！](http://www.abc.com/cakdsoxr.html)
-- [DeepSeek V4 正式版将于 7 月中旬上线，你有什么期待？](http://www.abc.com/7566305.html)
-- [台风巴威二次登陆](http://www.abc.com/1101492.html)
+- [台风巴威实时路径](http://www.daogukj.com/vrzctubb/)
+- [好震撼的一句话瞬间醍醐灌顶](http://www.daogukj.com/6886560)
+- [原来疯狂吃零食的日子只有十年](http://www.movie.hkepx.cn/movie/9717106.htm)
+- [挪威主厨没想到会进8强](http://www.play.hengshemaoyi.cn/xiju/5241849.htm)
+- [杭州20分钟变了4个色](http://www.daogukj.com/0392707)
+- [时隔三十年周星驰刘嘉玲再度合作](http://www.play.hengshemaoyi.cn/kongbu/2803464.htm)
+- [日本可回收火箭小型实验机 RV-X「着陆成功」，日媒报道只飞了11米，这是什么水平？对其有何意义？](http://www.movie.hkepx.cn/xiju/1334432.htm)
+- [长征十号乙回收时为什么会冒出大量黑烟？](http://www.play.hengshemaoyi.cn/kongbu/2200403.htm)
+- [不到两年现炒称重快餐纷纷倒闭，顾客为什么放弃了自选称重快餐？](http://www.play.hengshemaoyi.cn/kongbu/7911895.htm)
+- [完整版 NIGHT DANCER 翻唱 【给爱豆做抽象MV】](http://www.movie.hkepx.cn/movie/9434304.htm)
+- [巴威最新位置](http://www.daogukj.com/9720422)
+- [《下一个是谁》第七季（1）](http://www.daogukj.com/5290019)
+- [路怒症被反杀，真的很解气](http://www.movie.hkepx.cn/movie/2595562.htm)
+- [世界杯半决赛，法国将对阵西班牙，强强对抗，谁会更胜一筹?](http://www.movie.hkepx.cn/movie/1663396.htm)
+- [《功夫女足》票房突破 2 亿，你觉得最终票房能到多少？](http://www.daogukj.com/xmeoocun/)
+- [哈兰德PK凯恩 世一锋终极对决](http://www.daogukj.com/srvnzwkb/)
+- [【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](http://www.daogukj.com/9309214)
+- [女儿女婿自杀后妈妈投身防性侵宣传](http://www.play.hengshemaoyi.cn/kongbu/8088630.htm)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](http://www.play.hengshemaoyi.cn/xiju/2775140.htm)
+- [丁程鑫说王俊凯太能存钱了](http://www.play.hengshemaoyi.cn/kongbu/3428499.htm)
+- [上海中心1000吨阻尼器开始摆动](http://www.daogukj.com/3278515)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](http://www.movie.hkepx.cn/xiju/0756083.htm)
+- [如何看待广西洪灾中无人机打破「不许吊人」规定进行人员转运？](http://www.daogukj.com/yszfskeo/)
+- [周星驰新电影值得大家去走个面儿吗？《功夫女足》诚实观后感](http://www.daogukj.com/exnmuhvg/)
+- [杭州 台风](http://www.play.hengshemaoyi.cn/kongbu/0838017.htm)
+- [妈妈去世4个月 女儿同样确诊红斑狼疮](http://www.movie.hkepx.cn/xiju/4430016.htm)
+- [周星驰林子聪“callback”少林足球](http://www.play.hengshemaoyi.cn/xiju/8509628.htm)
+- [浙江惊现“台风霞”粉紫色天空](http://www.daogukj.com/4084559)
+- [如果在野外发现了一只大熊猫，很脏，领回家给他洗个澡，再养几天，犯法吗？](http://www.play.hengshemaoyi.cn/kongbu/7290776.htm)
+- [巴威逼近 上海已紧急撤离3.4万人](http://www.movie.hkepx.cn/xiju/8703656.htm)
+- [吾从人族来，自当为人族竭尽全力！](http://www.daogukj.com/xgwhpfta/)
+- [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](http://www.play.hengshemaoyi.cn/kongbu/5234043.htm)
+- [海贼王为什么剧情为什么越来越差？](http://www.play.hengshemaoyi.cn/xiju/0981929.htm)
+- [挪威VS英格兰：凯恩PK哈兰德](http://www.daogukj.com/8836439)
+- [为什么西班牙蓝鳍金枪鱼被公认为高端食材？有什么方法让普通人也能平价吃到正宗蓝鳍金枪鱼？](http://www.daogukj.com/syjkuwqb/)
+- [为什么不能用炸弹摧毁台风](http://www.play.hengshemaoyi.cn/kongbu/5357592.htm)
+- [大风中上海机场绑完飞机绑舷梯](http://www.daogukj.com/5545136)
+- [你觉得孩子住校好还是走读好？](http://www.daogukj.com/myafughb/)
+- [上海中心千吨阻尼器开始摆动](http://www.daogukj.com/drenvtnu/)
+- [这才是《The Other Side Of Paradise》原版MV！](http://www.movie.hkepx.cn/movie/8190790.htm)
+- [中国癌症谱50年：“富癌”上升](http://www.daogukj.com/uthpzicf/)
+- [救援期间冒雨吃饭的消防员找到了](http://www.play.hengshemaoyi.cn/kongbu/9527939.htm)
+- [台风巴威在浙江玉环登陆](http://www.daogukj.com/2678664)
+- [姆巴佩：为法国效力不赢会被千刀万剐](http://www.daogukj.com/qevzlmky/)
+- [冉莹颖邹市明这段看窒息了](http://www.play.hengshemaoyi.cn/kongbu/2252968.htm)
+- [各地全力以赴防范台风巴威](http://www.movie.hkepx.cn/movie/6923701.htm)
+- [【老番茄/某幻】你毕业啦！](http://www.daogukj.com/2329215)
+- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/1652771.htm)
+- [锐评100部恋爱番（求保护）](http://www.play.hengshemaoyi.cn/xiju/2768861.htm)
+- [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](http://www.daogukj.com/8449888)
 
 </details>
 
 ## 原始来源
 
-- [金身告破！西班牙本届首次丢球](https://www.toutiao.com/trending/7660988306196565531/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%221%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227660988306196565531%22%2C%22hot_board_impr_id%22%3A%22202607120238295F1DF8201223E71118B1%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [广西贵港原副市长潘汉胜被双开](https://www.toutiao.com/trending/7660567595879497791/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227660567595879497791%22%2C%22hot_board_impr_id%22%3A%22202607120417331FE368F6ABE858D284C1%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 8719eb7119f5b9a4bfb7 -->
+<!-- content-fingerprint: 0c2df01c733b94eb7ecd -->
