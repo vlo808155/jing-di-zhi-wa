@@ -1,50 +1,16 @@
----
-title: "德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？"
-description: "世界杯1/4决赛，西班牙2-1力克比利时晋级四强，自2010年世界杯后再度闯入世界杯半决赛。"
-keywords: "知乎热榜, 实时热搜, 热点资讯, 问答, 栩栩如生, xu-xu-ru-sheng"
-tags:
-  - "知乎热榜"
-  - "实时热搜"
-  - "热点资讯"
-  - "问答"
-source: "知乎热榜"
-source_url: "https://www.zhihu.com/question/2059159511039055807"
-rank: 20
-updated_at: "2026-07-11T20:51:39+08:00"
-content_fingerprint: "35a2663c4c1b812f0ec5"
----
-
-[热点索引](README.md) / 栩栩如生 / 德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？
+[热点索引](README.md)
 
 # 德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？
 
-> 来源：知乎热榜 · 榜单排名：第 20 位 · 更新时间：2026-07-11T20:51:39+08:00
-
-## 事件概览
-
-世界杯1/4决赛，西班牙2-1力克比利时晋级四强，自2010年世界杯后再度闯入世界杯半决赛。
+> 来源：知乎热榜 · 排名：第 20 位 · 热度：90 万热度 · 分类：问答 · 更新：2026-07-11T20:56:41+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？”位列第 20 位，公开热度指标为 89 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？”位列第 20 位，公开热度指标为 90 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：世界杯1/4决赛，西班牙2-1力克比利时晋级四强，自2010年世界杯后再度闯入世界杯半决赛。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
-
-## 当前榜单信息
-
-- 来源平台：知乎热榜
-- 当前排名：第 20 位
-- 热度：89 万热度
-- 分类：问答
-- 固定索引：栩栩如生（xu-xu-ru-sheng）
-
-## 阅读关注点
-
-- 该话题当前位于知乎热榜第 20 位，排名会随实时热度变化。
-- 阅读时应区分榜单热度与事实结论，重要信息以原始来源和权威发布为准。
-- 后续进展可能改变现有信息，页面会在下一次榜单采集时更新。
 
 ## 相关标签
 
@@ -52,30 +18,23 @@ content_fingerprint: "35a2663c4c1b812f0ec5"
 
 ## 相关热点
 
-- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](huo-ling-huo-xian.md)（活灵活现）
-- [大雨中吃盒饭的消防员找到了](you-sheng-you-se.md)（有声有色）
-- [巴威逼近浙江车主纷纷高架停车](yin-ren-ru-sheng.md)（引人入胜）
-- [孩子发烧邹市明在房间里打游戏](jing-di-zhi-wa.md)（井底之蛙）
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](huo-ling-huo-xian.md)
+- [大雨中吃盒饭的消防员找到了](you-sheng-you-se.md)
+- [上海已转移3.4万人](yin-ren-ru-sheng.md)
+- [日本砸钱抢印度AI精英赢面几何](jing-di-zhi-wa.md)
 
-## 前后篇导航
+## 站内推荐
 
-- 上一篇：[男女被海浪卷走 两人骑摩托艇营救](sheng-dong-huo-po.md)（生动活泼）
-- 下一篇：[【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](huo-ling-huo-xian.md)（活灵活现）
+- [巴威最新位置](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
+- [长沙市体育局干部彭某某被停职](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
+- [朝鲜通报特大腐败犯罪](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
+- [哈兰德被评“世界第一玩得起的人”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
+- [如何评价追光动画出品的电影《三国第一部：争洛阳》？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
 
-## 热点仓库导航
-
-- [chun-nuan-hua-kai.md](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)（春暖花开）
-- [yi-zi-qian-jin.md](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)（一字千金）
-- [mang-ren-mo-xiang.md](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)（盲人摸象）
-- [chi-zhi-yi-heng.md](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)（持之以恒）
-- [xu-xu-ru-sheng.md](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)（栩栩如生）
-
-## 标签扩展阅读
-
-以下链接按照本页标签从 `url.txt` 模板生成，共 50 条。
+## 相关资讯
 
 <details>
-<summary>查看 50 条标签相关链接</summary>
+<summary>展开更多相关内容</summary>
 
 - [德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？](https://www.abc.com/ajeywldd.html)
 - [德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？](https://www.abc.com/2295149.html)
@@ -130,8 +89,10 @@ content_fingerprint: "35a2663c4c1b812f0ec5"
 
 </details>
 
-## 来源与延伸阅读
+## 原始来源
 
 - [德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？](https://www.zhihu.com/question/2059159511039055807)
 
-本文根据公开热点榜单信息整理，仅提供标题、简要摘要、热度与来源索引。事件事实、完整报道及后续变化请以原始来源为准。
+完整信息及后续变化请以原始来源为准。
+
+<!-- content-fingerprint: 6cd1c961258d3cd765bd -->

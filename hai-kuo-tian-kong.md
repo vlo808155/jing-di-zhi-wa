@@ -1,28 +1,8 @@
----
-title: "家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？"
-description: "[视频]"
-keywords: "知乎热榜, 实时热搜, 热点资讯, 问答, 海阔天空, hai-kuo-tian-kong"
-tags:
-  - "知乎热榜"
-  - "实时热搜"
-  - "热点资讯"
-  - "问答"
-source: "知乎热榜"
-source_url: "https://www.zhihu.com/question/2058964046766945142"
-rank: 17
-updated_at: "2026-07-11T20:51:39+08:00"
-content_fingerprint: "c571f5274fa4d4273fce"
----
-
-[热点索引](README.md) / 海阔天空 / 家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？
+[热点索引](README.md)
 
 # 家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？
 
-> 来源：知乎热榜 · 榜单排名：第 17 位 · 更新时间：2026-07-11T20:51:39+08:00
-
-## 事件概览
-
-[视频]
+> 来源：知乎热榜 · 排名：第 17 位 · 热度：125 万热度 · 分类：问答 · 更新：2026-07-11T20:56:41+08:00
 
 ## 热点正文
 
@@ -32,50 +12,29 @@ content_fingerprint: "c571f5274fa4d4273fce"
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
-## 当前榜单信息
-
-- 来源平台：知乎热榜
-- 当前排名：第 17 位
-- 热度：125 万热度
-- 分类：问答
-- 固定索引：海阔天空（hai-kuo-tian-kong）
-
-## 阅读关注点
-
-- 该话题当前位于知乎热榜第 17 位，排名会随实时热度变化。
-- 阅读时应区分榜单热度与事实结论，重要信息以原始来源和权威发布为准。
-- 后续进展可能改变现有信息，页面会在下一次榜单采集时更新。
-
 ## 相关标签
 
 `知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [没有人！比我！更懂！重庆！](gao-zhan-yuan-zhu.md)（高瞻远瞩）
-- [150斤男记者在浙江沿海被吹到变形](xiong-you-cheng-zhu.md)（胸有成竹）
-- [日媒拆台日本火箭只飞了11米](yun-chou-wei-wo.md)（运筹帷幄）
-- [日本砸钱抢印度AI精英赢面几何](shen-mou-yuan-lv.md)（深谋远虑）
+- [没有人！比我！更懂！重庆！](gao-zhan-yuan-zhu.md)
+- [浙江湖州市长：全面进入战时状态](xiong-you-cheng-zhu.md)
+- [小米澎程起售价预测](yun-chou-wei-wo.md)
+- [浙江海边掀起10多米巨浪](shen-mou-yuan-lv.md)
 
-## 前后篇导航
+## 站内推荐
 
-- 上一篇：[孩子发烧邹市明在房间里打游戏](jing-di-zhi-wa.md)（井底之蛙）
-- 下一篇：[没有人！比我！更懂！重庆！](gao-zhan-yuan-zhu.md)（高瞻远瞩）
+- [台风来袭科学避险完整指南](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
+- [迪丽热巴工作室发的live图](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [无人机吊起2人神图系AI合成](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [杭州：台风影响期间非必要不外出](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
-## 热点仓库导航
-
-- [yi-xin-yi-yi.md](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)（一心一意）
-- [wang-mei-zhi-ke.md](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)（望梅止渴）
-- [yan-er-dao-ling.md](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)（掩耳盗铃）
-- [xuan-liang-ci-gu.md](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)（悬梁刺股）
-- [hai-kuo-tian-kong.md](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)（海阔天空）
-
-## 标签扩展阅读
-
-以下链接按照本页标签从 `url.txt` 模板生成，共 50 条。
+## 相关资讯
 
 <details>
-<summary>查看 50 条标签相关链接</summary>
+<summary>展开更多相关内容</summary>
 
 - [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](https://www.abc.com/gczvfrug.html)
 - [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](https://www.abc.com/6160810.html)
@@ -130,8 +89,10 @@ content_fingerprint: "c571f5274fa4d4273fce"
 
 </details>
 
-## 来源与延伸阅读
+## 原始来源
 
 - [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](https://www.zhihu.com/question/2058964046766945142)
 
-本文根据公开热点榜单信息整理，仅提供标题、简要摘要、热度与来源索引。事件事实、完整报道及后续变化请以原始来源为准。
+完整信息及后续变化请以原始来源为准。
+
+<!-- content-fingerprint: 76c1269512e51147c227 -->

@@ -1,48 +1,16 @@
----
-title: "北京9区市民非必要不外出"
-description: "7月11日15时，北京市气象台升级发布房山、平谷等9区暴雨红色预警，市应急办要求上述区域市民非必要不外出，企事业单位非必要不要求员工到岗，并关闭景区、停课停工以应对强降雨。"
-keywords: "百度热搜, 实时热搜, 热点资讯, 画龙点睛, hua-long-dian-jing"
-tags:
-  - "百度热搜"
-  - "实时热搜"
-  - "热点资讯"
-source: "百度热搜"
-source_url: "https://www.baidu.com/s?wd=%E5%8C%97%E4%BA%AC9%E5%8C%BA%E5%B8%82%E6%B0%91%E9%9D%9E%E5%BF%85%E8%A6%81%E4%B8%8D%E5%A4%96%E5%87%BA&sa=fyb_news&rsv_dl=fyb_news"
-rank: 19
-updated_at: "2026-07-11T20:51:39+08:00"
-content_fingerprint: "5f2d734b34bcc6ba73c8"
----
-
-[热点索引](README.md) / 画龙点睛 / 北京9区市民非必要不外出
+[热点索引](README.md)
 
 # 北京9区市民非必要不外出
 
-> 来源：百度热搜 · 榜单排名：第 19 位 · 更新时间：2026-07-11T20:51:39+08:00
-
-## 事件概览
-
-7月11日15时，北京市气象台升级发布房山、平谷等9区暴雨红色预警，市应急办要求上述区域市民非必要不外出，企事业单位非必要不要求员工到岗，并关闭景区、停课停工以应对强降雨。
+> 来源：百度热搜 · 排名：第 19 位 · 热度：5997336 · 更新：2026-07-11T20:56:41+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“北京9区市民非必要不外出”位列第 19 位，公开热度指标为 6002421。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“北京9区市民非必要不外出”位列第 19 位，公开热度指标为 5997336。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：7月11日15时，北京市气象台升级发布房山、平谷等9区暴雨红色预警，市应急办要求上述区域市民非必要不外出，企事业单位非必要不要求员工到岗，并关闭景区、停课停工以应对强降雨。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
-
-## 当前榜单信息
-
-- 来源平台：百度热搜
-- 当前排名：第 19 位
-- 热度：6002421
-- 固定索引：画龙点睛（hua-long-dian-jing）
-
-## 阅读关注点
-
-- 该话题当前位于百度热搜第 19 位，排名会随实时热度变化。
-- 阅读时应区分榜单热度与事实结论，重要信息以原始来源和权威发布为准。
-- 后续进展可能改变现有信息，页面会在下一次榜单采集时更新。
 
 ## 相关标签
 
@@ -50,30 +18,23 @@ content_fingerprint: "5f2d734b34bcc6ba73c8"
 
 ## 相关热点
 
-- [Jennie神图诞生了](miao-bi-sheng-hua.md)（妙笔生花）
-- [男女被海浪卷走 两人骑摩托艇营救](sheng-dong-huo-po.md)（生动活泼）
-- [德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？](xu-xu-ru-sheng.md)（栩栩如生）
-- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](huo-ling-huo-xian.md)（活灵活现）
+- [Jennie神图诞生了](miao-bi-sheng-hua.md)
+- [日本勾连北约意欲何为](sheng-dong-huo-po.md)
+- [德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？](xu-xu-ru-sheng.md)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](huo-ling-huo-xian.md)
 
-## 前后篇导航
+## 站内推荐
 
-- 上一篇：[黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](jin-shang-tian-hua.md)（锦上添花）
-- 下一篇：[Jennie神图诞生了](miao-bi-sheng-hua.md)（妙笔生花）
+- [如何看待广西洪灾中无人机打破「不许吊人」规定进行人员转运？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [《下一个是谁》第七季（1）](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [《大扫除是你的谎言》](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [浙江湖州市长：全面进入战时状态](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
-## 热点仓库导航
-
-- [niao-yu-hua-xiang.md](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)（鸟语花香）
-- [feng-sheng-he-li.md](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)（风声鹤唳）
-- [qi-ren-you-tian.md](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)（杞人忧天）
-- [jing-yi-qiu-jing.md](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)（精益求精）
-- [hua-long-dian-jing.md](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)（画龙点睛）
-
-## 标签扩展阅读
-
-以下链接按照本页标签从 `url.txt` 模板生成，共 50 条。
+## 相关资讯
 
 <details>
-<summary>查看 50 条标签相关链接</summary>
+<summary>展开更多相关内容</summary>
 
 - [北京9区市民非必要不外出](https://www.abc.com/9962193.html)
 - [北京9区市民非必要不外出](https://www.abc.com/1349220.html)
@@ -128,8 +89,10 @@ content_fingerprint: "5f2d734b34bcc6ba73c8"
 
 </details>
 
-## 来源与延伸阅读
+## 原始来源
 
 - [北京9区市民非必要不外出](https://www.baidu.com/s?wd=%E5%8C%97%E4%BA%AC9%E5%8C%BA%E5%B8%82%E6%B0%91%E9%9D%9E%E5%BF%85%E8%A6%81%E4%B8%8D%E5%A4%96%E5%87%BA&sa=fyb_news&rsv_dl=fyb_news)
 
-本文根据公开热点榜单信息整理，仅提供标题、简要摘要、热度与来源索引。事件事实、完整报道及后续变化请以原始来源为准。
+完整信息及后续变化请以原始来源为准。
+
+<!-- content-fingerprint: a2929d5d2e7b0bf6478f -->

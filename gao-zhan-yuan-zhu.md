@@ -1,50 +1,16 @@
----
-title: "没有人！比我！更懂！重庆！"
-description: "《你好美国》里扮演特朗普的Neil来中国啦！这把咱们带他去重庆逛逛~"
-keywords: "哔哩哔哩热门, 实时热搜, 热点资讯, 日常, 高瞻远瞩, gao-zhan-yuan-zhu"
-tags:
-  - "哔哩哔哩热门"
-  - "实时热搜"
-  - "热点资讯"
-  - "日常"
-source: "哔哩哔哩热门"
-source_url: "https://b23.tv/BV11ENn6EEge"
-rank: 17
-updated_at: "2026-07-11T20:51:39+08:00"
-content_fingerprint: "c925376f7d9248ac9540"
----
-
-[热点索引](README.md) / 高瞻远瞩 / 没有人！比我！更懂！重庆！
+[热点索引](README.md)
 
 # 没有人！比我！更懂！重庆！
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 17 位 · 更新时间：2026-07-11T20:51:39+08:00
-
-## 事件概览
-
-《你好美国》里扮演特朗普的Neil来中国啦！这把咱们带他去重庆逛逛~
+> 来源：哔哩哔哩热门 · 排名：第 17 位 · 热度：2784400 · 分类：日常 · 更新：2026-07-11T20:56:41+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“没有人！比我！更懂！重庆！”位列第 17 位，公开热度指标为 2778689，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“没有人！比我！更懂！重庆！”位列第 17 位，公开热度指标为 2784400，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：《你好美国》里扮演特朗普的Neil来中国啦！这把咱们带他去重庆逛逛~
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
-
-## 当前榜单信息
-
-- 来源平台：哔哩哔哩热门
-- 当前排名：第 17 位
-- 热度：2778689
-- 分类：日常
-- 固定索引：高瞻远瞩（gao-zhan-yuan-zhu）
-
-## 阅读关注点
-
-- 该话题当前位于哔哩哔哩热门第 17 位，排名会随实时热度变化。
-- 阅读时应区分榜单热度与事实结论，重要信息以原始来源和权威发布为准。
-- 后续进展可能改变现有信息，页面会在下一次榜单采集时更新。
 
 ## 相关标签
 
@@ -52,30 +18,23 @@ content_fingerprint: "c925376f7d9248ac9540"
 
 ## 相关热点
 
-- [150斤男记者在浙江沿海被吹到变形](xiong-you-cheng-zhu.md)（胸有成竹）
-- [日媒拆台日本火箭只飞了11米](yun-chou-wei-wo.md)（运筹帷幄）
-- [日本砸钱抢印度AI精英赢面几何](shen-mou-yuan-lv.md)（深谋远虑）
-- [如何评价追光动画出品的电影《三国第一部：争洛阳》？](ming-cha-qiu-hao.md)（明察秋毫）
+- [浙江湖州市长：全面进入战时状态](xiong-you-cheng-zhu.md)
+- [小米澎程起售价预测](yun-chou-wei-wo.md)
+- [浙江海边掀起10多米巨浪](shen-mou-yuan-lv.md)
+- [如何评价追光动画出品的电影《三国第一部：争洛阳》？](ming-cha-qiu-hao.md)
 
-## 前后篇导航
+## 站内推荐
 
-- 上一篇：[家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](hai-kuo-tian-kong.md)（海阔天空）
-- 下一篇：[150斤男记者在浙江沿海被吹到变形](xiong-you-cheng-zhu.md)（胸有成竹）
+- [暑期防汛科普小知识请查收](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
+- [《潜伏》里的李涯很能干，但是站长为什么更喜欢余则成？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [美巨头辉瑞前总部大楼恐局部坍塌，有两根支撑梁柱发生弯曲，哪些信息值得关注？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [如何评价凡人修仙传182集，慕兰之战第六集？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
-## 热点仓库导航
-
-- [san-xin-er-yi.md](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)（三心二意）
-- [wen-ji-qi-wu.md](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)（闻鸡起舞）
-- [nan-yuan-bei-zhe.md](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)（南辕北辙）
-- [zao-bi-tou-guang.md](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)（凿壁偷光）
-- [gao-zhan-yuan-zhu.md](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)（高瞻远瞩）
-
-## 标签扩展阅读
-
-以下链接按照本页标签从 `url.txt` 模板生成，共 50 条。
+## 相关资讯
 
 <details>
-<summary>查看 50 条标签相关链接</summary>
+<summary>展开更多相关内容</summary>
 
 - [没有人！比我！更懂！重庆！](https://www.abc.com/ustrxwmo.html)
 - [没有人！比我！更懂！重庆！](https://www.abc.com/pwiedczo.html)
@@ -130,8 +89,10 @@ content_fingerprint: "c925376f7d9248ac9540"
 
 </details>
 
-## 来源与延伸阅读
+## 原始来源
 
 - [没有人！比我！更懂！重庆！](https://b23.tv/BV11ENn6EEge)
 
-本文根据公开热点榜单信息整理，仅提供标题、简要摘要、热度与来源索引。事件事实、完整报道及后续变化请以原始来源为准。
+完整信息及后续变化请以原始来源为准。
+
+<!-- content-fingerprint: 23f391d065c73467cf09 -->
