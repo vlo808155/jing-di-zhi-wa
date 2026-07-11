@@ -10,15 +10,15 @@ tags:
 source: "知乎热榜"
 source_url: "https://www.zhihu.com/question/444398458"
 rank: 19
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "de47c04caecbe0edd9ec"
+updated_at: "2026-07-11T20:30:16+08:00"
+content_fingerprint: "4c1beddeb4d9758ea622"
 ---
 
 [热点索引](README.md) / 鬼斧神工 / 如果在野外发现了一只大熊猫，很脏，领回家给他洗个澡，再养几天，犯法吗？
 
 # 如果在野外发现了一只大熊猫，很脏，领回家给他洗个澡，再养几天，犯法吗？
 
-> 来源：知乎热榜 · 榜单排名：第 19 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：知乎热榜 · 榜单排名：第 19 位 · 更新时间：2026-07-11T20:30:16+08:00
 
 ## 事件概览
 
@@ -28,7 +28,7 @@ content_fingerprint: "de47c04caecbe0edd9ec"
 
 - 来源平台：知乎热榜
 - 当前排名：第 19 位
-- 热度：108 万热度
+- 热度：106 万热度
 - 分类：问答
 - 固定索引：鬼斧神工（gui-fu-shen-gong）
 
@@ -47,7 +47,7 @@ content_fingerprint: "de47c04caecbe0edd9ec"
 - [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](jin-shang-tian-hua.md)（锦上添花）
 - [北京9区市民非必要不外出](hua-long-dian-jing.md)（画龙点睛）
 - [巴威将贯穿浙江](miao-bi-sheng-hua.md)（妙笔生花）
-- [专家：美伊短期内复谈无望](sheng-dong-huo-po.md)（生动活泼）
+- [周星驰新片值得影迷“再信一次”吗](sheng-dong-huo-po.md)（生动活泼）
 
 ## 前后篇导航
 

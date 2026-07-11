@@ -10,15 +10,15 @@ tags:
 source: "微博热搜"
 source_url: "https://s.weibo.com/weibo?q=%E5%B7%B4%E5%A8%81%E5%B0%86%E8%B4%AF%E7%A9%BF%E6%B5%99%E6%B1%9F"
 rank: 20
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "2ff12dd862a79df8292b"
+updated_at: "2026-07-11T20:30:16+08:00"
+content_fingerprint: "911476c8771a349a6df1"
 ---
 
 [热点索引](README.md) / 妙笔生花 / 巴威将贯穿浙江
 
 # 巴威将贯穿浙江
 
-> 来源：微博热搜 · 榜单排名：第 20 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：微博热搜 · 榜单排名：第 20 位 · 更新时间：2026-07-11T20:30:16+08:00
 
 ## 事件概览
 
@@ -28,7 +28,7 @@ content_fingerprint: "2ff12dd862a79df8292b"
 
 - 来源平台：微博热搜
 - 当前排名：第 20 位
-- 热度：546911
+- 热度：589726
 - 分类：民生新闻
 - 固定索引：妙笔生花（miao-bi-sheng-hua）
 
@@ -44,7 +44,7 @@ content_fingerprint: "2ff12dd862a79df8292b"
 
 ## 相关热点
 
-- [专家：美伊短期内复谈无望](sheng-dong-huo-po.md)（生动活泼）
+- [周星驰新片值得影迷“再信一次”吗](sheng-dong-huo-po.md)（生动活泼）
 - [德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？](xu-xu-ru-sheng.md)（栩栩如生）
 - [❤️我们这么可爱真是抱歉！](huo-ling-huo-xian.md)（活灵活现）
 - [电科院实控人套现715万入籍加拿大](you-sheng-you-se.md)（有声有色）
@@ -52,7 +52,7 @@ content_fingerprint: "2ff12dd862a79df8292b"
 ## 前后篇导航
 
 - 上一篇：[北京9区市民非必要不外出](hua-long-dian-jing.md)（画龙点睛）
-- 下一篇：[专家：美伊短期内复谈无望](sheng-dong-huo-po.md)（生动活泼）
+- 下一篇：[周星驰新片值得影迷“再信一次”吗](sheng-dong-huo-po.md)（生动活泼）
 
 ## 热点仓库导航
 

@@ -10,15 +10,15 @@ tags:
 source: "哔哩哔哩热门"
 source_url: "https://b23.tv/BV14LME6WEQn"
 rank: 17
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "6ed9a0f3123bef6e9dad"
+updated_at: "2026-07-11T20:30:16+08:00"
+content_fingerprint: "63b7c695d4d1d8b34e3b"
 ---
 
 [热点索引](README.md) / 高瞻远瞩 / 【全球首发】《全面战争：战锤40000》 | 游戏实机演示视频
 
 # 【全球首发】《全面战争：战锤40000》 | 游戏实机演示视频
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 17 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：哔哩哔哩热门 · 榜单排名：第 17 位 · 更新时间：2026-07-11T20:30:16+08:00
 
 ## 事件概览
 
@@ -28,7 +28,7 @@ content_fingerprint: "6ed9a0f3123bef6e9dad"
 
 - 来源平台：哔哩哔哩热门
 - 当前排名：第 17 位
-- 热度：381148
+- 热度：382534
 - 分类：单机游戏
 - 固定索引：高瞻远瞩（gao-zhan-yuan-zhu）
 
@@ -45,7 +45,7 @@ content_fingerprint: "6ed9a0f3123bef6e9dad"
 ## 相关热点
 
 - [最新研判！台风巴威登陆时间或提前](xiong-you-cheng-zhu.md)（胸有成竹）
-- [日媒拆台日本火箭只飞了11米](yun-chou-wei-wo.md)（运筹帷幄）
+- [纽约前辉瑞大楼承重柱弯曲如面条](yun-chou-wei-wo.md)（运筹帷幄）
 - [“26版西游记”团队回应爆火出圈](shen-mou-yuan-lv.md)（深谋远虑）
 - [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](ming-cha-qiu-hao.md)（明察秋毫）
 

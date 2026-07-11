@@ -10,15 +10,15 @@ tags:
 source: "哔哩哔哩热门"
 source_url: "https://b23.tv/BV12jNn6SEG9"
 rank: 20
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "569b61d040fda496fda8"
+updated_at: "2026-07-11T20:30:16+08:00"
+content_fingerprint: "539faf6b8d6ffe304fc1"
 ---
 
 [热点索引](README.md) / 活灵活现 / ❤️我们这么可爱真是抱歉！
 
 # ❤️我们这么可爱真是抱歉！
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 20 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：哔哩哔哩热门 · 榜单排名：第 20 位 · 更新时间：2026-07-11T20:30:16+08:00
 
 ## 事件概览
 
@@ -45,7 +45,7 @@ content_fingerprint: "569b61d040fda496fda8"
 ## 相关热点
 
 - [电科院实控人套现715万入籍加拿大](you-sheng-you-se.md)（有声有色）
-- [周星驰新片值得影迷“再信一次”吗](yin-ren-ru-sheng.md)（引人入胜）
+- [谁在把台湾推向火线](yin-ren-ru-sheng.md)（引人入胜）
 - [河南多地路面突破72℃](jing-di-zhi-wa.md)（井底之蛙）
 - [王曼昱申请不参加全锦赛双打，因伤病恢复和状态调整，怎样看待这一决定？](hai-kuo-tian-kong.md)（海阔天空）
 

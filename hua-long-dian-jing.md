@@ -9,15 +9,15 @@ tags:
 source: "百度热搜"
 source_url: "https://www.baidu.com/s?wd=%E5%8C%97%E4%BA%AC9%E5%8C%BA%E5%B8%82%E6%B0%91%E9%9D%9E%E5%BF%85%E8%A6%81%E4%B8%8D%E5%A4%96%E5%87%BA&sa=fyb_news&rsv_dl=fyb_news"
 rank: 19
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "207cdbeb8bed174c314c"
+updated_at: "2026-07-11T20:30:16+08:00"
+content_fingerprint: "f8e4cebb87a9d46aaa6b"
 ---
 
 [热点索引](README.md) / 画龙点睛 / 北京9区市民非必要不外出
 
 # 北京9区市民非必要不外出
 
-> 来源：百度热搜 · 榜单排名：第 19 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：百度热搜 · 榜单排名：第 19 位 · 更新时间：2026-07-11T20:30:16+08:00
 
 ## 事件概览
 
@@ -27,7 +27,7 @@ content_fingerprint: "207cdbeb8bed174c314c"
 
 - 来源平台：百度热搜
 - 当前排名：第 19 位
-- 热度：6002863
+- 热度：5992408
 - 固定索引：画龙点睛（hua-long-dian-jing）
 
 ## 阅读关注点
@@ -43,7 +43,7 @@ content_fingerprint: "207cdbeb8bed174c314c"
 ## 相关热点
 
 - [巴威将贯穿浙江](miao-bi-sheng-hua.md)（妙笔生花）
-- [专家：美伊短期内复谈无望](sheng-dong-huo-po.md)（生动活泼）
+- [周星驰新片值得影迷“再信一次”吗](sheng-dong-huo-po.md)（生动活泼）
 - [德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？](xu-xu-ru-sheng.md)（栩栩如生）
 - [❤️我们这么可爱真是抱歉！](huo-ling-huo-xian.md)（活灵活现）
 

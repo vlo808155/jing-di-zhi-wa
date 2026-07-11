@@ -9,15 +9,15 @@ tags:
 source: "百度热搜"
 source_url: "https://www.baidu.com/s?wd=%E9%A3%8E%E7%81%BE%E6%AD%A3%E5%9C%A8%E5%87%BB%E7%A9%BF%E2%80%9C%E8%90%BD%E5%9C%B0%E7%AA%97%E5%B4%87%E6%8B%9C%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news"
 rank: 18
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "ed329c64cdf2d138e94d"
+updated_at: "2026-07-11T20:30:16+08:00"
+content_fingerprint: "f21123c21e4a37b47ad1"
 ---
 
 [热点索引](README.md) / 独具慧眼 / 风灾正在击穿“落地窗崇拜”
 
 # 风灾正在击穿“落地窗崇拜”
 
-> 来源：百度热搜 · 榜单排名：第 18 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：百度热搜 · 榜单排名：第 18 位 · 更新时间：2026-07-11T20:30:16+08:00
 
 ## 事件概览
 
@@ -27,7 +27,7 @@ content_fingerprint: "ed329c64cdf2d138e94d"
 
 - 来源平台：百度热搜
 - 当前排名：第 18 位
-- 热度：6091200
+- 热度：6091230
 - 固定索引：独具慧眼（du-ju-hui-yan）
 
 ## 阅读关注点
@@ -42,7 +42,7 @@ content_fingerprint: "ed329c64cdf2d138e94d"
 
 ## 相关热点
 
-- [纽约前辉瑞大楼承重柱弯曲如面条](bie-ju-jiang-xin.md)（别具匠心）
+- [侯明昊新剧半裸镜头](bie-ju-jiang-xin.md)（别具匠心）
 - [浙江海边掀起10多米巨浪](qiao-duo-tian-gong.md)（巧夺天工）
 - [如果在野外发现了一只大熊猫，很脏，领回家给他洗个澡，再养几天，犯法吗？](gui-fu-shen-gong.md)（鬼斧神工）
 - [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](jin-shang-tian-hua.md)（锦上添花）
@@ -50,7 +50,7 @@ content_fingerprint: "ed329c64cdf2d138e94d"
 ## 前后篇导航
 
 - 上一篇：[黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](jian-wei-zhi-zhu.md)（见微知著）
-- 下一篇：[纽约前辉瑞大楼承重柱弯曲如面条](bie-ju-jiang-xin.md)（别具匠心）
+- 下一篇：[侯明昊新剧半裸镜头](bie-ju-jiang-xin.md)（别具匠心）
 
 ## 热点仓库导航
 
