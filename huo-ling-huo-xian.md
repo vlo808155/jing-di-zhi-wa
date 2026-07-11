@@ -10,15 +10,15 @@ tags:
 source: "哔哩哔哩热门"
 source_url: "https://b23.tv/BV1RANn6bEAW"
 rank: 20
-updated_at: "2026-07-11T20:44:51+08:00"
-content_fingerprint: "ad51e1df55427d0e2c31"
+updated_at: "2026-07-11T20:50:44+08:00"
+content_fingerprint: "3cbdd5c36127d1ed4fd0"
 ---
 
 [热点索引](README.md) / 活灵活现 / 【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】
 
 # 【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 20 位 · 更新时间：2026-07-11T20:44:51+08:00
+> 来源：哔哩哔哩热门 · 榜单排名：第 20 位 · 更新时间：2026-07-11T20:50:44+08:00
 
 ## 事件概览
 
@@ -26,7 +26,7 @@ content_fingerprint: "ad51e1df55427d0e2c31"
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】”位列第 20 位，公开热度指标为 2506578，榜单分类为“影视剪辑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】”位列第 20 位，公开热度指标为 2514750，榜单分类为“影视剪辑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：每天，都有成千上万吨垃圾被送进焚烧厂。 但很少有人知道，有些东西从来不是垃圾。 夜班操作员负责驾驶机械爪，把人类丢弃的一切送往终点。直到某个夜晚，他发现垃圾堆里开始出现一些不该存在的东西，它们来自哪里，为什么会出现在这里，又为什么偏偏选择混入垃圾？ 每一车垃圾，都可能藏着一个来自另一个世界的故事
 
@@ -36,7 +36,7 @@ content_fingerprint: "ad51e1df55427d0e2c31"
 
 - 来源平台：哔哩哔哩热门
 - 当前排名：第 20 位
-- 热度：2506578
+- 热度：2514750
 - 分类：影视剪辑
 - 固定索引：活灵活现（huo-ling-huo-xian）
 
@@ -53,8 +53,8 @@ content_fingerprint: "ad51e1df55427d0e2c31"
 ## 相关热点
 
 - [150斤男记者在浙江沿海被吹到变形](you-sheng-you-se.md)（有声有色）
-- [TF四代考核人气分](yin-ren-ru-sheng.md)（引人入胜）
-- [小米澎程起售价预测](jing-di-zhi-wa.md)（井底之蛙）
+- [Jennie神图诞生了](yin-ren-ru-sheng.md)（引人入胜）
+- [日媒拆台日本火箭只飞了11米](jing-di-zhi-wa.md)（井底之蛙）
 - [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](hai-kuo-tian-kong.md)（海阔天空）
 
 ## 前后篇导航
@@ -77,56 +77,56 @@ content_fingerprint: "ad51e1df55427d0e2c31"
 <details>
 <summary>查看 50 条标签相关链接</summary>
 
-- [哔哩哔哩热门延伸阅读 1](https://www.abc.com/3786485.html)
-- [实时热搜延伸阅读 2](https://www.abc.com/6713289.html)
-- [热点资讯延伸阅读 3](https://www.abc.com/7679928.html)
-- [影视剪辑延伸阅读 4](https://www.abc.com/rcddkkas.html)
-- [哔哩哔哩热门延伸阅读 5](https://www.abc.com/nabgwieh.html)
-- [实时热搜延伸阅读 6](https://www.abc.com/pvzaauei.html)
-- [热点资讯延伸阅读 7](https://www.abc.com/7800336.html)
-- [影视剪辑延伸阅读 8](https://www.abc.com/jhiuzkkt.html)
-- [哔哩哔哩热门延伸阅读 9](https://www.abc.com/kqgwcdjz.html)
-- [实时热搜延伸阅读 10](https://www.abc.com/4398989.html)
-- [热点资讯延伸阅读 11](https://www.abc.com/1388615.html)
-- [影视剪辑延伸阅读 12](https://www.abc.com/gbwgrxle.html)
-- [哔哩哔哩热门延伸阅读 13](https://www.abc.com/7651916.html)
-- [实时热搜延伸阅读 14](https://www.abc.com/qigglmiq.html)
-- [热点资讯延伸阅读 15](https://www.abc.com/9829919.html)
-- [影视剪辑延伸阅读 16](https://www.abc.com/oueevgvr.html)
-- [哔哩哔哩热门延伸阅读 17](https://www.abc.com/5495779.html)
-- [实时热搜延伸阅读 18](https://www.abc.com/aworkzsx.html)
-- [热点资讯延伸阅读 19](https://www.abc.com/4244819.html)
-- [影视剪辑延伸阅读 20](https://www.abc.com/0811876.html)
-- [哔哩哔哩热门延伸阅读 21](https://www.abc.com/8553677.html)
-- [实时热搜延伸阅读 22](https://www.abc.com/zwhralui.html)
-- [热点资讯延伸阅读 23](https://www.abc.com/0598737.html)
-- [影视剪辑延伸阅读 24](https://www.abc.com/9248629.html)
-- [哔哩哔哩热门延伸阅读 25](https://www.abc.com/8309044.html)
-- [实时热搜延伸阅读 26](https://www.abc.com/3433668.html)
-- [热点资讯延伸阅读 27](https://www.abc.com/0792647.html)
-- [影视剪辑延伸阅读 28](https://www.abc.com/idjswcle.html)
-- [哔哩哔哩热门延伸阅读 29](https://www.abc.com/zxbcivvy.html)
-- [实时热搜延伸阅读 30](https://www.abc.com/jkravzoq.html)
-- [热点资讯延伸阅读 31](https://www.abc.com/1342818.html)
-- [影视剪辑延伸阅读 32](https://www.abc.com/7073223.html)
-- [哔哩哔哩热门延伸阅读 33](https://www.abc.com/5668448.html)
-- [实时热搜延伸阅读 34](https://www.abc.com/qrhlvstb.html)
-- [热点资讯延伸阅读 35](https://www.abc.com/7276573.html)
-- [影视剪辑延伸阅读 36](https://www.abc.com/mamqzlfb.html)
-- [哔哩哔哩热门延伸阅读 37](https://www.abc.com/vlrpaiuv.html)
-- [实时热搜延伸阅读 38](https://www.abc.com/1323405.html)
-- [热点资讯延伸阅读 39](https://www.abc.com/yckqdfcx.html)
-- [影视剪辑延伸阅读 40](https://www.abc.com/kxmntjmy.html)
-- [哔哩哔哩热门延伸阅读 41](https://www.abc.com/sbchlqqp.html)
-- [实时热搜延伸阅读 42](https://www.abc.com/utyfpcsz.html)
-- [热点资讯延伸阅读 43](https://www.abc.com/uznafkpi.html)
-- [影视剪辑延伸阅读 44](https://www.abc.com/hnzquvcw.html)
-- [哔哩哔哩热门延伸阅读 45](https://www.abc.com/3766678.html)
-- [实时热搜延伸阅读 46](https://www.abc.com/2843159.html)
-- [热点资讯延伸阅读 47](https://www.abc.com/vutzdtzd.html)
-- [影视剪辑延伸阅读 48](https://www.abc.com/0199640.html)
-- [哔哩哔哩热门延伸阅读 49](https://www.abc.com/ooqegpbh.html)
-- [实时热搜延伸阅读 50](https://www.abc.com/6103703.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/3786485.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/6713289.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/7679928.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/rcddkkas.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/nabgwieh.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/pvzaauei.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/7800336.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/jhiuzkkt.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/kqgwcdjz.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/4398989.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/1388615.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/gbwgrxle.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/7651916.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/qigglmiq.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/9829919.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/oueevgvr.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/5495779.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/aworkzsx.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/4244819.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/0811876.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/8553677.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/zwhralui.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/0598737.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/9248629.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/8309044.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/3433668.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/0792647.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/idjswcle.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/zxbcivvy.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/jkravzoq.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/1342818.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/7073223.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/5668448.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/qrhlvstb.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/7276573.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/mamqzlfb.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/vlrpaiuv.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/1323405.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/yckqdfcx.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/kxmntjmy.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/sbchlqqp.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/utyfpcsz.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/uznafkpi.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/hnzquvcw.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/3766678.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/2843159.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/vutzdtzd.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/0199640.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/ooqegpbh.html)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/6103703.html)
 
 </details>
 

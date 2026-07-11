@@ -9,15 +9,15 @@ tags:
 source: "百度热搜"
 source_url: "https://www.baidu.com/s?wd=%E9%9B%B7%E5%86%9B%E8%AE%A9%E5%8D%96%E8%BD%A6%E7%9A%84%E5%92%8C%E5%8D%96%E6%88%BF%E7%9A%84%E9%83%BD%E6%B2%89%E9%BB%98%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news"
 rank: 17
-updated_at: "2026-07-11T20:44:51+08:00"
-content_fingerprint: "63baa961d6b51737c870"
+updated_at: "2026-07-11T20:50:44+08:00"
+content_fingerprint: "4dc78f9a51b320191ece"
 ---
 
 [热点索引](README.md) / 胸有成竹 / 雷军让卖车的和卖房的都沉默了
 
 # 雷军让卖车的和卖房的都沉默了
 
-> 来源：百度热搜 · 榜单排名：第 17 位 · 更新时间：2026-07-11T20:44:51+08:00
+> 来源：百度热搜 · 榜单排名：第 17 位 · 更新时间：2026-07-11T20:50:44+08:00
 
 ## 事件概览
 
@@ -25,7 +25,7 @@ content_fingerprint: "63baa961d6b51737c870"
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“雷军让卖车的和卖房的都沉默了”位列第 17 位，公开热度指标为 6184377。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“雷军让卖车的和卖房的都沉默了”位列第 17 位，公开热度指标为 6176829。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：7月10日，雷军官宣小米全新SUV系列“澎程”，车内布局的“户型图”让卖车的和卖房的都沉默了！网友：第一次在车上看到户型图。
 
@@ -35,7 +35,7 @@ content_fingerprint: "63baa961d6b51737c870"
 
 - 来源平台：百度热搜
 - 当前排名：第 17 位
-- 热度：6184377
+- 热度：6176829
 - 固定索引：胸有成竹（xiong-you-cheng-zhu）
 
 ## 阅读关注点
@@ -50,15 +50,15 @@ content_fingerprint: "63baa961d6b51737c870"
 
 ## 相关热点
 
-- [日媒拆台日本火箭只飞了11米](yun-chou-wei-wo.md)（运筹帷幄）
-- [印度男子求娶不成摔死女方孩子获死刑](shen-mou-yuan-lv.md)（深谋远虑）
+- [小米澎程起售价预测](yun-chou-wei-wo.md)（运筹帷幄）
+- [浙江海边掀起10多米巨浪](shen-mou-yuan-lv.md)（深谋远虑）
 - [如何评价追光动画出品的电影《三国第一部：争洛阳》？](ming-cha-qiu-hao.md)（明察秋毫）
 - [【全球首发】《全面战争：战锤40000》 | 游戏实机演示视频](jian-wei-zhi-zhu.md)（见微知著）
 
 ## 前后篇导航
 
 - 上一篇：[没有人！比我！更懂！重庆！](gao-zhan-yuan-zhu.md)（高瞻远瞩）
-- 下一篇：[日媒拆台日本火箭只飞了11米](yun-chou-wei-wo.md)（运筹帷幄）
+- 下一篇：[小米澎程起售价预测](yun-chou-wei-wo.md)（运筹帷幄）
 
 ## 热点仓库导航
 
@@ -75,56 +75,56 @@ content_fingerprint: "63baa961d6b51737c870"
 <details>
 <summary>查看 50 条标签相关链接</summary>
 
-- [百度热搜延伸阅读 1](https://www.abc.com/oajryccu.html)
-- [实时热搜延伸阅读 2](https://www.abc.com/zrjjcmba.html)
-- [热点资讯延伸阅读 3](https://www.abc.com/9497805.html)
-- [百度热搜延伸阅读 4](https://www.abc.com/1358255.html)
-- [实时热搜延伸阅读 5](https://www.abc.com/eyzpwotz.html)
-- [热点资讯延伸阅读 6](https://www.abc.com/bqerjmdr.html)
-- [百度热搜延伸阅读 7](https://www.abc.com/8343204.html)
-- [实时热搜延伸阅读 8](https://www.abc.com/0341683.html)
-- [热点资讯延伸阅读 9](https://www.abc.com/5528549.html)
-- [百度热搜延伸阅读 10](https://www.abc.com/hknbtqyv.html)
-- [实时热搜延伸阅读 11](https://www.abc.com/5692159.html)
-- [热点资讯延伸阅读 12](https://www.abc.com/7445438.html)
-- [百度热搜延伸阅读 13](https://www.abc.com/gynzygva.html)
-- [实时热搜延伸阅读 14](https://www.abc.com/ntngiecs.html)
-- [热点资讯延伸阅读 15](https://www.abc.com/gfpgapuo.html)
-- [百度热搜延伸阅读 16](https://www.abc.com/kjtynpok.html)
-- [实时热搜延伸阅读 17](https://www.abc.com/3825546.html)
-- [热点资讯延伸阅读 18](https://www.abc.com/mmybeydd.html)
-- [百度热搜延伸阅读 19](https://www.abc.com/iqpietyn.html)
-- [实时热搜延伸阅读 20](https://www.abc.com/6024763.html)
-- [热点资讯延伸阅读 21](https://www.abc.com/4668608.html)
-- [百度热搜延伸阅读 22](https://www.abc.com/7133799.html)
-- [实时热搜延伸阅读 23](https://www.abc.com/rlebupnz.html)
-- [热点资讯延伸阅读 24](https://www.abc.com/3945867.html)
-- [百度热搜延伸阅读 25](https://www.abc.com/bzrennyv.html)
-- [实时热搜延伸阅读 26](https://www.abc.com/1401039.html)
-- [热点资讯延伸阅读 27](https://www.abc.com/1408570.html)
-- [百度热搜延伸阅读 28](https://www.abc.com/cjyangki.html)
-- [实时热搜延伸阅读 29](https://www.abc.com/8342507.html)
-- [热点资讯延伸阅读 30](https://www.abc.com/groigogg.html)
-- [百度热搜延伸阅读 31](https://www.abc.com/6251499.html)
-- [实时热搜延伸阅读 32](https://www.abc.com/0328642.html)
-- [热点资讯延伸阅读 33](https://www.abc.com/7303427.html)
-- [百度热搜延伸阅读 34](https://www.abc.com/3576653.html)
-- [实时热搜延伸阅读 35](https://www.abc.com/ugubuiop.html)
-- [热点资讯延伸阅读 36](https://www.abc.com/lfktviez.html)
-- [百度热搜延伸阅读 37](https://www.abc.com/sdbemlcq.html)
-- [实时热搜延伸阅读 38](https://www.abc.com/8356635.html)
-- [热点资讯延伸阅读 39](https://www.abc.com/uzloelrr.html)
-- [百度热搜延伸阅读 40](https://www.abc.com/3679272.html)
-- [实时热搜延伸阅读 41](https://www.abc.com/5786771.html)
-- [热点资讯延伸阅读 42](https://www.abc.com/fqvqggcz.html)
-- [百度热搜延伸阅读 43](https://www.abc.com/4295914.html)
-- [实时热搜延伸阅读 44](https://www.abc.com/6871663.html)
-- [热点资讯延伸阅读 45](https://www.abc.com/zhdviclx.html)
-- [百度热搜延伸阅读 46](https://www.abc.com/5591950.html)
-- [实时热搜延伸阅读 47](https://www.abc.com/hforeyvd.html)
-- [热点资讯延伸阅读 48](https://www.abc.com/oviehvbw.html)
-- [百度热搜延伸阅读 49](https://www.abc.com/7881517.html)
-- [实时热搜延伸阅读 50](https://www.abc.com/4613978.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/oajryccu.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/zrjjcmba.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/9497805.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/1358255.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/eyzpwotz.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/bqerjmdr.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/8343204.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/0341683.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/5528549.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/hknbtqyv.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/5692159.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/7445438.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/gynzygva.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/ntngiecs.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/gfpgapuo.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/kjtynpok.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/3825546.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/mmybeydd.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/iqpietyn.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/6024763.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/4668608.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/7133799.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/rlebupnz.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/3945867.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/bzrennyv.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/1401039.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/1408570.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/cjyangki.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/8342507.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/groigogg.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/6251499.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/0328642.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/7303427.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/3576653.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/ugubuiop.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/lfktviez.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/sdbemlcq.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/8356635.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/uzloelrr.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/3679272.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/5786771.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/fqvqggcz.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/4295914.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/6871663.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/zhdviclx.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/5591950.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/hforeyvd.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/oviehvbw.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/7881517.html)
+- [雷军让卖车的和卖房的都沉默了](https://www.abc.com/4613978.html)
 
 </details>
 
