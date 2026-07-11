@@ -1,41 +1,41 @@
 ---
-title: "功夫女足票房已破2亿"
-description: "“功夫女足票房已破2亿”目前位于微博热搜热门榜单第 18 位。榜单数据会随平台热度变化持续更新，事件详情与后续进展请以来源页面为准。"
-keywords: "微博热搜, 实时热搜, 热点资讯, 电影, 深谋远虑, shen-mou-yuan-lv"
+title: "周星驰新片值得影迷“再信一次”吗"
+description: "“周星驰新片值得影迷“再信一次”吗”目前位于今日头条热榜热门榜单第 18 位。榜单数据会随平台热度变化持续更新，事件详情与后续进展请以来源页面为准。"
+keywords: "今日头条热榜, 实时热搜, 热点资讯, 热门事件, 深谋远虑, shen-mou-yuan-lv"
 tags:
-  - "微博热搜"
+  - "今日头条热榜"
   - "实时热搜"
   - "热点资讯"
-  - "电影"
-source: "微博热搜"
-source_url: "https://s.weibo.com/weibo?q=%E5%8A%9F%E5%A4%AB%E5%A5%B3%E8%B6%B3%E7%A5%A8%E6%88%BF%E5%B7%B2%E7%A0%B42%E4%BA%BF"
+  - "热门事件"
+source: "今日头条热榜"
+source_url: "https://www.toutiao.com/trending/7659935325263446070/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%228%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227659935325263446070%22%2C%22hot_board_impr_id%22%3A%2220260711201803843D4F6ED6DE3D0341E6%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n"
 rank: 18
-updated_at: "2026-07-11T20:11:07+08:00"
-content_fingerprint: "a20751088b04f03547ea"
+updated_at: "2026-07-11T20:18:04+08:00"
+content_fingerprint: "66defe1c288f6b890239"
 ---
 
-# 功夫女足票房已破2亿
+# 周星驰新片值得影迷“再信一次”吗
 
-> 来源：微博热搜 · 榜单排名：第 18 位 · 更新时间：2026-07-11T20:11:07+08:00
+> 来源：今日头条热榜 · 榜单排名：第 18 位 · 更新时间：2026-07-11T20:18:04+08:00
 
 ## 热点正文
 
-“功夫女足票房已破2亿”目前位于微博热搜热门榜单第 18 位。榜单数据会随平台热度变化持续更新，事件详情与后续进展请以来源页面为准。
+“周星驰新片值得影迷“再信一次”吗”目前位于今日头条热榜热门榜单第 18 位。榜单数据会随平台热度变化持续更新，事件详情与后续进展请以来源页面为准。
 
 ## 热点信息
 
-- 来源平台：微博热搜
+- 来源平台：今日头条热榜
 - 当前排名：第 18 位
-- 热度：383870
-- 分类：电影
+- 热度：16512100
+- 分类：热门事件
 - 固定索引：深谋远虑（shen-mou-yuan-lv）
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `电影`
+`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
 
 ## 来源与延伸阅读
 
-- [功夫女足票房已破2亿](https://s.weibo.com/weibo?q=%E5%8A%9F%E5%A4%AB%E5%A5%B3%E8%B6%B3%E7%A5%A8%E6%88%BF%E5%B7%B2%E7%A0%B42%E4%BA%BF)
+- [周星驰新片值得影迷“再信一次”吗](https://www.toutiao.com/trending/7659935325263446070/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%228%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227659935325263446070%22%2C%22hot_board_impr_id%22%3A%2220260711201803843D4F6ED6DE3D0341E6%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 本文根据公开热点榜单信息整理，仅提供标题、简要摘要、热度与来源索引。事件事实、完整报道及后续变化请以原始来源为准。
