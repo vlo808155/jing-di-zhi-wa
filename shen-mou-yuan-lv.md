@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 5000 元以下笔记本基本绝迹，购机门槛升至万元以上，为啥涨价幅度这么大？对行业和消费者有哪些影响？
+# 国际足联主席因凡蒂诺称世界杯考虑继续扩军至64支球队，如何看待他的这个表态？
 
-> 来源：知乎热榜 · 排名：第 18 位 · 热度：263 万热度 · 分类：问答 · 更新：2026-07-12T19:42:23+08:00
+> 来源：知乎热榜 · 排名：第 18 位 · 热度：198 万热度 · 分类：问答 · 更新：2026-07-12T22:44:44+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“5000 元以下笔记本基本绝迹，购机门槛升至万元以上，为啥涨价幅度这么大？对行业和消费者有哪些影响？”位列第 18 位，公开热度指标为 263 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“国际足联主席因凡蒂诺称世界杯考虑继续扩军至64支球队，如何看待他的这个表态？”位列第 18 位，公开热度指标为 198 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近期国内游戏本市场迎来大幅涨价潮，多款主流机型价格持续走高，部分热门型号半年涨幅高达数千元，甚至出现“一天一价”的行情。刚刚结束高考的小葵就十分苦恼——自己关注已久的某款笔记本电脑，前一天标价9300元，次日就涨到了11000元。 7月7日，多家门店店员透露，随着笔记本电脑开启新一轮大幅涨价，部分机型尤其是游戏本，单款涨幅可达上千元。成都一家笔记本电脑门店工作人员介绍，上个月店内多款游戏本单次涨价超千元，原本售价12000元左右的热门机型，如今价格直接上调至18000元，即便是主打性价比的入门级机型，价格也普遍上涨了2000元左右。 目前电脑市场价格梯队
+来源公开摘要显示：世界杯考虑继续扩军至64支球队，国际足联主席因凡蒂诺：每个国家都应该拥有参加世界杯的梦想；与特朗普保持着定期联系，几乎每天都沟通 北京时间7月12日，国际足联主席因凡蒂诺在接受采访时确认，国际足联将在2026美加墨世界杯结束后， 正式研究讨论世界杯进一步扩军至64支球队的议题。 “是的，（扩军）百分之百正确！48支球队参赛的模式取得了巨大成功。每支球队都踢出了高水平。”谈及美加墨世界杯扩军至48支参赛队的效果，因凡蒂诺直言：“来自各大洲的球队都取得了进球，且至少拿到了1个积分。非洲球队中有9支闯入了淘汰赛。上届世界杯，非洲仅有5支球队参赛。这恰恰证明了吸
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [你比泰森还牛比](ming-cha-qiu-hao.md)
-- [贝林厄姆一秒哄好哈兰德](jian-wei-zhi-zhu.md)
-- [晚晚孕肚好明显](du-ju-hui-yan.md)
-- [如何看待papi酱节目《热烈欢迎》邀请梁靖崑出席？](bie-ju-jiang-xin.md)
+- [“雷霆动物集体蹦迪，汽车光头百万撤离”【天堂的彼端-变速】【顶级智斗の小曲】](ming-cha-qiu-hao.md)
+- [樊振东武磊将解说世界杯决赛](jian-wei-zhi-zhu.md)
+- [村干部苦劝老人转移后房子果然塌了](du-ju-hui-yan.md)
+- [世界杯四强恰好是FIFA世界前四](bie-ju-jiang-xin.md)
 
 ## 站内推荐
 
-- [中华人民共和国外交部郑重声明](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [房间里爱放谷子和手办的天塌了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [功夫女足豆瓣6.6票房却杀疯了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [网传大 S 遗产卡里仅有 200 万台币，这一消息真实性如何？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [“我不在的日子里，你们很嚣张啊”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [中央考核巡查组：您懂得怎么操作吗](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [中方：日本没资格说三道四](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [新能源车平均车龄仅1.8年](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [巴威发威青岛巨浪滔天](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [如何看待 2026 年 7 月 11 日周星驰新电影《功夫女足》预测票房飙升至 18.6 亿人民币？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [邹市明夫妇“两亿败局”的商业复盘](http://www.play.hengshemaoyi.cn/kongbu/7686149.htm)
-- [如何看待 7 月 12 日伊朗再次宣布关闭霍尔木兹海峡？这种封锁会成为常态吗？从长期看，要怎么应对？](http://www.movie.hkepx.cn/movie/4579405.htm)
-- [台风巴威对山东发力了](http://www.movie.hkepx.cn/xiju/3169477.htm)
-- [前北京国安外援马努因车祸离世](http://www.movie.hkepx.cn/xiju/8635128.htm)
-- [小鹏X9集体趴窝 疑因高温](http://www.play.hengshemaoyi.cn/kongbu/9338626.htm)
-- [如何看待papi酱节目《热烈欢迎》邀请梁靖崑出席？](http://www.play.hengshemaoyi.cn/kongbu/1542166.htm)
-- [6月全国新增新冠确诊7.9万例](http://www.daogukj.com/0287665)
-- [男子发布涉台风不实信息被行拘](http://www.movie.hkepx.cn/movie/7272745.htm)
-- [台风巴威风力持续减小 最新预测](http://www.play.hengshemaoyi.cn/xiju/6780679.htm)
-- [世界杯半决赛，阿根廷将和英格兰复刻英阿大战，两队历史上有何恩怨，对本场比赛你有什么期待？](http://www.daogukj.com/4477330)
-- [晚晚孕肚好明显](http://www.daogukj.com/0861506)
-- [《明日方舟》集成战略「沉沦者的黑流树海」宣传PV · 玩法介绍](http://www.daogukj.com/9767084)
-- [世界杯1/4决赛，阿根廷加时3-1瑞士进4强，小蜘蛛破门恩博洛假摔染红，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/5257500.htm)
-- [副局长买10亿Token手搓防汛APP](http://www.daogukj.com/gykfwffn/)
-- [【STN快报第8.5季13】在大学打游戏将不再被称为不务正业](http://www.play.hengshemaoyi.cn/xiju/5052420.htm)
-- [台风巴威一小时内先后登陆浙江台州、温州，冲毁300斤石围栏，中心附近最大风力13级，你家那里怎么样？](http://www.daogukj.com/xdtbrdmh/)
-- [贝克汉姆女儿15岁了](http://www.daogukj.com/0346242)
-- [中华人民共和国外交部郑重声明](http://www.movie.hkepx.cn/xiju/3607769.htm)
-- [《我推的孩子》](http://www.play.hengshemaoyi.cn/kongbu/0133104.htm)
-- [台风天这8件事千万别做](http://www.movie.hkepx.cn/xiju/7939480.htm)
-- [今天装饰了一下小卖部，希望你能喜欢](http://www.movie.hkepx.cn/xiju/0345684.htm)
-- [庄达菲刘耀文 妙塘往事](http://www.movie.hkepx.cn/xiju/4105891.htm)
-- [这才是《The Other Side Of Paradise》原版MV！](http://www.movie.hkepx.cn/xiju/7210722.htm)
-- [河南17岁少年买站票到广西救灾](http://www.movie.hkepx.cn/movie/8592737.htm)
-- [孙悟空打死六耳猕猴后变得顺从乖巧，再也没被念紧箍咒，原因是什么？](http://www.play.hengshemaoyi.cn/xiju/5306630.htm)
-- [郑州一排污口被居民当游泳池戏水](http://www.daogukj.com/1659974)
-- [网络热传生物鉴定 第62期](http://www.movie.hkepx.cn/movie/0941539.htm)
-- [你比泰森还牛比](http://www.movie.hkepx.cn/movie/2635515.htm)
-- [房间里爱放谷子和手办的天塌了](http://www.movie.hkepx.cn/xiju/6515808.htm)
-- [哈兰德以5场比赛7个进球告别本届世界杯，这一成绩如何？他给你留下哪些令人印象深刻的瞬间？](http://www.play.hengshemaoyi.cn/xiju/8816869.htm)
-- [冉莹颖称曾多次想离婚，录综艺本想救赎婚姻，录完「不再执着于改造对方」，透露出怎样的婚姻相处智慧？](http://www.daogukj.com/dvtugytg/)
-- [东莞一处透明隔音板致鸟撞频发](http://www.movie.hkepx.cn/xiju/6349162.htm)
-- [多场景防汛避险指南](http://www.daogukj.com/uiagrfmg/)
-- [《无限暖暖》2.8版本套装PV | 白夜长旋舞&心光破晓时](http://www.movie.hkepx.cn/xiju/5108394.htm)
-- [评论员：受够了西班牙队阿根廷队](http://www.play.hengshemaoyi.cn/kongbu/2476719.htm)
-- [盛唐时期大部分唐朝人真的能每天以肉饼为食吗？](http://www.play.hengshemaoyi.cn/kongbu/6062295.htm)
-- [“我不在的日子里，你们很嚣张啊”](http://www.play.hengshemaoyi.cn/xiju/4493695.htm)
-- [哈兰德：我现在已经彻底累垮了](http://www.daogukj.com/tnrfqrke/)
-- [女演员称功夫女足剧组餐标很高](http://www.movie.hkepx.cn/xiju/4346084.htm)
-- [“星女郎”艾米被北电录取](http://www.movie.hkepx.cn/movie/7332141.htm)
-- [如何看待 2026 年 7 月 11 日周星驰新电影《功夫女足》预测票房飙升至 18.6 亿人民币？](http://www.daogukj.com/qwdjcwxs/)
-- [小蜘蛛攻入本届个人首球获全场最佳](http://www.daogukj.com/uqrxqnjs/)
-- [足坛真神TOP：哈兰德！离开世界杯！他就是最凶猛最可爱的超级魔人！](http://www.play.hengshemaoyi.cn/xiju/9086559.htm)
-- [蔡徐坤直播](http://www.play.hengshemaoyi.cn/xiju/0582780.htm)
-- [如何看待瑞士前锋恩博洛偷鸡不成蚀把米，假摔骗黄未遂，VAR回放后反被裁判罚下，离场时抱头痛哭？](http://www.movie.hkepx.cn/xiju/5890662.htm)
-- [汪苏泷原本打算开30分钟后退票](http://www.movie.hkepx.cn/movie/9155162.htm)
-- [菲律宾曾书面承认黄岩岛非其领土](http://www.movie.hkepx.cn/movie/7891312.htm)
-- [黄仁勋称「Prompt 已死，AI 圈正追逐 Loop」，这对 AI 开发及工程师意味着什么？](http://www.play.hengshemaoyi.cn/xiju/9382187.htm)
-- [网传大 S 遗产卡里仅有 200 万台币，这一消息真实性如何？](http://www.play.hengshemaoyi.cn/xiju/1231015.htm)
-- [韩红武汉演唱会宣布取消](http://www.daogukj.com/fpcntxir/)
+- [火鸡面被台风孤立了](http://www.play.hengshemaoyi.cn/kongbu/7686149.htm)
+- [峨眉武术传人谈《功夫女足》](http://www.movie.hkepx.cn/movie/4579405.htm)
+- [哈兰德：我现在已经彻底累垮了](http://www.movie.hkepx.cn/xiju/3169477.htm)
+- [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](http://www.movie.hkepx.cn/xiju/8635128.htm)
+- [网络热传生物鉴定 第62期](http://www.play.hengshemaoyi.cn/kongbu/9338626.htm)
+- [世界杯四强恰好是FIFA世界前四](http://www.play.hengshemaoyi.cn/kongbu/1542166.htm)
+- [《我推的孩子》](http://www.daogukj.com/0287665)
+- [鹿晗范志毅直播](http://www.movie.hkepx.cn/movie/7272745.htm)
+- [巴威接下来携暴雨大暴雨去哪儿](http://www.play.hengshemaoyi.cn/xiju/6780679.htm)
+- [功夫女足](http://www.daogukj.com/4477330)
+- [村干部苦劝老人转移后房子果然塌了](http://www.daogukj.com/0861506)
+- [小蜘蛛攻入本届个人首球获全场最佳](http://www.daogukj.com/9767084)
+- [一图读懂“六张网”之新型电网](http://www.movie.hkepx.cn/movie/5257500.htm)
+- [中式志怪搜打撤游戏《诡影藏锋》首曝PV&实机演示](http://www.daogukj.com/gykfwffn/)
+- [冉莹颖称曾多次想离婚，录综艺本想救赎婚姻，录完「不再执着于改造对方」，透露出怎样的婚姻相处智慧？](http://www.play.hengshemaoyi.cn/xiju/5052420.htm)
+- [外交部用冲之鸟礁反问日本](http://www.daogukj.com/xdtbrdmh/)
+- [假如你生活在十万人的宿舍营](http://www.daogukj.com/0346242)
+- [中央考核巡查组：您懂得怎么操作吗](http://www.movie.hkepx.cn/xiju/3607769.htm)
+- [如何看待中华人民共和国外交部发布关于有关国家炒作「南海仲裁案裁决」出台十年的声明？释放了哪些信号？](http://www.play.hengshemaoyi.cn/kongbu/0133104.htm)
+- [狼 鬼 情 未 了](http://www.movie.hkepx.cn/xiju/7939480.htm)
+- [为什么台风预报的时候来势汹汹，但真登陆了感觉没有那么强烈？](http://www.movie.hkepx.cn/xiju/0345684.htm)
+- [邹市明夫妇“两亿败局”的商业复盘](http://www.movie.hkepx.cn/xiju/4105891.htm)
+- [如何看待 7 月 12 日伊朗再次宣布关闭霍尔木兹海峡？这种封锁会成为常态吗？从长期看，要怎么应对？](http://www.movie.hkepx.cn/xiju/7210722.htm)
+- [全国 6 月新增新冠超 7 万例，病例数呈上升趋势，这意味着什么？普通人需要打加强针吗？](http://www.movie.hkepx.cn/movie/8592737.htm)
+- [为何老外疯狂为中国技术溢价买单](http://www.play.hengshemaoyi.cn/xiju/5306630.htm)
+- [《功夫女足》已打破9项中国影史纪录](http://www.daogukj.com/1659974)
+- [哈兰德在挪威对战英格兰不仅颗粒无收还因犯规导致队友进球被吹，如何评价他本场的表现？](http://www.movie.hkepx.cn/movie/0941539.htm)
+- [“雷霆动物集体蹦迪，汽车光头百万撤离”【天堂的彼端-变速】【顶级智斗の小曲】](http://www.movie.hkepx.cn/movie/2635515.htm)
+- [中方：日本没资格说三道四](http://www.movie.hkepx.cn/xiju/6515808.htm)
+- [俄乌冲突后中国市场对俄罗斯有多重要](http://www.play.hengshemaoyi.cn/xiju/8816869.htm)
+- [台风巴威实时路径](http://www.daogukj.com/dvtugytg/)
+- [台风巴威风力持续减小 最新预测](http://www.movie.hkepx.cn/xiju/6349162.htm)
+- [防汛防台风 各部门这样部署](http://www.daogukj.com/uiagrfmg/)
+- [2026 MSI 总决赛 HLE 3:2 复仇 BLG 夺得冠军，如何评价这场比赛？](http://www.movie.hkepx.cn/xiju/5108394.htm)
+- [Bin被打成了BLG的最大弱点](http://www.play.hengshemaoyi.cn/kongbu/2476719.htm)
+- [男子发布涉台风不实信息被行拘](http://www.play.hengshemaoyi.cn/kongbu/6062295.htm)
+- [如何看待 2026 年 7 月 11 日周星驰新电影《功夫女足》预测票房飙升至 18.6 亿人民币？](http://www.play.hengshemaoyi.cn/xiju/4493695.htm)
+- [今天装饰了一下小卖部，希望你能喜欢](http://www.daogukj.com/tnrfqrke/)
+- [老人制止施暴鼻子被咬掉 伤情披露](http://www.movie.hkepx.cn/xiju/4346084.htm)
+- [一直以为取卡针的作用只有换电话卡](http://www.movie.hkepx.cn/movie/7332141.htm)
+- [长期不换社交头像的人](http://www.daogukj.com/qwdjcwxs/)
+- [河南的最高礼仪给谢霆锋整不会了](http://www.daogukj.com/uqrxqnjs/)
+- [季节说誓约打胎](http://www.play.hengshemaoyi.cn/xiju/9086559.htm)
+- [伊朗导弹打击中东美军目标 画面公布](http://www.play.hengshemaoyi.cn/xiju/0582780.htm)
+- [外交部就日方恶劣言行提出严正交涉](http://www.movie.hkepx.cn/xiju/5890662.htm)
+- [留德华带你第一视角用人民币感受在超市退瓶子](http://www.movie.hkepx.cn/movie/9155162.htm)
+- [太原理工击败清华夺得CUBAL冠军](http://www.movie.hkepx.cn/movie/7891312.htm)
+- [台风把瀑布吹到倒流](http://www.play.hengshemaoyi.cn/xiju/9382187.htm)
+- [巴威发威青岛巨浪滔天](http://www.play.hengshemaoyi.cn/xiju/1231015.htm)
+- [地牢酒馆-18集 《神秘的浮雕》](http://www.daogukj.com/fpcntxir/)
 
 </details>
 
 ## 原始来源
 
-- [5000 元以下笔记本基本绝迹，购机门槛升至万元以上，为啥涨价幅度这么大？对行业和消费者有哪些影响？](https://www.zhihu.com/question/2058111600045678958)
+- [国际足联主席因凡蒂诺称世界杯考虑继续扩军至64支球队，如何看待他的这个表态？](https://www.zhihu.com/question/2059571588832531872)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d1d3c48203b765c3a04f -->
+<!-- content-fingerprint: e3419f81fa94584483c1 -->
