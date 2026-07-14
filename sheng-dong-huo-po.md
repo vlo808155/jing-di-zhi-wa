@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 电脑端微信截图已支持“一键打码”
+# 女子追尾身亡男友副驾睡觉被起诉
 
-> 来源：百度热搜 · 排名：第 20 位 · 热度：5893581 · 更新：2026-07-14T13:58:39+08:00
+> 来源：微博热搜 · 排名：第 20 位 · 热度：232944 · 分类：民生新闻 · 更新：2026-07-14T19:13:19+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“电脑端微信截图已支持“一键打码””位列第 20 位，公开热度指标为 5893581。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“女子追尾身亡男友副驾睡觉被起诉”位列第 20 位，公开热度指标为 232944，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：微信电脑端截图上线一键打码功能，能自动识别头像、姓名、手机号等隐私，也可手动批量框选。截图还支持文字提取翻译、查看鼠标色值、快捷键复制，框选区域可直观显示像素尺寸，功能丰富实用。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `民生新闻`
 
 ## 相关热点
 
-- [留学生在美国上门做饭月入1万美元](xu-xu-ru-sheng.md)
-- [于东来亮相新闻联播](huo-ling-huo-xian.md)
-- [《杀死比尔：血色全传》定档 8 月 7 日上映，时长 4 个半小时，你对这部电影有什么期待？](you-sheng-you-se.md)
-- [ChiliChill乐团×花玲宴宁，《让风告诉你》提瓦特的故事吧！【BML-PLAY! 2026】](yin-ren-ru-sheng.md)
+- [外国游客在重庆体验泡水里打麻将](xu-xu-ru-sheng.md)
+- [《功夫女足》票房破 6 亿评分 6.6，两者为何出现明显分化？网友评分对后续票房影响大吗？](huo-ling-huo-xian.md)
+- [这才是《The Other Side Of Paradise》原版MV！](you-sheng-you-se.md)
+- [醉驾嫌犯躺棺材假死下葬 潜逃被重判](yin-ren-ru-sheng.md)
 
 ## 站内推荐
 
-- [乐事 蓝色薯片](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [北京国贸 CBD 每天中午上百名「转圈人」沿中央公园绕圈，如何看待这种午休方式？你是怎样度过午休的？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [动态视频｜世界上所有的钱，加起来有多少？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [挪威队八强归国 F-35战机伴飞迎接](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [“通报有疑问 再回应就成为义务”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [一个电话解决的事为何逼人走投无路](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [60万亿元“大蛋糕”来了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [德云社阎鹤祥已确诊重度脂肪肝](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [虞书欣 全世界正数第一会穿搭](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [邹市明场馆年卡定价8.8万](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [哈兰德买买买](http://www.play.hengshemaoyi.cn/xiju/2367459.htm)
-- [阿根廷主帅回击请愿逐出阿根廷](http://www.daogukj.com/whykihfw/)
-- [销量暴跌34.7% 日系车为何不吃香了](http://www.daogukj.com/1896871)
-- [“父爱如山，无关智商！”](http://www.movie.hkepx.cn/movie/7726331.htm)
-- [事关收入假期等 未来5年有这些变化](http://www.play.hengshemaoyi.cn/kongbu/7591988.htm)
-- [马兴瑞被双开](http://www.movie.hkepx.cn/movie/9833785.htm)
-- [9 岁出书、清华降分录取，客观评价作家蒋方舟到底是真的天才少女还是在人设炒作？](http://www.movie.hkepx.cn/movie/5639163.htm)
-- [乐事回应薯片中被曝出现蓝色异物](http://www.daogukj.com/2186746)
-- [AI脸 恐怖谷效应](http://www.play.hengshemaoyi.cn/kongbu/2268018.htm)
-- [副局长自购10亿token月费20多](http://www.play.hengshemaoyi.cn/kongbu/6473132.htm)
-- [邹市明冉莹颖，谁该为之前的投资失败乃至当前的婚姻状态付更大的责？](http://www.daogukj.com/1106243)
-- [海南禁售燃油车之后下一个是谁](http://www.play.hengshemaoyi.cn/xiju/5943556.htm)
-- [张雅琪回应中餐厅表现争议](http://www.daogukj.com/9530499)
-- [孩子总把网络烂梗挂嘴边怎么办？【AI全民制作人】](http://www.movie.hkepx.cn/xiju/0808829.htm)
-- [伴娘遭婚闹被抛摔致骨折 9人赔23万](http://www.play.hengshemaoyi.cn/kongbu/8834808.htm)
-- [美国25岁女子涉嫌性侵男童并录像](http://www.movie.hkepx.cn/xiju/0940758.htm)
-- [假如你生活在十万人的宿舍营](http://www.movie.hkepx.cn/movie/9022890.htm)
-- [《最失败の高情商》](http://www.play.hengshemaoyi.cn/kongbu/2216390.htm)
-- [《无限暖暖》2.8版本PV | 黄金尘](http://www.play.hengshemaoyi.cn/xiju/1375823.htm)
-- [易烊千玺 连头发都是爱你的形状](http://www.daogukj.com/goeqgpai/)
-- [机票突现“1”字头 比坐高铁还便宜](http://www.play.hengshemaoyi.cn/kongbu/1757591.htm)
-- [女儿称赵本山彻底退休不会再演小品](http://www.play.hengshemaoyi.cn/kongbu/9879555.htm)
-- [乐事 蓝色薯片](http://www.play.hengshemaoyi.cn/xiju/7503553.htm)
-- [假如你在一个十万人宿舍查寝【AI全民制作人】](http://www.movie.hkepx.cn/xiju/5861166.htm)
-- [2026世界杯半决赛西班牙vs法国，你看好哪支球队？](http://www.play.hengshemaoyi.cn/xiju/5549607.htm)
-- [被高铁“逼退”的大巴车换了个活法](http://www.play.hengshemaoyi.cn/kongbu/6769731.htm)
-- [男子淤泥中挖出装有十几万的保险柜](http://www.play.hengshemaoyi.cn/xiju/8003531.htm)
-- [今年的台风「巴威」对你那边有啥影响？](http://www.movie.hkepx.cn/xiju/9172364.htm)
-- [意念杀人：一场真实发生过的超能力大战](http://www.movie.hkepx.cn/movie/6262590.htm)
-- [天庭裁员，杨戬哮天下凡再就业？](http://www.play.hengshemaoyi.cn/kongbu/5906748.htm)
-- [女子怀二胎工资从7000降到4500](http://www.daogukj.com/goynbzba/)
-- [A股失守3900](http://www.daogukj.com/oqkhnwnb/)
-- [王玉雯嫌弃到翻白眼](http://www.movie.hkepx.cn/xiju/8878997.htm)
-- [【速凌宇宙】第二十二集：航天2.0终章，收尾之战！快反军队来了？？](http://www.daogukj.com/frbhpamg/)
-- [燃油车的世界正在崩塌 电车也不好过](http://www.daogukj.com/8218296)
-- [出门五分钟流汗两小时](http://www.movie.hkepx.cn/xiju/3382411.htm)
-- [《杀死比尔：血色全传》定档 8 月 7 日上映，时长 4 个半小时，你对这部电影有什么期待？](http://www.play.hengshemaoyi.cn/kongbu/3195197.htm)
-- [数码商铺一夜之间被台风撕碎？谣言](http://www.movie.hkepx.cn/xiju/8373508.htm)
-- [北京国贸 CBD 每天中午上百名「转圈人」沿中央公园绕圈，如何看待这种午休方式？你是怎样度过午休的？](http://www.daogukj.com/uamigzyj/)
-- [小米汽车紧急避险](http://www.daogukj.com/uevljbcs/)
-- [今天来广东韶关，挑战在200多年历史的悬崖小屋上住一晚，体验一把野外生存](http://www.play.hengshemaoyi.cn/xiju/4322946.htm)
-- [“通报有疑问 再回应就成为义务”](http://www.movie.hkepx.cn/movie/3471289.htm)
-- [厨师离职被要求交出烹饪配方才结工资，饭店称为了标准化作业，烹饪配方属于个人还是饭店？可以和工资绑定吗？](http://www.movie.hkepx.cn/movie/3873340.htm)
-- [邹市明2亿理财亏损始末](http://www.daogukj.com/0908523)
-- [“烟草虎”韩占武被提起公诉](http://www.daogukj.com/7782066)
-- [ChiliChill乐团×花玲宴宁，《让风告诉你》提瓦特的故事吧！【BML-PLAY! 2026】](http://www.play.hengshemaoyi.cn/kongbu/3377780.htm)
-- [小米回应网传澎程价格推测，称部分推测显著低于成本，推测要讲科学，你认为多少钱可以接受？](http://www.play.hengshemaoyi.cn/xiju/9852587.htm)
-- [我们好久没在一起玩了呢，桑多涅~](http://www.daogukj.com/njwfupeo/)
-- [乐事回应“吃出蓝色薯片”](http://www.play.hengshemaoyi.cn/kongbu/1527267.htm)
-- [特朗普通知国会伊朗战事重新爆发，伊朗称袭击美国海军第五舰队司令部，局势将如何发展？本轮战事会持续多久？](http://www.play.hengshemaoyi.cn/xiju/3775329.htm)
+- [成龙舒淇李冰冰发文悼念施南生](http://www.play.hengshemaoyi.cn/xiju/2367459.htm)
+- [AI生成图片被评摄影一等奖 官方通报](http://www.daogukj.com/whykihfw/)
+- [周星驰回应选角迪丽热巴](http://www.daogukj.com/1896871)
+- [燃油车的世界正在崩塌 电车也不好过](http://www.movie.hkepx.cn/movie/7726331.htm)
+- [如何正确安慰兄弟](http://www.play.hengshemaoyi.cn/kongbu/7591988.htm)
+- [人社部定调：工资向一线岗位倾斜](http://www.movie.hkepx.cn/movie/9833785.htm)
+- [看完别笑 你也过不了第二关](http://www.movie.hkepx.cn/movie/5639163.htm)
+- [疑AI照片拿了摄影比赛一等奖](http://www.daogukj.com/2186746)
+- [伊朗称布什尔市四个地区遭美军袭击](http://www.play.hengshemaoyi.cn/kongbu/2268018.htm)
+- [男子酒驾后“假死”被判处拘役5个月](http://www.play.hengshemaoyi.cn/kongbu/6473132.htm)
+- [《最失败の高情商》](http://www.daogukj.com/1106243)
+- [长沙女干部占车位通报被指有「拉偏架」嫌疑，体育局称还在核实，怎样看待此前通报的措辞？哪些事实待厘清？](http://www.play.hengshemaoyi.cn/xiju/5943556.htm)
+- [俄投3吨重滑翔炸弹 冲击波清晰可见](http://www.daogukj.com/9530499)
+- [北京国贸 CBD 每天中午上百名「转圈人」沿中央公园绕圈，如何看待这种午休方式？你是怎样度过午休的？](http://www.movie.hkepx.cn/xiju/0808829.htm)
+- [中国燃油车只剩最后一根续命稻草](http://www.play.hengshemaoyi.cn/kongbu/8834808.htm)
+- [LV起诉国家知识产权局，因不服国家知识产权局驳回其针对广东服装经营者商标侵权的维权主张，如何看待此事？](http://www.movie.hkepx.cn/xiju/0940758.htm)
+- [法国男子上海出差背了一台空调回国](http://www.movie.hkepx.cn/movie/9022890.htm)
+- [女子取25万现金触发预警 民警核实](http://www.play.hengshemaoyi.cn/kongbu/2216390.htm)
+- [20年疯狂敛财 放射科主任受贿2392万](http://www.play.hengshemaoyi.cn/xiju/1375823.htm)
+- [章若楠跑男化妆师评论区被阴阳白干](http://www.daogukj.com/goeqgpai/)
+- [黄金超混穿越中国](http://www.play.hengshemaoyi.cn/kongbu/1757591.htm)
+- [怎样看待现在全国只要是个饼子夹点儿肉，都把自己叫肉夹馍？](http://www.play.hengshemaoyi.cn/kongbu/9879555.htm)
+- [一个电话解决的事为何逼人走投无路](http://www.play.hengshemaoyi.cn/xiju/7503553.htm)
+- [存100万5.25%利息？四大行紧急提示](http://www.movie.hkepx.cn/xiju/5861166.htm)
+- [有一个勇者前来斩杀魔王](http://www.play.hengshemaoyi.cn/xiju/5549607.htm)
+- [【复制铜镜全系列合集】ai软件生成，剧情虚构，非官方）正片+番外+解说+彩蛋](http://www.play.hengshemaoyi.cn/kongbu/6769731.htm)
+- [动画电影《八仙！》官宣提档至 7 月 18 日全国上映，对此你有何期待？](http://www.play.hengshemaoyi.cn/xiju/8003531.htm)
+- [《迈亚融解》实机首曝](http://www.movie.hkepx.cn/xiju/9172364.htm)
+- [阿根廷半决赛或将变阵](http://www.movie.hkepx.cn/movie/6262590.htm)
+- [多所高校宣布停招学硕](http://www.play.hengshemaoyi.cn/kongbu/5906748.htm)
+- [马兴瑞被双开](http://www.daogukj.com/goynbzba/)
+- [周星驰夸迪丽热巴有天分](http://www.daogukj.com/oqkhnwnb/)
+- [外媒：中国与阿根廷关系愈发紧密](http://www.movie.hkepx.cn/xiju/8878997.htm)
+- [超250万人请愿逐出阿根廷 主帅回击](http://www.daogukj.com/frbhpamg/)
+- [台媒拍的曾沛慈的一天](http://www.daogukj.com/8218296)
+- [杨洋超张凌赫](http://www.movie.hkepx.cn/xiju/3382411.htm)
+- [这才是《The Other Side Of Paradise》原版MV！](http://www.play.hengshemaoyi.cn/kongbu/3195197.htm)
+- [周星驰为什么要在这个时候拍这么一部《功夫女足》？](http://www.movie.hkepx.cn/xiju/8373508.htm)
+- [60万亿元“大蛋糕”来了](http://www.daogukj.com/uamigzyj/)
+- [A股年线失而复得 短期能否止跌](http://www.daogukj.com/uevljbcs/)
+- [请愿逐出阿根廷人数已超500万](http://www.play.hengshemaoyi.cn/xiju/4322946.htm)
+- [邹市明场馆年卡定价8.8万](http://www.movie.hkepx.cn/movie/3471289.htm)
+- [AI生成环卫工照片获摄影比赛一等奖](http://www.movie.hkepx.cn/movie/3873340.htm)
+- [比亚迪4S店承诺补贴成“空头支票”](http://www.daogukj.com/0908523)
+- [为什么国内对哥特风格的接受度不高？](http://www.daogukj.com/7782066)
+- [醉驾嫌犯躺棺材假死下葬 潜逃被重判](http://www.play.hengshemaoyi.cn/kongbu/3377780.htm)
+- [《办席竞赛》](http://www.play.hengshemaoyi.cn/xiju/9852587.htm)
+- [“鄂州龙卷风城区8人遇难”不实](http://www.daogukj.com/njwfupeo/)
+- [沈阳暴雨店铺进水 店主用电瓶车排水](http://www.play.hengshemaoyi.cn/kongbu/1527267.htm)
+- [碳水的快乐必须是土豆焖饭！暑假带娃来看大漠孤烟啦，感受一下天地辽阔，每天两眼一睁就是挖，是他这个爱挖沙星人的快乐星球啦](http://www.play.hengshemaoyi.cn/xiju/3775329.htm)
 
 </details>
 
 ## 原始来源
 
-- [电脑端微信截图已支持“一键打码”](https://www.baidu.com/s?wd=%E7%94%B5%E8%84%91%E7%AB%AF%E5%BE%AE%E4%BF%A1%E6%88%AA%E5%9B%BE%E5%B7%B2%E6%94%AF%E6%8C%81%E2%80%9C%E4%B8%80%E9%94%AE%E6%89%93%E7%A0%81%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
+- [女子追尾身亡男友副驾睡觉被起诉](https://s.weibo.com/weibo?q=%E5%A5%B3%E5%AD%90%E8%BF%BD%E5%B0%BE%E8%BA%AB%E4%BA%A1%E7%94%B7%E5%8F%8B%E5%89%AF%E9%A9%BE%E7%9D%A1%E8%A7%89%E8%A2%AB%E8%B5%B7%E8%AF%89)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 3689a2ea35465ae6cc81 -->
+<!-- content-fingerprint: c3353bac96b1dc7fb084 -->
