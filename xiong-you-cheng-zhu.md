@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 谁来拯救便利店
+# 演员许鹏自曝已返乡卖菜
 
-> 来源：百度热搜 · 排名：第 17 位 · 热度：6181855 · 更新：2026-07-15T20:07:31+08:00
+> 来源：百度热搜 · 排名：第 17 位 · 热度：6184690 · 更新：2026-07-16T00:53:24+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“谁来拯救便利店”位列第 17 位，公开热度指标为 6181855。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“演员许鹏自曝已返乡卖菜”位列第 17 位，公开热度指标为 6184690。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：门店越开越密，客流却持续减少，成为国内便利店行业不得不直面的现实。而这一困境与业态本身关系不大，更多源于外部竞争环境的变化。作为曾经承载即时需求的主力业态，便利店时下已被迫踏上开启一场复杂而剧烈重构的道路，而未来走向尚不明朗。
+来源公开摘要显示：演员许鹏拍戏八年刚当上男主，却因AI冲击短短一个月无戏可拍。他选择返乡，骑三轮车售卖爷爷种植的蔬菜。他坦然看待境遇变化，认为演员只是一份职业，凭双手踏实挣钱从容面对现状。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,18 +18,18 @@
 
 ## 相关热点
 
-- [黑队](yun-chou-wei-wo.md)
-- [官方把房子定位为大宗消费品意味啥](shen-mou-yuan-lv.md)
-- [长鑫科技7月16日开启申购，发行价为8.66元/股，估值超4万亿，对其自身发展和半导体产业意味着什么？](ming-cha-qiu-hao.md)
-- [《迈亚融解》实机首曝](jian-wei-zhi-zhu.md)
+- [张凌赫智性恋天菜具像化](yun-chou-wei-wo.md)
+- [调查显示日本逾五成家庭“过得苦”](shen-mou-yuan-lv.md)
+- [高度发达的地外文明会是什么样子？](ming-cha-qiu-hao.md)
+- [如何正确安慰兄弟](jian-wei-zhi-zhu.md)
 
 ## 站内推荐
 
-- [如果你可以随时缩小，十二星座决定你的专属休息小屋 （上） ASMR](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [20亿票房？！潮汕爆火出圈？电影和现实又有哪些区别？《给阿嬷的情书》取景地巡礼](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [足坛真神TOP：姆巴佩！离开世界杯！如果最高战力，为何不能天下第一！？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [日服堵桥被全图围剿！鲁鲁正义の制裁](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [丈夫私生活混乱 妻子怒要给孩子改姓](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [为什么周星驰的剧本台词风格他自己演就很自然还很搞笑，而换成其他人演不仅不搞笑还巨尴尬?](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [这下真的能住了哈](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [带小猎豹自律的一天](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [烧一桌中式家常菜，款待十年没见的法国老友！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [19岁亚马尔把姆巴佩踢下神坛](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
@@ -37,62 +37,62 @@
 <summary>展开更多相关内容</summary>
 
 - [DeepSeek工资待遇太恐怖了](http://www.play.hengshemaoyi.cn/kongbu/3483820.htm)
-- [吴世勋首支solo曲是中文](http://www.movie.hkepx.cn/xiju/3408565.htm)
-- [茉莉花价从3元/斤暴涨到50元](http://www.play.hengshemaoyi.cn/kongbu/9358766.htm)
-- [2岁女童浴盆溺水 父亲错误倒立控水](http://www.movie.hkepx.cn/movie/6761076.htm)
-- [沈阳一水库放水 市民扎堆捕鱼](http://www.movie.hkepx.cn/movie/4354942.htm)
-- [《红楼梦》刘姥姥扮演者沙玉华去世](http://www.play.hengshemaoyi.cn/kongbu/7691913.htm)
-- [如何看待比亚迪唐电机总成脱落事件客服最新回应，为底盘发生严重磕碰所致？](http://www.daogukj.com/zxhxffqk/)
+- [不建议大家辞职去做自媒体](http://www.movie.hkepx.cn/xiju/3408565.htm)
+- [我宁愿在这个世界里，永远做一个你“尚未到来”的传说](http://www.play.hengshemaoyi.cn/kongbu/9358766.htm)
+- [A股被“猴子”刷屏](http://www.movie.hkepx.cn/movie/6761076.htm)
+- [日本护士涉嫌将排泄物混入输液管被捕](http://www.movie.hkepx.cn/movie/4354942.htm)
+- [功夫女足2](http://www.play.hengshemaoyi.cn/kongbu/7691913.htm)
+- [为什么杨瀚森在 NBA 发展联盟&夏季联赛的发挥，反而比在国家队的发挥好？](http://www.daogukj.com/zxhxffqk/)
 - [存100万解锁5.25%利息系假信息](http://www.play.hengshemaoyi.cn/kongbu/0581403.htm)
-- [沙溢同样是被欺负了，为什么在《极限挑战》观众们叫好，在《跑男》都骂节目组？](http://www.play.hengshemaoyi.cn/xiju/8368894.htm)
-- [医生提醒这4个小时必须睡觉](http://www.movie.hkepx.cn/movie/3724589.htm)
-- [男子168万拍下“乾隆梅瓶”仅值250元](http://www.movie.hkepx.cn/movie/4073082.htm)
-- [官方把房子定位为大宗消费品意味啥](http://www.movie.hkepx.cn/movie/7225991.htm)
-- [足坛真神TOP：姆巴佩！离开世界杯！如果最高战力，为何不能天下第一！？](http://www.movie.hkepx.cn/movie/5475557.htm)
-- [西北大学通报，贾浅浅学术不端行为属实，已被撤销硕士学位、教师资格、副教授职称，如何看待这一结果？](http://www.play.hengshemaoyi.cn/xiju/1901702.htm)
-- [我这视频看完没啥感觉，但是暖暖的！](http://www.daogukj.com/1487547)
-- [猴价大涨 “囤猴”概念股有何风险](http://www.daogukj.com/sqqsfnyh/)
-- ["自古英雄出少年."](http://www.movie.hkepx.cn/movie/3969864.htm)
+- [为什么老一辈人都觉得空调不能长时间吹？](http://www.play.hengshemaoyi.cn/xiju/8368894.htm)
+- [日本女护士输液管中混粪便致人死亡](http://www.movie.hkepx.cn/movie/3724589.htm)
+- [家长月薪3500元请大学生暑假带娃](http://www.movie.hkepx.cn/movie/4073082.htm)
+- [调查显示日本逾五成家庭“过得苦”](http://www.movie.hkepx.cn/movie/7225991.htm)
+- [带小猎豹自律的一天](http://www.movie.hkepx.cn/movie/5475557.htm)
+- [海上网系回收是否是可回收火箭的最优方案？](http://www.play.hengshemaoyi.cn/xiju/1901702.htm)
+- [破冰挑战！3小时摆摊PK，赚得多的获胜！！](http://www.daogukj.com/1487547)
+- [比亚迪高管：没美国市场销量也超丰田](http://www.daogukj.com/sqqsfnyh/)
+- [20亿票房？！潮汕爆火出圈？电影和现实又有哪些区别？《给阿嬷的情书》取景地巡礼](http://www.movie.hkepx.cn/movie/3969864.htm)
 - [姆巴佩心态崩了](http://www.daogukj.com/iqmqrbhp/)
-- [哭着剪完这条视频…](http://www.play.hengshemaoyi.cn/xiju/8313158.htm)
-- [陈翔六点半：突然大方的兄弟](http://www.movie.hkepx.cn/xiju/9816658.htm)
-- [华为手机出货量逆势暴涨](http://www.daogukj.com/3514427)
-- [耗时9999小时！一口气看完熊出没末路大合集！](http://www.movie.hkepx.cn/movie/5821299.htm)
-- [美军宣布对伊朗开始新一波打击](http://www.movie.hkepx.cn/movie/7016997.htm)
-- [赵丽颖休息的状态](http://www.daogukj.com/klgjmmqw/)
-- [电视卖不动了](http://www.play.hengshemaoyi.cn/kongbu/2965446.htm)
-- [LOL官宣将推出怀旧模式，还原老版模型与旧数值且长期开放，在玩家日趋流失的现在会是个好做法吗？](http://www.daogukj.com/8554716)
-- [路边摊吃盒饭 吃成摊主](http://www.daogukj.com/4018030)
-- [上海日式拉面挑战，超油腻！20分钟吃完奖金500元！能吃饱吗？](http://www.play.hengshemaoyi.cn/xiju/7007818.htm)
-- [2026 年上半年 GDP 695704 亿元，同比增长 4.7%，如何解读这一数据？](http://www.daogukj.com/7787398)
-- [国企投近900万拍综艺收益仅8600元](http://www.play.hengshemaoyi.cn/xiju/3303937.htm)
-- [吴绮莉公开成龙拒认吴卓林原因](http://www.play.hengshemaoyi.cn/xiju/6811831.htm)
-- [百花杀](http://www.play.hengshemaoyi.cn/kongbu/5731979.htm)
-- [崩阿姨比崩老头更加隐蔽](http://www.play.hengshemaoyi.cn/kongbu/8531788.htm)
-- [国务院发文：未来5年涨工资、落实假期](http://www.play.hengshemaoyi.cn/xiju/3940464.htm)
-- [TF家族运动会分队官宣](http://www.play.hengshemaoyi.cn/xiju/5367021.htm)
-- [我妈成了AI受害者](http://www.movie.hkepx.cn/xiju/7619002.htm)
-- [回 旋 彪](http://www.play.hengshemaoyi.cn/xiju/7491703.htm)
-- [哈萨克斯坦总统托卡耶夫抵达上海](http://www.movie.hkepx.cn/xiju/9433984.htm)
-- [丈夫私生活混乱 妻子怒要给孩子改姓](http://www.play.hengshemaoyi.cn/xiju/8043846.htm)
-- [人民网开通防灾减灾建言专区](http://www.play.hengshemaoyi.cn/kongbu/5790640.htm)
-- [家长月薪3500元请大学生暑假带娃](http://www.play.hengshemaoyi.cn/kongbu/2929388.htm)
-- [守护公民个人身份信息安全](http://www.play.hengshemaoyi.cn/xiju/2191121.htm)
-- [工作组赴吉林暴雨洪涝灾区](http://www.play.hengshemaoyi.cn/kongbu/3389194.htm)
-- [伊朗公布美第五舰队指挥中心被摧毁图](http://www.daogukj.com/2463480)
-- [如果你可以随时缩小，十二星座决定你的专属休息小屋 （上） ASMR](http://www.movie.hkepx.cn/xiju/2416068.htm)
-- [为什么周星驰的剧本台词风格他自己演就很自然还很搞笑，而换成其他人演不仅不搞笑还巨尴尬?](http://www.daogukj.com/4620332)
-- [罗技分销商因发「像狗一样」辱客广告，被市场监管部门罚款20万，如何看待这一处罚结果？有哪些警示意义？](http://www.movie.hkepx.cn/movie/5413853.htm)
-- [水都淹到脖子了 店员水中发视频请假](http://www.play.hengshemaoyi.cn/kongbu/3114909.htm)
-- [张月陈瑶 我家那闺女](http://www.movie.hkepx.cn/movie/3357497.htm)
-- [国台办回应两岸统一时间](http://www.daogukj.com/aagwkkjr/)
+- [现在大厂都没实力提供托儿所和厂办医院，当年为啥可以，当年工人产值那么高吗？](http://www.play.hengshemaoyi.cn/xiju/8313158.htm)
+- [足坛真神TOP：姆巴佩！离开世界杯！如果最高战力，为何不能天下第一！？](http://www.movie.hkepx.cn/xiju/9816658.htm)
+- [【幼稚园TV】建材王哥大闹天宫](http://www.daogukj.com/3514427)
+- [为什么阿根廷主帅斯卡洛尼要极力淡化马岛战争对英阿大战的影响，不断强调「这只是一场足球比赛」？](http://www.movie.hkepx.cn/movie/5821299.htm)
+- [阿根廷主帅：不要混淆足球和战争](http://www.movie.hkepx.cn/movie/7016997.htm)
+- [中老年妇女困境](http://www.daogukj.com/klgjmmqw/)
+- [曝C罗考虑参加2030年世界杯](http://www.play.hengshemaoyi.cn/kongbu/2965446.htm)
+- [西班牙完胜法国晋级决赛，他们的极致传控有多强？夺冠概率有多大？](http://www.daogukj.com/8554716)
+- [如何评价 Q2 全球智能手机出货量同比下滑，小米跌幅最大，三星、苹果、华为逆势上涨？](http://www.daogukj.com/4018030)
+- ["自古英雄出少年."](http://www.play.hengshemaoyi.cn/xiju/7007818.htm)
+- [央视曝光湖南江华水稻种植面积造假，上报种植水稻 39 万亩实际仅为约 23.8 万亩，暴露出哪些问题？](http://www.daogukj.com/7787398)
+- [安理会通过决议 中俄投了弃权票](http://www.play.hengshemaoyi.cn/xiju/3303937.htm)
+- [我也好奇冉莹颖在MBA班上都学了啥](http://www.play.hengshemaoyi.cn/xiju/6811831.htm)
+- [王俊凯忙一天打开手机天塌了](http://www.play.hengshemaoyi.cn/kongbu/5731979.htm)
+- [四川一旅游车坠入河滩 多部门救援](http://www.play.hengshemaoyi.cn/kongbu/8531788.htm)
+- [《功夫女足》换片源](http://www.play.hengshemaoyi.cn/xiju/3940464.htm)
+- [吴绮莉公开成龙拒认吴卓林原因](http://www.play.hengshemaoyi.cn/xiju/5367021.htm)
+- [日本阴阳菜单已蔓延至中小城市](http://www.movie.hkepx.cn/xiju/7619002.htm)
+- [【战双帕弥什】「海伦汀·安魂」角色PV | 完美任务](http://www.play.hengshemaoyi.cn/xiju/7491703.htm)
+- [专家：三伏天千万不要喝冷饮](http://www.movie.hkepx.cn/xiju/9433984.htm)
+- [19岁亚马尔把姆巴佩踢下神坛](http://www.play.hengshemaoyi.cn/xiju/8043846.htm)
+- [于东来为啥坐到总理座谈会前排](http://www.play.hengshemaoyi.cn/kongbu/5790640.htm)
+- [官方把房子定位为大宗消费品意味啥](http://www.play.hengshemaoyi.cn/kongbu/2929388.htm)
+- [哭着剪完这条视频…](http://www.play.hengshemaoyi.cn/xiju/2191121.htm)
+- [二季度GDP增长4.3% 怎么看](http://www.play.hengshemaoyi.cn/kongbu/3389194.htm)
+- [克罗地亚正式致函FIFA抗议](http://www.daogukj.com/2463480)
+- [为什么周星驰的剧本台词风格他自己演就很自然还很搞笑，而换成其他人演不仅不搞笑还巨尴尬?](http://www.movie.hkepx.cn/xiju/2416068.htm)
+- [内塔尼亚胡遭议员集体呵斥尴尬离场](http://www.daogukj.com/4620332)
+- [如何看待五粮液预计 2026 H1 净利润同比增长高达 88.80%-98.97%？](http://www.movie.hkepx.cn/movie/5413853.htm)
+- [内蒙古2名工人不慎掉入冷凝水箱溺亡](http://www.play.hengshemaoyi.cn/kongbu/3114909.htm)
+- [富士康打工妹逆袭成中国女首富](http://www.movie.hkepx.cn/movie/3357497.htm)
+- [停车扫码缴费狂弹广告 微信出手了](http://www.daogukj.com/aagwkkjr/)
 
 </details>
 
 ## 原始来源
 
-- [谁来拯救便利店](https://www.baidu.com/s?wd=%E8%B0%81%E6%9D%A5%E6%8B%AF%E6%95%91%E4%BE%BF%E5%88%A9%E5%BA%97&sa=fyb_news&rsv_dl=fyb_news)
+- [演员许鹏自曝已返乡卖菜](https://www.baidu.com/s?wd=%E6%BC%94%E5%91%98%E8%AE%B8%E9%B9%8F%E8%87%AA%E6%9B%9D%E5%B7%B2%E8%BF%94%E4%B9%A1%E5%8D%96%E8%8F%9C&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: b2f56547b07fc2aba3e9 -->
+<!-- content-fingerprint: 09570ecdbe53f635c442 -->
