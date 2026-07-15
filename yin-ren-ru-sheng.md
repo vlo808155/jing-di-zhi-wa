@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 不建议大家辞职去做自媒体
+# 09年高中生带全家勇闯北京
 
-> 来源：微博热搜 · 排名：第 21 位 · 热度：72156 · 分类：情感 · 更新：2026-07-16T04:38:31+08:00
+> 来源：哔哩哔哩热门 · 排名：第 20 位 · 热度：1009551 · 分类：亲子 · 更新：2026-07-16T07:44:55+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“不建议大家辞职去做自媒体”位列第 21 位，公开热度指标为 72156，榜单分类为“情感”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“09年高中生带全家勇闯北京”位列第 20 位，公开热度指标为 1009551，榜单分类为“亲子”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：-
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `情感`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `亲子`
 
 ## 相关热点
 
-- [克罗地亚长文致函FIFA](jing-di-zhi-wa.md)
-- [调查显示日本逾五成家庭“过得苦”](hai-kuo-tian-kong.md)
-- [鸡肉这种食材有哪些美味的做法?](gao-zhan-yuan-zhu.md)
-- [日服堵桥被全图围剿！鲁鲁正义の制裁](xiong-you-cheng-zhu.md)
+- [女孩发烧3天以为感冒 确诊脑炎](jing-di-zhi-wa.md)
+- [不建议大家辞职去做自媒体](hai-kuo-tian-kong.md)
+- [台退将：挑衅大陆红线必玩火自焚](gao-zhan-yuan-zhu.md)
+- [沙溢同样是被欺负了，为什么在《极限挑战》观众们叫好，在《跑男》都骂节目组？](xiong-you-cheng-zhu.md)
 
 ## 站内推荐
 
-- [郝 哥 连 线 勇 哥](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
+- [路边摊吃盒饭 吃成摊主](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
 - [我宁愿在这个世界里，永远做一个你“尚未到来”的传说](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
-- [如何正确安慰兄弟](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- [直播间飙升10万+！大司马玩怀旧服老版AP塞恩，瞪谁谁怀孕来了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [国科大本科录取通知书001号签收](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [我这视频看完没啥感觉，但是暖暖的！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
+- ["自古英雄出少年."](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [【复制铜镜全系列合集】ai软件生成，剧情虚构，非官方）正片+番外+解说+彩蛋](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [戈登破门 英格兰1比0领先阿根廷](http://www.daogukj.com/vrzctubb/)
-- [耗时9999小时！一口气看完熊出没末路大合集！](http://www.daogukj.com/6886560)
+- [英阿大战变自由搏击](http://www.daogukj.com/vrzctubb/)
+- [哭着剪完这条视频…](http://www.daogukj.com/6886560)
 - [搞强拆能惹多大祸？【奇葩小国53】](http://www.movie.hkepx.cn/movie/9717106.htm)
-- [日服堵桥被全图围剿！鲁鲁正义の制裁](http://www.play.hengshemaoyi.cn/xiju/5241849.htm)
-- [零食店特供版冰红茶比超市便宜 3 毛钱，瓶身却瘦了一圈，如何看待这种商业策略？你会愿意购买吗？](http://www.daogukj.com/0392707)
-- [存100万解锁5.25%利息系假信息](http://www.play.hengshemaoyi.cn/kongbu/2803464.htm)
-- [英格兰1比0阿根廷](http://www.movie.hkepx.cn/xiju/1334432.htm)
-- [河南多家NFC果汁生产车间竟无水果](http://www.play.hengshemaoyi.cn/kongbu/2200403.htm)
+- [沙溢同样是被欺负了，为什么在《极限挑战》观众们叫好，在《跑男》都骂节目组？](http://www.play.hengshemaoyi.cn/xiju/5241849.htm)
+- [现在大厂都没实力提供托儿所和厂办医院，当年为啥可以，当年工人产值那么高吗？](http://www.daogukj.com/0392707)
+- [官方辟谣九寨沟湖水染色](http://www.play.hengshemaoyi.cn/kongbu/2803464.htm)
+- [英格兰vs阿根廷](http://www.movie.hkepx.cn/xiju/1334432.htm)
+- [郑钦文晋级WTA250雅典赛8强](http://www.play.hengshemaoyi.cn/kongbu/2200403.htm)
 - [“存100万元解锁5.25%利息”不实](http://www.play.hengshemaoyi.cn/kongbu/7911895.htm)
-- [调查显示日本逾五成家庭“过得苦”](http://www.movie.hkepx.cn/movie/9434304.htm)
-- [Claude Code 源码泄露后OpenCode 却没有一波大更新？是开源社区躺平了，还是另有隐情？](http://www.daogukj.com/9720422)
-- [7月17日24时国内油价将调整](http://www.daogukj.com/5290019)
-- [英阿大战像自由搏击](http://www.movie.hkepx.cn/movie/2595562.htm)
-- [帕雷德斯举报凯恩捂嘴](http://www.movie.hkepx.cn/movie/1663396.htm)
-- [央视曝光湖南江华水稻种植面积造假，上报种植水稻 39 万亩实际仅为约 23.8 万亩，暴露出哪些问题？](http://www.daogukj.com/xmeoocun/)
-- [霍尔木兹海峡发生交火](http://www.daogukj.com/srvnzwkb/)
-- [路边摊吃盒饭 吃成摊主](http://www.daogukj.com/9309214)
-- ["自古英雄出少年."](http://www.play.hengshemaoyi.cn/kongbu/8088630.htm)
-- [功夫女足2](http://www.play.hengshemaoyi.cn/xiju/2775140.htm)
-- [烧一桌中式家常菜，款待十年没见的法国老友！](http://www.play.hengshemaoyi.cn/kongbu/3428499.htm)
-- [「吃蛋挞的折棒」吐槽新三国系列，为何关羽之死这段弹幕都是清一色地刷「好」？难道新三国关羽这么不讨喜吗？](http://www.daogukj.com/3278515)
-- [贝克汉姆高兴坏了](http://www.movie.hkepx.cn/xiju/0756083.htm)
-- [如何评价 Q2 全球智能手机出货量同比下滑，小米跌幅最大，三星、苹果、华为逆势上涨？](http://www.daogukj.com/yszfskeo/)
-- [中国用户终于迎来满血iPhone](http://www.daogukj.com/exnmuhvg/)
-- [【复制铜镜全系列合集】ai软件生成，剧情虚构，非官方）正片+番外+解说+彩蛋](http://www.play.hengshemaoyi.cn/kongbu/0838017.htm)
-- [英阿大战火药味拉满 双方发生冲突](http://www.movie.hkepx.cn/xiju/4430016.htm)
-- [富士康打工妹逆袭成中国女首富](http://www.play.hengshemaoyi.cn/xiju/8509628.htm)
-- [阿根廷副总统炮轰英格兰队是海盗](http://www.daogukj.com/4084559)
-- [郑钦文晋级WTA250雅典赛8强](http://www.play.hengshemaoyi.cn/kongbu/7290776.htm)
-- [鸡肉这种食材有哪些美味的做法?](http://www.movie.hkepx.cn/xiju/8703656.htm)
-- [哭着剪完这条视频…](http://www.daogukj.com/xgwhpfta/)
-- [官方把房子定位为大宗消费品意味啥](http://www.play.hengshemaoyi.cn/kongbu/5234043.htm)
-- [克罗地亚长文致函FIFA](http://www.play.hengshemaoyi.cn/xiju/0981929.htm)
-- [肉搏战！英阿半场19次犯规](http://www.daogukj.com/8836439)
-- [日媒：日系车“拥抱”中国技术](http://www.daogukj.com/syjkuwqb/)
-- [直播间飙升10万+！大司马玩怀旧服老版AP塞恩，瞪谁谁怀孕来了](http://www.play.hengshemaoyi.cn/kongbu/5357592.htm)
-- [《追上我命都给你哦》](http://www.daogukj.com/5545136)
-- [姆巴佩心态崩了](http://www.daogukj.com/myafughb/)
-- [如何看待五粮液预计 2026 H1 净利润同比增长高达 88.80%-98.97%？](http://www.daogukj.com/drenvtnu/)
-- [英格兰阿根廷冲突](http://www.movie.hkepx.cn/movie/8190790.htm)
-- [回 旋 彪](http://www.daogukj.com/uthpzicf/)
-- [如果一件东西平平无奇，但世上还有人记得它，那它还算“毫无价值”吗？](http://www.play.hengshemaoyi.cn/kongbu/9527939.htm)
-- [世界杯：英格兰vs阿根廷](http://www.daogukj.com/2678664)
-- [航司回应上海直飞乌鲁木齐仅50元](http://www.daogukj.com/qevzlmky/)
-- [为什么周星驰的剧本台词风格他自己演就很自然还很搞笑，而换成其他人演不仅不搞笑还巨尴尬?](http://www.play.hengshemaoyi.cn/kongbu/2252968.htm)
+- [不建议大家辞职去做自媒体](http://www.movie.hkepx.cn/movie/9434304.htm)
+- [央视曝光湖南江华水稻种植面积造假，上报种植水稻 39 万亩实际仅为约 23.8 万亩，暴露出哪些问题？](http://www.daogukj.com/9720422)
+- [姥姥把飞机餐带给外孙当礼物](http://www.daogukj.com/5290019)
+- [阿根廷世界杯半决赛胜率100%](http://www.movie.hkepx.cn/movie/2595562.htm)
+- [这就是英阿大战的强度吗](http://www.movie.hkepx.cn/movie/1663396.htm)
+- [韩国股市大反弹，SK海力士美股隔夜暴涨 27%，散户大规模爆仓强平后指数强势反弹，为何波动如此极端？](http://www.daogukj.com/xmeoocun/)
+- [于东来为啥坐到总理座谈会前排](http://www.daogukj.com/srvnzwkb/)
+- [郝 哥 连 线 勇 哥](http://www.daogukj.com/9309214)
+- [烧一桌中式家常菜，款待十年没见的法国老友！](http://www.play.hengshemaoyi.cn/kongbu/8088630.htm)
+- [日媒：日系车“拥抱”中国技术](http://www.play.hengshemaoyi.cn/xiju/2775140.htm)
+- [法国队遭调侃「遇到西班牙前一点力都没出，遇到后一点力都使不出」，其杀到半决赛真是运气吗？真实水平如何？](http://www.play.hengshemaoyi.cn/kongbu/3428499.htm)
+- [《功夫女足》将在 7 月 17 日（上映第 7 天）更换片源，为什么会出现这种情况？剧情会改动吗？](http://www.daogukj.com/3278515)
+- [小米人形机器人](http://www.movie.hkepx.cn/xiju/0756083.htm)
+- [世界杯半决赛，阿根廷 2-1 英格兰，如何评价本场比赛？](http://www.daogukj.com/yszfskeo/)
+- [苏醒谈阿根廷绝杀英格兰](http://www.daogukj.com/exnmuhvg/)
+- [网友称 LV 已将纸钱纹样注册，具体什么情况？如果属实纸钱商家会被告侵权吗？](http://www.play.hengshemaoyi.cn/kongbu/0838017.htm)
+- [甲亢哥怒喷裁判双标判罚](http://www.movie.hkepx.cn/xiju/4430016.htm)
+- [如果你可以随时缩小，十二星座决定你的专属休息小屋 （上） ASMR](http://www.play.hengshemaoyi.cn/xiju/8509628.htm)
+- [肉搏战！英阿半场19次犯规](http://www.daogukj.com/4084559)
+- [泽连斯基拧个瓶盖 引发巨大争议](http://www.play.hengshemaoyi.cn/kongbu/7290776.htm)
+- [台退将：挑衅大陆红线必玩火自焚](http://www.movie.hkepx.cn/xiju/8703656.htm)
+- [耗时9999小时！一口气看完熊出没末路大合集！](http://www.daogukj.com/xgwhpfta/)
+- [裁判 没带牌](http://www.play.hengshemaoyi.cn/kongbu/5234043.htm)
+- [女孩发烧3天以为感冒 确诊脑炎](http://www.play.hengshemaoyi.cn/xiju/0981929.htm)
+- [广西贵港市民冒雨送别电力铁军](http://www.daogukj.com/8836439)
+- [《功夫女足》换片源](http://www.daogukj.com/syjkuwqb/)
+- ["自古英雄出少年."](http://www.play.hengshemaoyi.cn/kongbu/5357592.htm)
+- [阿根廷队为何总在绝境中逆转](http://www.daogukj.com/5545136)
+- [美军对驶往伊朗油轮射“地狱火”导弹](http://www.daogukj.com/myafughb/)
+- [为什么很多爆款心理文案是「伪心理学」？普通人辨别时容易踩哪些误区？](http://www.daogukj.com/drenvtnu/)
+- [功夫女足2](http://www.movie.hkepx.cn/movie/8190790.htm)
+- [【幼稚园TV】建材王哥大闹天宫](http://www.daogukj.com/uthpzicf/)
+- [邹市明拳馆一盏吊灯花了300万](http://www.play.hengshemaoyi.cn/kongbu/9527939.htm)
+- [阿根廷2比1淘汰英格兰 决赛战西班牙](http://www.daogukj.com/2678664)
+- [日服堵桥被全图围剿！鲁鲁正义の制裁](http://www.daogukj.com/qevzlmky/)
+- [如何评价 Q2 全球智能手机出货量同比下滑，小米跌幅最大，三星、苹果、华为逆势上涨？](http://www.play.hengshemaoyi.cn/kongbu/2252968.htm)
 - [二季度GDP增长4.3% 怎么看](http://www.movie.hkepx.cn/movie/6923701.htm)
-- [为啥vibe coding 会有一种让人上头的感觉，我没有？](http://www.daogukj.com/2329215)
-- [《功夫女足》换片源](http://www.movie.hkepx.cn/movie/1652771.htm)
-- [小伙做200个深蹲致横纹肌溶解综合征](http://www.play.hengshemaoyi.cn/xiju/2768861.htm)
-- [曝C罗考虑参加2030年世界杯](http://www.daogukj.com/8449888)
+- [功夫女足票房](http://www.daogukj.com/2329215)
+- [斯卡洛尼回应绝杀英格兰](http://www.movie.hkepx.cn/movie/1652771.htm)
+- [中老年妇女困境](http://www.play.hengshemaoyi.cn/xiju/2768861.htm)
+- [张凌赫智性恋天菜具像化](http://www.daogukj.com/8449888)
 
 </details>
 
 ## 原始来源
 
-- [不建议大家辞职去做自媒体](https://s.weibo.com/weibo?q=%E4%B8%8D%E5%BB%BA%E8%AE%AE%E5%A4%A7%E5%AE%B6%E8%BE%9E%E8%81%8C%E5%8E%BB%E5%81%9A%E8%87%AA%E5%AA%92%E4%BD%93)
+- [09年高中生带全家勇闯北京](https://b23.tv/BV1UtNb65EUd)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d8418b1c8ed5394b9161 -->
+<!-- content-fingerprint: 62aabca33d4b84d697b3 -->
