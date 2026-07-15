@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 亚马尔进球被吹
+# 为什么会有「来了巴黎就祛魅」的说法？
 
-> 来源：百度热搜 · 排名：第 17 位 · 热度：6192167 · 更新：2026-07-15T07:30:16+08:00
+> 来源：知乎热榜 · 排名：第 17 位 · 热度：143 万热度 · 分类：问答 · 更新：2026-07-15T15:26:00+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“亚马尔进球被吹”位列第 17 位，公开热度指标为 6192167。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“为什么会有「来了巴黎就祛魅」的说法？”位列第 17 位，公开热度指标为 143 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：北京时间7月15日，世界杯半决赛法国对阵西班牙，亚马尔一度完成破门，但因越位在先，进球经判定无效，西班牙错失扩大比分机会，场上比分仍保持领先优势。
+来源公开摘要显示：看网上说巴黎很脏乱，巴黎铁塔下面都是流浪汉，是真的吗？如何客观评价在巴黎的旅行体验？
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [内娱请把古偶还给少男少女](yun-chou-wei-wo.md)
-- [说到做到！亚马尔赛前放话不怕法国](shen-mou-yuan-lv.md)
-- [《雍正王朝》里，雍正罚李卫一年不发工资，李卫饿死了怎么办？](ming-cha-qiu-hao.md)
-- [ChiliChill乐团×花玲宴宁，《让风告诉你》提瓦特的故事吧！【BML-PLAY! 2026】](jian-wei-zhi-zhu.md)
+- [逆天小游戏2327](yun-chou-wei-wo.md)
+- [国内第一批全面禁烟景区尝到甜头](shen-mou-yuan-lv.md)
+- [王俊凯演唱会增加了921票价的座位](ming-cha-qiu-hao.md)
+- [北京中医医院院长教你如何冬病夏治](jian-wei-zhi-zhu.md)
 
 ## 站内推荐
 
-- [孩子总把网络烂梗挂嘴边怎么办？【AI全民制作人】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [多省开始“抢”老人](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [女生694分被清华录取 没报过补习班](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [西班牙时隔16年再度晋级世界杯决赛](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [谷爱凌观战世界杯半决赛](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [2026 年上半年 GDP 695704 亿元，同比增长 4.7%，如何解读这一数据？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [法国不敌西班牙无缘世界杯决赛，他们输在哪？豪华锋线为什么会哑火？教练德尚该承担主要责任吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [《雍正王朝》里，雍正罚李卫一年不发工资，李卫饿死了怎么办？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [央视曝光湖南江华水稻种植面积造假，上报种植水稻 39 万亩实际仅为约 23.8 万亩，暴露出哪些问题？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [如何看待法国主帅德尚在世界杯半决赛后批评裁判「他够水平吹世界杯半决赛吗，我不知道」？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [存100万解锁5.25%利息系假信息](http://www.play.hengshemaoyi.cn/kongbu/3483820.htm)
-- [法国队遭西班牙“三连杀”](http://www.movie.hkepx.cn/xiju/3408565.htm)
-- [姆巴佩状态低迷 全场0射正](http://www.play.hengshemaoyi.cn/kongbu/9358766.htm)
-- [法国西班牙 总决赛提前上演](http://www.movie.hkepx.cn/movie/6761076.htm)
-- [9 岁出书、清华降分录取，客观评价作家蒋方舟到底是真的天才少女还是在人设炒作？](http://www.movie.hkepx.cn/movie/4354942.htm)
-- [佛得角的含金量还在上升](http://www.play.hengshemaoyi.cn/kongbu/7691913.htm)
-- [回 旋 彪](http://www.daogukj.com/zxhxffqk/)
-- [马斯克说十年内要在月球上建造一座城市、配备生活资料并移民几万人上去长期居住，这个计划可行吗？](http://www.play.hengshemaoyi.cn/kongbu/0581403.htm)
-- [《最失败の高情商》](http://www.play.hengshemaoyi.cn/xiju/8368894.htm)
-- [法国vs西班牙](http://www.movie.hkepx.cn/movie/3724589.htm)
-- [迪丽热巴听到周星驰女儿的表情](http://www.movie.hkepx.cn/movie/4073082.htm)
-- [说到做到！亚马尔赛前放话不怕法国](http://www.movie.hkepx.cn/movie/7225991.htm)
-- [女生694分被清华录取 没报过补习班](http://www.movie.hkepx.cn/movie/5475557.htm)
-- [为什么目前AI得设备是用mac为主，而不是熟知的windows？](http://www.play.hengshemaoyi.cn/xiju/1901702.htm)
-- [专家：比亚迪不是车企](http://www.daogukj.com/1487547)
-- [怎么看待那些背着一千多的寇驰包，拿着iPhone，但是全身上下衣服却不超几十块钱的人？](http://www.daogukj.com/sqqsfnyh/)
-- [SK海力士美股暴涨超27%](http://www.movie.hkepx.cn/movie/3969864.htm)
-- [超 500 万人请愿将阿根廷逐出世界杯，称国际足联和裁判偏袒阿根廷，你觉得是这样吗？裁判判罚有问题吗？](http://www.daogukj.com/iqmqrbhp/)
-- [西班牙中场再现“世界名画”](http://www.play.hengshemaoyi.cn/xiju/8313158.htm)
-- [美媒这次服了中国电网](http://www.movie.hkepx.cn/xiju/9816658.htm)
-- [西班牙反超法国登顶世界排名榜首](http://www.daogukj.com/3514427)
-- [哭着剪完这条视频…](http://www.movie.hkepx.cn/movie/5821299.htm)
-- [如何看待《功夫女足》预测票房蹭蹭上涨到现在的 30 亿？](http://www.movie.hkepx.cn/movie/7016997.htm)
-- [压制！亚马尔VS姆巴佩战绩9胜2负](http://www.daogukj.com/klgjmmqw/)
-- [房东回应民宿禁止夫妻情侣入住](http://www.play.hengshemaoyi.cn/kongbu/2965446.htm)
-- [几天没更新因为在做梦，这次的梦有点麻烦要处理事有点多所以在梦里呆了好几天才回来写歌](http://www.daogukj.com/8554716)
-- [《迈亚融解》实机首曝](http://www.daogukj.com/4018030)
-- [给村里修了条公路！](http://www.play.hengshemaoyi.cn/xiju/7007818.htm)
-- [西班牙 2-0 法国，晋级世界杯决赛，亚马尔造点、姆巴佩哑火，如何评价本场比赛？](http://www.daogukj.com/7787398)
-- [长鑫科技公告](http://www.play.hengshemaoyi.cn/xiju/3303937.htm)
-- [周星驰为什么常年戴口罩](http://www.play.hengshemaoyi.cn/xiju/6811831.htm)
-- [6月新增新冠确诊7.9万例 疾控提醒](http://www.play.hengshemaoyi.cn/kongbu/5731979.htm)
-- [暑期档长剧 裸播](http://www.play.hengshemaoyi.cn/kongbu/8531788.htm)
-- [西班牙2比0法国晋级世界杯决赛](http://www.play.hengshemaoyi.cn/xiju/3940464.htm)
-- [法国是世界杯被判点球最多的球队](http://www.play.hengshemaoyi.cn/xiju/5367021.htm)
-- [张小斐中国首位票房破百亿85花](http://www.movie.hkepx.cn/xiju/7619002.htm)
-- [长鑫科技公告：发行价格为8.66元/股](http://www.play.hengshemaoyi.cn/xiju/7491703.htm)
-- [沈阳暴雨中推车前行大哥是产科医生](http://www.movie.hkepx.cn/xiju/9433984.htm)
-- [谷爱凌观战世界杯半决赛](http://www.play.hengshemaoyi.cn/xiju/8043846.htm)
-- [功夫女足票房破7亿](http://www.play.hengshemaoyi.cn/kongbu/5790640.htm)
-- [西班牙2-0法国 时隔16年再进决赛](http://www.play.hengshemaoyi.cn/kongbu/2929388.htm)
-- [法国回应淘汰](http://www.play.hengshemaoyi.cn/xiju/2191121.htm)
-- [惠民生促消费双向发力](http://www.play.hengshemaoyi.cn/kongbu/3389194.htm)
-- [法国 梦游](http://www.daogukj.com/2463480)
-- [孩子总把网络烂梗挂嘴边怎么办？【AI全民制作人】](http://www.movie.hkepx.cn/xiju/2416068.htm)
-- [【复制铜镜全系列合集】ai软件生成，剧情虚构，非官方）正片+番外+解说+彩蛋](http://www.daogukj.com/4620332)
-- [带小猎豹自律的一天](http://www.movie.hkepx.cn/movie/5413853.htm)
-- [刘旭东](http://www.play.hengshemaoyi.cn/kongbu/3114909.htm)
-- [高架现无人驾驶摩托车狂奔](http://www.movie.hkepx.cn/movie/3357497.htm)
-- [姆巴佩心态崩了 肘击门将吃黄牌](http://www.daogukj.com/aagwkkjr/)
+- [“存100万利息5.25%”系谣言](http://www.play.hengshemaoyi.cn/kongbu/3483820.htm)
+- [中宣部原副部长蔡赴朝被查](http://www.movie.hkepx.cn/xiju/3408565.htm)
+- [耗时9999小时！一口气看完熊出没末路大合集！](http://www.play.hengshemaoyi.cn/kongbu/9358766.htm)
+- [搞强拆能惹多大祸？【奇葩小国53】](http://www.movie.hkepx.cn/movie/6761076.htm)
+- [机智张承认整容](http://www.movie.hkepx.cn/movie/4354942.htm)
+- [逐玉一念演唱会官宣](http://www.play.hengshemaoyi.cn/kongbu/7691913.htm)
+- [央行为何开展1.4万亿买断式逆回购](http://www.daogukj.com/zxhxffqk/)
+- [宁艺卓向韩国捐款](http://www.play.hengshemaoyi.cn/kongbu/0581403.htm)
+- [媒体：19岁亚马尔把姆巴佩踢下神坛](http://www.play.hengshemaoyi.cn/xiju/8368894.htm)
+- [陈翔六点半：突然大方的兄弟](http://www.movie.hkepx.cn/movie/3724589.htm)
+- [《迈亚融解》实机首曝](http://www.movie.hkepx.cn/movie/4073082.htm)
+- [国内第一批全面禁烟景区尝到甜头](http://www.movie.hkepx.cn/movie/7225991.htm)
+- [《雍正王朝》里，雍正罚李卫一年不发工资，李卫饿死了怎么办？](http://www.movie.hkepx.cn/movie/5475557.htm)
+- [法国队输球的原因找到了](http://www.play.hengshemaoyi.cn/xiju/1901702.htm)
+- [如何看待《功夫女足》预测票房蹭蹭上涨到现在的 30 亿？](http://www.daogukj.com/1487547)
+- [AI短剧以假乱真了](http://www.daogukj.com/sqqsfnyh/)
+- [LOL官宣将推出怀旧模式，还原老版模型与旧数值且长期开放，在玩家日趋流失的现在会是个好做法吗？](http://www.movie.hkepx.cn/movie/3969864.htm)
+- [贾浅浅西北大学辞职](http://www.daogukj.com/iqmqrbhp/)
+- [身家飙升至 360 亿美元，为什么梁文锋能超越奥特曼和达里奥成全球 AI 大模型创始人首富？](http://www.play.hengshemaoyi.cn/xiju/8313158.htm)
+- [AI 编程时代，被誉为「软件工程圣经」的《人月神话》，有哪些理论过时了？](http://www.movie.hkepx.cn/xiju/9816658.htm)
+- [《明日方舟：终末地》干员叙事 [诀：履旧尘]](http://www.daogukj.com/3514427)
+- [零食店特供版冰红茶比超市便宜 3 毛钱，瓶身却瘦了一圈，如何看待这种商业策略？你会愿意购买吗？](http://www.movie.hkepx.cn/movie/5821299.htm)
+- [实习工资居然能到一万](http://www.movie.hkepx.cn/movie/7016997.htm)
+- [吉林敦化紧急公告：非必要不外出](http://www.daogukj.com/klgjmmqw/)
+- [白岩松：法国输在又“浪”又“慢”](http://www.play.hengshemaoyi.cn/kongbu/2965446.htm)
+- [76岁女儿看着病榻上97岁父亲落泪](http://www.daogukj.com/8554716)
+- [如何看待比亚迪回应一辆比亚迪唐电机总成脱落事件，称底盘发生严重磕碰，非产品质量问题？](http://www.daogukj.com/4018030)
+- [官方把房子定位为大宗消费品意味啥](http://www.play.hengshemaoyi.cn/xiju/7007818.htm)
+- [姆巴佩急了，全场0 射正、肘击西班牙门将吃黄牌，怎样评价他在半决赛的表现？](http://www.daogukj.com/7787398)
+- [日服堵桥被全图围剿！鲁鲁正义の制裁](http://www.play.hengshemaoyi.cn/xiju/3303937.htm)
+- [贾浅浅学术不端行为属实](http://www.play.hengshemaoyi.cn/xiju/6811831.htm)
+- [日本掉进自己挖的坑](http://www.play.hengshemaoyi.cn/kongbu/5731979.htm)
+- [我这视频看完没啥感觉，但是暖暖的！](http://www.play.hengshemaoyi.cn/kongbu/8531788.htm)
+- [法国输球 巴黎街头陷入混乱](http://www.play.hengshemaoyi.cn/xiju/3940464.htm)
+- [西北大学通报：贾浅浅硕士学位被撤销](http://www.play.hengshemaoyi.cn/xiju/5367021.htm)
+- [《崩坏：星穹铁道》姬子•启行角色PV——「启明星于今夜坠落」](http://www.movie.hkepx.cn/xiju/7619002.htm)
+- [长鑫科技7月16日开启申购，发行价为8.66元/股，估值超4万亿，对其自身发展和半导体产业意味着什么？](http://www.play.hengshemaoyi.cn/xiju/7491703.htm)
+- [43码拖鞋放车内一周晒成了37码](http://www.movie.hkepx.cn/xiju/9433984.htm)
+- [如何看待法国主帅德尚在世界杯半决赛后批评裁判「他够水平吹世界杯半决赛吗，我不知道」？](http://www.play.hengshemaoyi.cn/xiju/8043846.htm)
+- [曝DeepSeek计划明年上市](http://www.play.hengshemaoyi.cn/kongbu/5790640.htm)
+- [龙凤胎哥哥上国防科大妹妹上北大](http://www.play.hengshemaoyi.cn/kongbu/2929388.htm)
+- [来成都 好生耍一盘 | 《湮灭之潮》首次试玩会报名开启](http://www.play.hengshemaoyi.cn/xiju/2191121.htm)
+- [中国经济坚韧向前](http://www.play.hengshemaoyi.cn/kongbu/3389194.htm)
+- [那还说啥了](http://www.daogukj.com/2463480)
+- [2026 年上半年 GDP 695704 亿元，同比增长 4.7%，如何解读这一数据？](http://www.movie.hkepx.cn/xiju/2416068.htm)
+- [西班牙中场再现“世界名画”](http://www.daogukj.com/4620332)
+- [法国1.5亿欧巨星灾难表现遭法媒怒批](http://www.movie.hkepx.cn/movie/5413853.htm)
+- [【复制铜镜全系列合集】ai软件生成，剧情虚构，非官方）正片+番外+解说+彩蛋](http://www.play.hengshemaoyi.cn/kongbu/3114909.htm)
+- [守护公民个人身份信息安全](http://www.movie.hkepx.cn/movie/3357497.htm)
+- [87版《红楼梦》刘姥姥扮演者去世](http://www.daogukj.com/aagwkkjr/)
 
 </details>
 
 ## 原始来源
 
-- [亚马尔进球被吹](https://www.baidu.com/s?wd=%E4%BA%9A%E9%A9%AC%E5%B0%94%E8%BF%9B%E7%90%83%E8%A2%AB%E5%90%B9&sa=fyb_news&rsv_dl=fyb_news)
+- [为什么会有「来了巴黎就祛魅」的说法？](https://www.zhihu.com/question/642212992)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: eafbc54b7f3a7fa28782 -->
+<!-- content-fingerprint: 323a073d273323447fe4 -->
