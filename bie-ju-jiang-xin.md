@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 《洛克王国：世界》远哥来了，福利稳了！
+# bw唯一的独手薇尔莉特
 
-> 来源：哔哩哔哩热门 · 排名：第 18 位 · 热度：2175293 · 分类：网络游戏 · 更新：2026-07-16T21:05:40+08:00
+> 来源：哔哩哔哩热门 · 排名：第 18 位 · 热度：1858908 · 分类：仿妆cos · 更新：2026-07-17T01:47:54+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“《洛克王国：世界》远哥来了，福利稳了！”位列第 18 位，公开热度指标为 2175293，榜单分类为“网络游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“bw唯一的独手薇尔莉特”位列第 18 位，公开热度指标为 1858908，榜单分类为“仿妆cos”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：洛克王国“远哥”来了？@张远Bird 现场找远哥！谁才是真远哥？ S3赛季「铅字幻梦」今日上线！小洛克们，和快洛福利大使@张远Bird 一起开启S3赛季全新旅程！ 7月16日至18日期间，每天早上10点，《洛克王国：世界》官号口令码准时放送~领取口令码后，小洛克将可于游戏内兑换获取炫彩精灵蛋、祝福项坠及棱镜球奖励。
+来源公开摘要显示：路人跟薇尔莉特握手后的反应。谢谢b站的邀请。 这是我第一次参加bw，真的很开心，各位老师也很热情，收到了很多物料，这次bw成为了我珍贵的回忆，感谢各位老师的集邮。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `网络游戏`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `仿妆cos`
 
 ## 相关热点
 
-- [韩国股市暴涨暴跌 散户快疯了](qiao-duo-tian-gong.md)
-- [中国夫妇印尼溺亡水下画面曝光](gui-fu-shen-gong.md)
-- [马龙许昕晋级全锦赛16强](jin-shang-tian-hua.md)
-- [SpaceX上市仅一个月跌破135美元发行价，市值缩水三分之一，星舰第13次试飞将至，能否挽救股价？](hua-long-dian-jing.md)
+- [大导演为何越来越难让人满意](qiao-duo-tian-gong.md)
+- [金靖回应虞书欣](gui-fu-shen-gong.md)
+- [A股哪些板块在逆势吸筹](jin-shang-tian-hua.md)
+- [《功夫女足》将在 7 月 17 日（上映第 7 天）更换片源，为什么会出现这种情况？剧情会改动吗？](hua-long-dian-jing.md)
 
 ## 站内推荐
 
 - [【独家】《将夜》第14集 努力读书【4月国创】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [《崩坏：星穹铁道》EP：「下一站」](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
-- [《兄弟有个妹妹》3](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [我宁愿在这个世界里，永远做一个你“尚未到来”的传说](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [吃肉容易早衰，喝米油不哭不闹？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [路边摊吃盒饭 吃成摊主](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [他们说学校里有一个很装的人](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
+- [矿石战争重制版一口气看完大合集](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [原摄玩家镜头下，你未曾见过的桑多涅......](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [曝《功夫女足》被偷票房，大量观众称电影票为纸质手写，这是普遍现象吗？对电影有哪些影响？制片方如何维权？](http://www.movie.hkepx.cn/movie/2915060.htm)
-- [白鹿经纪人朋友圈](http://www.play.hengshemaoyi.cn/xiju/6650559.htm)
-- [去年是展品 今年变“同事”了](http://www.daogukj.com/zukhhxhm/)
-- [穆祉丞心率挑战直接挂脸](http://www.play.hengshemaoyi.cn/xiju/8385002.htm)
-- [“兵王”父亲送儿子出征](http://www.daogukj.com/9990025)
-- [一篇文章告诉你什么是国家网络身份认证](http://www.daogukj.com/hlzgjllr/)
-- [破冰挑战！3小时摆摊PK，赚得多的获胜！！](http://www.daogukj.com/1279926)
-- [家长月薪 3500 请大学生暑假带娃，称大学生更易与孩子相处，对大学生来说这活有什么吸引力？愿意接吗？](http://www.play.hengshemaoyi.cn/xiju/7656141.htm)
+- [河南多家NFC果汁生产车间被曝无水果，产品却标注「100%鲜榨果汁」，标注是否合规？消费者该如何辨别？](http://www.movie.hkepx.cn/movie/2915060.htm)
+- [一代人有一代人的漂亮饭](http://www.play.hengshemaoyi.cn/xiju/6650559.htm)
+- [TVB演员梁爱在老人院去世](http://www.daogukj.com/zukhhxhm/)
+- [最绝望的英法大战出现了](http://www.play.hengshemaoyi.cn/xiju/8385002.htm)
+- [男子记录初中儿子和侄子卖桃日常](http://www.daogukj.com/9990025)
+- [餐厅服务员帮顾客传话搭讪女生](http://www.daogukj.com/hlzgjllr/)
+- [当你学会外耗他人后](http://www.daogukj.com/1279926)
+- [如何评价《明日方舟：终末地》1.4版本？](http://www.play.hengshemaoyi.cn/xiju/7656141.htm)
 - [【独家】《将夜》第14集 努力读书【4月国创】](http://www.daogukj.com/3778150)
-- [realme暂停中国市场业务](http://www.movie.hkepx.cn/xiju/3087462.htm)
+- [又一名《西游记》演员离世](http://www.movie.hkepx.cn/xiju/3087462.htm)
 - [哭着剪完这条视频…](http://www.daogukj.com/1068777)
-- [足坛真神TOP：凯恩！离开世界杯！他是这个时代最全面的中锋！](http://www.movie.hkepx.cn/movie/1255369.htm)
-- [沈音教授白丽萍夫妇意外离世](http://www.daogukj.com/5932895)
-- [吴绮莉公开成龙拒认吴卓林原因，称自己不想做亲子鉴定，分开了孩子与男方无关，如何看待她的观点？](http://www.daogukj.com/0377653)
-- [沈阳雨停后多个住宅小区积水上涨](http://www.movie.hkepx.cn/xiju/9207771.htm)
-- [最绝望的英法大战出现了](http://www.daogukj.com/swhxvolr/)
-- [昆明暴雨呈柱状倾泻如“登天电梯”](http://www.play.hengshemaoyi.cn/xiju/2171847.htm)
-- [17 岁男孩被敌敌畏浸透裤子，数小时后被下达病危通知书，这是什么原因？如何做紧急处理？](http://www.movie.hkepx.cn/movie/1158138.htm)
-- [福建晋江一垃圾场起火](http://www.play.hengshemaoyi.cn/xiju/7265248.htm)
-- [一图读懂2025年全国医保统计公报](http://www.play.hengshemaoyi.cn/xiju/7463556.htm)
-- [被“镜头霸凌”的普通人开始反击](http://www.movie.hkepx.cn/movie/8356454.htm)
-- [2026世界杯决赛，西班牙vs阿根廷，这场比赛结果会如何，是西班牙时隔多年再问鼎，还是阿根廷成功卫冕？](http://www.play.hengshemaoyi.cn/kongbu/7174540.htm)
-- [冉莹颖侃侃而谈邹市明心如死灰](http://www.daogukj.com/djiijlzz/)
-- [晚上厨师长下班后，在店里开小灶，没卖完的食材，偷偷做个晚餐，和牛岩石烧，鲍鱼佐鲍鱼肝酱，酒煮文蛤](http://www.movie.hkepx.cn/xiju/0852942.htm)
+- [《崩坏：星穹铁道》EP：「下一站」](http://www.movie.hkepx.cn/movie/1255369.htm)
+- [俄科学家：中国现在是世界第一](http://www.daogukj.com/5932895)
+- [乐事被曝薯片中吃出「蓝薯片」异物，它可能是什么？最可能从哪个环节混进包装袋的？](http://www.daogukj.com/0377653)
+- [夫妻身上痒到痛不欲生确诊疥疮](http://www.movie.hkepx.cn/xiju/9207771.htm)
+- [法国队对季军赛毫无动力](http://www.daogukj.com/swhxvolr/)
+- [甄子丹亮相人形机器人格斗揭幕赛](http://www.play.hengshemaoyi.cn/xiju/2171847.htm)
+- [为什么都喜欢吃智利的车厘子而不喜欢吃中国的樱桃？](http://www.movie.hkepx.cn/movie/1158138.htm)
+- [盒马猫咪抱冬瓜宣传图被吐槽照骗](http://www.play.hengshemaoyi.cn/xiju/7265248.htm)
+- [1组数字看2026上半年中国经济](http://www.play.hengshemaoyi.cn/xiju/7463556.htm)
+- [三伏天养生记住九个字](http://www.movie.hkepx.cn/movie/8356454.htm)
+- [如何评价月之暗面于 7 月 15 日开始灰度测试的 Kimi-K3？](http://www.play.hengshemaoyi.cn/kongbu/7174540.htm)
+- [韩国股民从暴富到一夜归零](http://www.daogukj.com/djiijlzz/)
+- [The Verity Cast Plays The REAL Verity Mod](http://www.movie.hkepx.cn/xiju/0852942.htm)
 - [前一秒石库门 下一秒进未来](http://www.movie.hkepx.cn/xiju/2073519.htm)
-- [媒体：恭喜巴萨球迷“提前夺冠”](http://www.daogukj.com/bxdkirzi/)
-- [推动“梅姨案”进展记者魏华安葬](http://www.play.hengshemaoyi.cn/xiju/2092178.htm)
-- [阿根廷球员赛后亮出「马岛属于阿根廷」横幅，或面临国际足联处罚，如何看待这种行为？可能受到什么处罚？](http://www.movie.hkepx.cn/movie/6851513.htm)
-- [KPL](http://www.play.hengshemaoyi.cn/xiju/7317912.htm)
-- [我把你们奇怪的想法都做到了我的世界里#14](http://www.play.hengshemaoyi.cn/kongbu/0295456.htm)
-- [医院涌出大量白雾 院方回应](http://www.daogukj.com/ffeoohmm/)
-- [生娃基本不花钱 28个省份安排上了](http://www.daogukj.com/8793756)
+- [专家：市场底部渐行渐近](http://www.daogukj.com/bxdkirzi/)
+- [玛莎拉蒂新车88万二手只要24.8万](http://www.play.hengshemaoyi.cn/xiju/2092178.htm)
+- [2026世界杯决赛，西班牙vs阿根廷，这场比赛结果会如何，是西班牙时隔多年再问鼎，还是阿根廷成功卫冕？](http://www.movie.hkepx.cn/movie/6851513.htm)
+- [阿根廷的最后十分钟怎么了](http://www.play.hengshemaoyi.cn/xiju/7317912.htm)
+- [原创AIGC剧集《有异人》【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/0295456.htm)
+- [桂林山野外一废弃牛棚意外走红](http://www.daogukj.com/ffeoohmm/)
+- [我说这俩队这么难踢 原来是冠亚军](http://www.daogukj.com/8793756)
 - [梁文锋打新长鑫科技](http://www.daogukj.com/9221593)
-- [朱志鑫疑似小腿受伤出血了](http://www.play.hengshemaoyi.cn/xiju/0638780.htm)
-- [如何评价邓煜的二次元属性，为什么十年前国内二次元圈子和高学历高精尖理工学子挂钩多？](http://www.daogukj.com/5791131)
-- [我宁愿在这个世界里，永远做一个你“尚未到来”的传说](http://www.daogukj.com/ripwhmis/)
-- [埃及裁判专家：阿根廷绝杀球应判无效](http://www.movie.hkepx.cn/xiju/0388039.htm)
-- [为什么都喜欢吃智利的车厘子而不喜欢吃中国的樱桃？](http://www.daogukj.com/5335466)
-- [美军战机低空飞行高速掠过人群](http://www.movie.hkepx.cn/movie/9946874.htm)
-- [马龙许昕全锦赛开门红](http://www.daogukj.com/eylipvua/)
-- [金靖回应虞书欣](http://www.play.hengshemaoyi.cn/kongbu/4095300.htm)
-- [我很清楚离职后可能找不到更好的工作，甚至是找不到工作，但我就是不想干了，这种感觉有人懂吗？](http://www.movie.hkepx.cn/movie/5118663.htm)
-- [《阴阳师》不相狐禅CG丨洪狐天运（CV：立花慎之介）](http://www.daogukj.com/qbzygzag/)
-- [德国主持人说辱华词语引众怒](http://www.movie.hkepx.cn/movie/1702335.htm)
-- [realme手机退出中国市场](http://www.movie.hkepx.cn/movie/3713595.htm)
-- [两京十五日](http://www.movie.hkepx.cn/xiju/1227154.htm)
-- [武契奇公开表示支持乌克兰](http://www.play.hengshemaoyi.cn/xiju/7776346.htm)
+- [第1次见女主怀孕相亲](http://www.play.hengshemaoyi.cn/xiju/0638780.htm)
+- [深圳文和友招牌拆除，CEO 确认撤场，为什么文和友难以走出长沙？](http://www.daogukj.com/5791131)
+- [矿石战争重制版一口气看完大合集](http://www.daogukj.com/ripwhmis/)
+- [小鹏汽车致歉](http://www.movie.hkepx.cn/xiju/0388039.htm)
+- [武汉最高温真的只有 39 度么？是怎么测量出来的？](http://www.daogukj.com/5335466)
+- [韩国股市暴涨暴跌 散户快疯了](http://www.movie.hkepx.cn/movie/9946874.htm)
+- [EWC淘汰赛](http://www.daogukj.com/eylipvua/)
+- [realme手机退出中国市场](http://www.play.hengshemaoyi.cn/kongbu/4095300.htm)
+- [长城汽车 2026 年上半年净利润骤降近六成，是什么原因导致的？](http://www.movie.hkepx.cn/movie/5118663.htm)
+- [比车速还是比手速？对抗路赛车兄弟对决揭晓！冠军是…🏁](http://www.daogukj.com/qbzygzag/)
+- [蜜雪冰城新公司部分岗月薪可达2万5](http://www.movie.hkepx.cn/movie/1702335.htm)
+- [以后快递地址只写到小区](http://www.movie.hkepx.cn/movie/3713595.htm)
+- [上班后没了叔叔阿姨](http://www.movie.hkepx.cn/xiju/1227154.htm)
+- [岛内民调称88%青年愿上战场结果翻车](http://www.play.hengshemaoyi.cn/xiju/7776346.htm)
 - [长鑫科技超 6000 员工获股份，IPO 后批量诞生千万富翁，如何看待长鑫科技上市？](http://www.movie.hkepx.cn/movie/2434946.htm)
-- [李在明警示：勿让年轻异性陪坐](http://www.daogukj.com/6801387)
-- [女子当街殴打89岁拾荒老人](http://www.daogukj.com/2226152)
+- [男子做胃肠镜突发心脏骤停成植物人](http://www.daogukj.com/6801387)
+- [沈音教授白丽萍夫妇意外离世](http://www.daogukj.com/2226152)
 
 </details>
 
 ## 原始来源
 
-- [《洛克王国：世界》远哥来了，福利稳了！](https://b23.tv/BV1KgNz6qEe4)
+- [bw唯一的独手薇尔莉特](https://b23.tv/BV1TMNq6cEHb)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: cc4c6c833be71d055b36 -->
+<!-- content-fingerprint: 5ecaf6b3ec6138d81454 -->
