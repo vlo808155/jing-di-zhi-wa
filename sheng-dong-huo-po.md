@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 周恺何卓佳vs袁励岑王艺迪
+# 中国博主看世界杯遭阿根廷球迷辱骂
 
-> 来源：百度热搜 · 排名：第 19 位 · 热度：5990785 · 更新：2026-07-17T19:59:48+08:00
+> 来源：百度热搜 · 排名：第 19 位 · 热度：5992216 · 更新：2026-07-18T00:38:37+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“周恺何卓佳vs袁励岑王艺迪”位列第 19 位，公开热度指标为 5990785。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“中国博主看世界杯遭阿根廷球迷辱骂”位列第 19 位，公开热度指标为 5992216。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-百度热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：近日，一名中国博主在观看世界杯赛事期间遭到阿根廷球迷言语攻击。当事人留存相关证据后向国际足联提交举报，现阶段正与赛事官方对接沟通，推进事件处置工作。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [迪丽热巴晒和张小斐合照](xu-xu-ru-sheng.md)
-- [外露式、半隐藏门把手集体回归](huo-ling-huo-xian.md)
-- [塞尔维亚总统武契奇公开支持乌克兰，称支持其领土主权完整，如何解读这一发言？可能会带来哪些影响？](you-sheng-you-se.md)
-- [晚上厨师长下班后，在店里开小灶，没卖完的食材，偷偷做个晚餐，和牛岩石烧，鲍鱼佐鲍鱼肝酱，酒煮文蛤](yin-ren-ru-sheng.md)
+- [EWC](xu-xu-ru-sheng.md)
+- [媒体：周星驰光影情怀不曾散](huo-ling-huo-xian.md)
+- [EWC英雄联盟电竞世界杯淘汰赛T1 2:0 战胜MSI冠军HLE，如何评价这场比赛？](you-sheng-you-se.md)
+- [原创AIGC剧集《有异人》【AI全民制作人】](yin-ren-ru-sheng.md)
 
 ## 站内推荐
 
-- [国防部回应“解放军来了”刷屏](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [大学生花50元起诉海航称“赢麻了”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [南方变“烧烤” 东北穿棉袄](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [5只小狗烤鸭店排队等吃鸭屁股](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [《三国第一部：争洛阳》放话不好看退票](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [山体崩塌现场还有34人失联](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [夏天这些病都是省出来的](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [“洗衣机”发威一击“烧死”无人机](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [重庆山体崩塌救援面临三大困难](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [“一方有难 八方做饭”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [A股今天暴跌原因](http://www.play.hengshemaoyi.cn/xiju/2367459.htm)
-- [月薪6万云海观察员被质疑是萝卜岗](http://www.daogukj.com/whykihfw/)
-- [伊朗：造成大量美军人员死亡](http://www.daogukj.com/1896871)
-- [哈兰德最喜欢的表情包产自中国网友](http://www.movie.hkepx.cn/movie/7726331.htm)
-- [我把你们奇怪的想法都做到了我的世界里#14](http://www.play.hengshemaoyi.cn/kongbu/7591988.htm)
-- [重庆彭水山体垮塌已救出10人](http://www.movie.hkepx.cn/movie/9833785.htm)
-- [《三国第一部：争洛阳》官方发文「觉得电影不好看的，可以找片方退票」，如何看待这一操作？](http://www.movie.hkepx.cn/movie/5639163.htm)
-- [曲婉婷母亲贪污3.5亿元职工安置费](http://www.daogukj.com/2186746)
-- [阿根廷总统缺席世界杯决赛原因](http://www.play.hengshemaoyi.cn/kongbu/2268018.htm)
-- [伊朗称摧毁多架美军战斗机](http://www.play.hengshemaoyi.cn/kongbu/6473132.htm)
-- [我的世界你建我猜，但是建的不是人能猜的！](http://www.daogukj.com/1106243)
-- [阿根廷备战决赛斯卡洛尼松弛感绝了](http://www.play.hengshemaoyi.cn/xiju/5943556.htm)
-- [“70后”伯纳姆将接任英国首相](http://www.daogukj.com/9530499)
-- [超市老板称「往年夏天卖断货的碳酸饮料，今年送都送不出去」，碳酸饮料为什么卖不动？是暂时还是大势所趋？](http://www.movie.hkepx.cn/xiju/0808829.htm)
-- [投放伟哥 不予立案](http://www.play.hengshemaoyi.cn/kongbu/8834808.htm)
+- [苏新皓发视频向粉丝道歉](http://www.play.hengshemaoyi.cn/xiju/2367459.htm)
+- [12306购票有新变化](http://www.daogukj.com/whykihfw/)
+- [“拼豆”被点名](http://www.daogukj.com/1896871)
+- [周星驰回应《功夫女足》给达叔留位置](http://www.movie.hkepx.cn/movie/7726331.htm)
+- [寻找卢本伟](http://www.play.hengshemaoyi.cn/kongbu/7591988.htm)
+- [重庆彭水山体崩塌已致8人遇难](http://www.movie.hkepx.cn/movie/9833785.htm)
+- [如果我身边的朋友的孩子都很厉害都是学霸，我的孩子相对比较平凡，我还和这些家庭一起亲子活动吗？](http://www.movie.hkepx.cn/movie/5639163.htm)
+- [功夫女足让韩国人破防了](http://www.daogukj.com/2186746)
+- [王俊凯 金发](http://www.play.hengshemaoyi.cn/kongbu/2268018.htm)
+- [外露式、半隐藏门把手集体回归](http://www.play.hengshemaoyi.cn/kongbu/6473132.htm)
+- [DECO*27 - Dummy Romance feat. Hatsune Miku](http://www.daogukj.com/1106243)
+- [别错过一天中的排便黄金时间](http://www.play.hengshemaoyi.cn/xiju/5943556.htm)
+- [蔡磊牵线研发国产渐冻症药有望上市](http://www.daogukj.com/9530499)
+- [《食神·百厨大战》开播，广东选手做了一盘没带酱料的白切鸡被评委淘汰，淘汰得对吗？](http://www.movie.hkepx.cn/xiju/0808829.htm)
+- [BLG对战DK](http://www.play.hengshemaoyi.cn/kongbu/8834808.htm)
 - [气象台不敢报40℃？谣言](http://www.movie.hkepx.cn/xiju/0940758.htm)
-- [路边摊吃盒饭 吃成摊主](http://www.movie.hkepx.cn/movie/9022890.htm)
-- [《最倒霉の霸总》](http://www.play.hengshemaoyi.cn/kongbu/2216390.htm)
-- [耗时9999小时！一口气看完熊出没末路大合集！](http://www.play.hengshemaoyi.cn/xiju/1375823.htm)
-- [没有什么稳定的工作](http://www.daogukj.com/goeqgpai/)
-- [西班牙21世纪四进决赛全夺冠](http://www.play.hengshemaoyi.cn/kongbu/1757591.htm)
-- [女子睡梦中睁眼和毒蛇对视上了](http://www.play.hengshemaoyi.cn/kongbu/9879555.htm)
-- [国防部回应“解放军来了”刷屏](http://www.play.hengshemaoyi.cn/xiju/7503553.htm)
-- [男子帮台湾游客拍照 竟是失联大伯](http://www.movie.hkepx.cn/xiju/5861166.htm)
-- [很多童星长大后很难转型成功，他们最大的困境是什么？](http://www.play.hengshemaoyi.cn/xiju/5549607.htm)
+- [【乌鲁鲁-狂怒】干员研究外观实录](http://www.movie.hkepx.cn/movie/9022890.htm)
+- [路边摊吃盒饭 吃成摊主](http://www.play.hengshemaoyi.cn/kongbu/2216390.htm)
+- [The Verity Cast Plays The REAL Verity Mod](http://www.play.hengshemaoyi.cn/xiju/1375823.htm)
+- [JYP女团成员Angelababy](http://www.daogukj.com/goeqgpai/)
+- [王濛预测西班牙夺冠](http://www.play.hengshemaoyi.cn/kongbu/1757591.htm)
+- [《功夫女足》值得分析的有哪些](http://www.play.hengshemaoyi.cn/kongbu/9879555.htm)
+- [山体崩塌现场还有34人失联](http://www.play.hengshemaoyi.cn/xiju/7503553.htm)
+- [批发商感慨买雪糕的人明显少了](http://www.movie.hkepx.cn/xiju/5861166.htm)
+- [为什么“锄禾日当午”，除草要在中午呢？](http://www.play.hengshemaoyi.cn/xiju/5549607.htm)
 - [【独家】《百日成王》第8集 女孩子们真的又勇敢又可爱！【7月国创】](http://www.play.hengshemaoyi.cn/kongbu/6769731.htm)
-- [“洗衣机”发威一击“烧死”无人机](http://www.play.hengshemaoyi.cn/xiju/8003531.htm)
-- [原创AIGC剧集《有异人》【AI全民制作人】](http://www.movie.hkepx.cn/xiju/9172364.htm)
-- [汽车人空降峡谷！变卡车、骑机械霸王龙！自制亚瑟擎天柱皮肤！](http://www.movie.hkepx.cn/movie/6262590.htm)
-- [外媒：中国全淹了？老王：别扯了！我正忙着在宁夏赶大集，炫18块钱的热乎手擀面呢！哈哈！](http://www.play.hengshemaoyi.cn/kongbu/5906748.htm)
-- [孙燕姿 曲婉婷](http://www.daogukj.com/goynbzba/)
-- [王源易烊千玺给王俊凯送了花篮](http://www.daogukj.com/oqkhnwnb/)
-- [妙妙是非常美好的女孩](http://www.movie.hkepx.cn/xiju/8878997.htm)
-- [幕后花絮|五五开给自己配音有多难？](http://www.daogukj.com/frbhpamg/)
-- [麦当劳店员疑向顾客可乐吐口水](http://www.daogukj.com/8218296)
-- [微信又出新功能：已经玩嗨了](http://www.movie.hkepx.cn/xiju/3382411.htm)
-- [塞尔维亚总统武契奇公开支持乌克兰，称支持其领土主权完整，如何解读这一发言？可能会带来哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/3195197.htm)
-- [今年的世界人工智能大会（WAIC）有哪些看点？](http://www.movie.hkepx.cn/xiju/8373508.htm)
-- [大学生花50元起诉海航称“赢麻了”](http://www.daogukj.com/uamigzyj/)
-- [穆祉丞一直在掐自己](http://www.daogukj.com/uevljbcs/)
-- [清吧伟哥事件](http://www.play.hengshemaoyi.cn/xiju/4322946.htm)
-- [《三国第一部：争洛阳》放话不好看退票](http://www.movie.hkepx.cn/movie/3471289.htm)
-- [深圳市委原常委王强主动投案被查](http://www.movie.hkepx.cn/movie/3873340.htm)
-- [哥哥605分考上军校 妹妹争着领牌匾](http://www.daogukj.com/0908523)
-- [男子帮台湾游客拍照发现是失联大伯](http://www.daogukj.com/7782066)
-- [晚上厨师长下班后，在店里开小灶，没卖完的食材，偷偷做个晚餐，和牛岩石烧，鲍鱼佐鲍鱼肝酱，酒煮文蛤](http://www.play.hengshemaoyi.cn/kongbu/3377780.htm)
-- [小米 SU7 碰撞测试博主「原来是翔翔啊」因捏造事实被判刑一年八个月，罚款 10 万元，你怎么看？](http://www.play.hengshemaoyi.cn/xiju/9852587.htm)
+- [四人操纵股票获利1.57亿被罚没6.27亿](http://www.play.hengshemaoyi.cn/xiju/8003531.htm)
+- [《绝区零》3.1版本「漫长的告别」前瞻特别节目](http://www.movie.hkepx.cn/xiju/9172364.htm)
+- [这集有点邦球拉啊！](http://www.movie.hkepx.cn/movie/6262590.htm)
+- [哈哈哈哈（3）](http://www.play.hengshemaoyi.cn/kongbu/5906748.htm)
+- [刘惜君 一个人的突围赛](http://www.daogukj.com/goynbzba/)
+- [穆祉丞 我会照顾好自己](http://www.daogukj.com/oqkhnwnb/)
+- [耳帝 这场选实在不出四位](http://www.movie.hkepx.cn/xiju/8878997.htm)
+- [魔怔萌二和暴躁粗鲁女的相亲历险记](http://www.daogukj.com/frbhpamg/)
+- [何炅5G冲浪：哦买噶 你吓到我了](http://www.daogukj.com/8218296)
+- [《功夫女足》进入2026年度票房榜前5](http://www.movie.hkepx.cn/xiju/3382411.htm)
+- [EWC英雄联盟电竞世界杯淘汰赛T1 2:0 战胜MSI冠军HLE，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/3195197.htm)
+- [《功夫女足》上映 7 天票房突破 10 亿大关，登顶2026年暑期票房榜，你认为还有其他影片能赶超吗？](http://www.movie.hkepx.cn/xiju/8373508.htm)
+- [夏天这些病都是省出来的](http://www.daogukj.com/uamigzyj/)
+- [A股今天暴跌原因](http://www.daogukj.com/uevljbcs/)
+- [西班牙晒大力神杯](http://www.play.hengshemaoyi.cn/xiju/4322946.htm)
+- [“一方有难 八方做饭”](http://www.movie.hkepx.cn/movie/3471289.htm)
+- [飞天茅台再涨价](http://www.movie.hkepx.cn/movie/3873340.htm)
+- [伊朗称摧毁多架美军战斗机](http://www.daogukj.com/0908523)
+- [媒体：“不赢”是星爷花甲之年的清醒](http://www.daogukj.com/7782066)
+- [原创AIGC剧集《有异人》【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/3377780.htm)
+- [阿根廷球员赛后发现英格兰战术小抄，如何评价英格兰准备的小抄战术？比赛场上可以偷看对手小抄吗？](http://www.play.hengshemaoyi.cn/xiju/9852587.htm)
 - [气象台不敢报40℃？真相来了](http://www.daogukj.com/njwfupeo/)
-- [一文看懂国家网络身份认证使用场景](http://www.play.hengshemaoyi.cn/kongbu/1527267.htm)
-- [想唱歌，先整活！鬼畜瑰宝《中国梦之声》名场面大盘点~](http://www.play.hengshemaoyi.cn/xiju/3775329.htm)
+- [80后女子吐槽断崖式衰老被喊奶奶](http://www.play.hengshemaoyi.cn/kongbu/1527267.htm)
+- [当我去闺蜜家玩遇到闺蜜妈妈](http://www.play.hengshemaoyi.cn/xiju/3775329.htm)
 
 </details>
 
 ## 原始来源
 
-- [周恺何卓佳vs袁励岑王艺迪](https://www.baidu.com/s?wd=%E5%91%A8%E6%81%BA%E4%BD%95%E5%8D%93%E4%BD%B3vs%E8%A2%81%E5%8A%B1%E5%B2%91%E7%8E%8B%E8%89%BA%E8%BF%AA&sa=fyb_news&rsv_dl=fyb_news)
+- [中国博主看世界杯遭阿根廷球迷辱骂](https://www.baidu.com/s?wd=%E4%B8%AD%E5%9B%BD%E5%8D%9A%E4%B8%BB%E7%9C%8B%E4%B8%96%E7%95%8C%E6%9D%AF%E9%81%AD%E9%98%BF%E6%A0%B9%E5%BB%B7%E7%90%83%E8%BF%B7%E8%BE%B1%E9%AA%82&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 161c61acfef03302d3d3 -->
+<!-- content-fingerprint: dc443add4bc3fec16e74 -->
