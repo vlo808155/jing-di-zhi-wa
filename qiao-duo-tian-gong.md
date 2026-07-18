@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 《功夫女足》进入2026年度票房榜前5
+# 《功夫女足》梨花队让韩网友破防
 
-> 来源：百度热搜 · 排名：第 18 位 · 热度：6097549 · 更新：2026-07-18T07:12:29+08:00
+> 来源：今日头条热榜 · 排名：第 19 位 · 热度：6331231 · 分类：热门事件 · 更新：2026-07-18T14:31:45+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“《功夫女足》进入2026年度票房榜前5”位列第 18 位，公开热度指标为 6097549。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“《功夫女足》梨花队让韩网友破防”位列第 19 位，公开热度指标为 6331231，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：据猫眼专业版数据，电影《功夫女足》累计票房（含预售）超10.68亿，进入2026年度票房榜前五，电影上映7天，观影人次破3000万。
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
 
 ## 相关热点
 
-- [张凌赫发了52个火](gui-fu-shen-gong.md)
-- [男子帮台湾游客拍照发现是失联大伯](jin-shang-tian-hua.md)
-- [如果我身边的朋友的孩子都很厉害都是学霸，我的孩子相对比较平凡，我还和这些家庭一起亲子活动吗？](hua-long-dian-jing.md)
-- [魔怔萌二和暴躁粗鲁女的相亲历险记](miao-bi-sheng-hua.md)
+- [Linus 称 Linux 不搞「反 AI」，并要求「要么 fork，要么走人」，这会带来哪些影响？](gui-fu-shen-gong.md)
+- [古典美声+喉音技巧融合](jin-shang-tian-hua.md)
+- [95后夫妻手搓AI漫剧爆火](hua-long-dian-jing.md)
+- [陈冠希现在长得比姜思达还像大冰](miao-bi-sheng-hua.md)
 
 ## 站内推荐
 
-- [重庆彭水山体崩塌已致8人遇难](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [12306购票有新变化](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [周星驰回应《功夫女足》给达叔留位置](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [中国博主看世界杯遭阿根廷球迷辱骂](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [天空上演“星月对话”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [锂电池要和成品油一样交消费税了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [“我家没受灾 就是想请你们吃饭”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [嫌机票贵买二手车亏一万多](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [低精力人群为何总是看起来很疲惫](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [杜华儿子崇拜李飞想去时代峰峻](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [日本护士将排泄物混入患者输液管致其死亡，排泄物进入血液为什么会致命？如何防范内部人员带来的医疗风险？](http://www.movie.hkepx.cn/movie/3926125.htm)
-- [管泽元](http://www.daogukj.com/jbrqqhbh/)
-- [抓10只蚊子免费换奶茶？商场回应](http://www.daogukj.com/6283106)
-- [2026 EWC 英雄联盟项目 BLG 1:2 不敌 DK 无缘四强，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/xiju/3501535.htm)
-- [小米 SU7 碰撞测试博主「原来是翔翔啊」因捏造事实被判刑一年八个月，罚款 10 万元，你怎么看？](http://www.daogukj.com/tfcvjhpk/)
-- [【独家】《百日成王》第8集 女孩子们真的又勇敢又可爱！【7月国创】](http://www.daogukj.com/4841868)
-- [LPL队伍全部出局](http://www.play.hengshemaoyi.cn/kongbu/6429820.htm)
-- [智能体互信互联互操作全球合作倡议](http://www.daogukj.com/jehuxdgs/)
-- [能不能在黄河边上挖一条运河，让黄河改道，把地上河铲平了，再改回去？](http://www.movie.hkepx.cn/xiju/1384580.htm)
-- [全球首款机器人手机亮相引老外围观](http://www.daogukj.com/qyeqjnqv/)
-- [6 月中国原油进口大降四成，创下十年月度新低，是需求减弱还是其他原因？](http://www.movie.hkepx.cn/movie/7212048.htm)
-- [世界杯冠军将获定制戒指 球迷也能买](http://www.movie.hkepx.cn/xiju/5780029.htm)
-- [飞天茅台再涨价](http://www.daogukj.com/efezhgld/)
-- [ofo 停更近 5 年后突然发文，此次「复活」释放了什么信号？199元押金还有可能退回吗？](http://www.play.hengshemaoyi.cn/kongbu/8328027.htm)
-- [成都突发车祸一车烧成空壳](http://www.movie.hkepx.cn/xiju/5360773.htm)
-- [气象台不敢报40℃？谣言](http://www.movie.hkepx.cn/movie/9566975.htm)
-- [BLG Bin单曲《螺样子》](http://www.daogukj.com/8649041)
-- [【纪录片】一招一食 第六回 火](http://www.daogukj.com/zvuykujr/)
-- [七旬奶奶寻恩人 网友提供线索遇反转](http://www.daogukj.com/smataala/)
-- [体检中心回应体检无异常确诊肾癌](http://www.daogukj.com/mzqlfhhq/)
-- [歌手排名](http://www.play.hengshemaoyi.cn/kongbu/8184754.htm)
-- [张凌赫发了52个火](http://www.movie.hkepx.cn/movie/8042143.htm)
-- [友情提示：这是一个解压视频.](http://www.play.hengshemaoyi.cn/xiju/7145463.htm)
-- [美取消涉港国家紧急状态 中方赞赏](http://www.play.hengshemaoyi.cn/kongbu/4548535.htm)
-- [DECO*27 - Dummy Romance feat. Hatsune Miku](http://www.daogukj.com/0313251)
-- [朱志鑫运动会](http://www.play.hengshemaoyi.cn/kongbu/0820222.htm)
-- [看不见的咖啡因终于可视化了](http://www.daogukj.com/btolggbq/)
-- [男子帮台湾游客拍照发现是失联大伯](http://www.play.hengshemaoyi.cn/xiju/2703241.htm)
-- [店主回应送老顾客彩票中508万](http://www.play.hengshemaoyi.cn/xiju/1475778.htm)
-- [我把你们奇怪的想法都做到了我的世界里#14](http://www.play.hengshemaoyi.cn/xiju/4475779.htm)
-- [英国政府拟通过相关立法，将中国敬业集团旗下的英国钢铁公司国有化，对此你怎么看？](http://www.play.hengshemaoyi.cn/xiju/3969235.htm)
-- [“拼豆”被点名](http://www.play.hengshemaoyi.cn/kongbu/1797022.htm)
-- [气象台不敢报40℃？真相来了](http://www.movie.hkepx.cn/xiju/9886322.htm)
-- [“北方之王”即将入主唐宁街](http://www.play.hengshemaoyi.cn/xiju/1914744.htm)
-- [现在该买房还是卖房](http://www.movie.hkepx.cn/movie/2301491.htm)
-- [🐧赛伊德：“我变成女孩了？！”🐧](http://www.play.hengshemaoyi.cn/xiju/2353249.htm)
-- [没有什么稳定的工作](http://www.daogukj.com/fownzino/)
-- [为什么“锄禾日当午”，除草要在中午呢？](http://www.play.hengshemaoyi.cn/xiju/3652466.htm)
-- [天空上演“星月对话”](http://www.daogukj.com/7447842)
-- [重庆彭水山体崩塌已致8人遇难](http://www.daogukj.com/kzpjmnze/)
-- [住房被写成“大宗耐用消费品”意味啥](http://www.play.hengshemaoyi.cn/kongbu/4160936.htm)
-- [超110艘俄船只遭“史无前例”的袭击](http://www.daogukj.com/5391271)
-- [半夜断电 女子一问得知酒店突然倒闭](http://www.play.hengshemaoyi.cn/xiju/1037193.htm)
-- [《阴阳师》不相狐禅CG丨洪狐天运（CV：立花慎之介）](http://www.daogukj.com/4166842)
-- [原创AIGC剧集《有异人》【AI全民制作人】](http://www.movie.hkepx.cn/xiju/6638941.htm)
-- [别错过一天中的排便黄金时间](http://www.play.hengshemaoyi.cn/kongbu/4151588.htm)
-- [5只小狗烤鸭店排队等吃鸭屁股](http://www.daogukj.com/jguwcjlw/)
-- [这场大会让上海变成“未来城”](http://www.movie.hkepx.cn/xiju/6322184.htm)
-- [功夫女足让韩国人破防了](http://www.play.hengshemaoyi.cn/xiju/2530472.htm)
-- [路边摊吃盒饭 吃成摊主](http://www.daogukj.com/5202971)
+- [新疆真有追人蜱虫！帮大家拍到了](http://www.movie.hkepx.cn/movie/3926125.htm)
+- [重庆崩塌最大山石体积相当于1栋楼](http://www.daogukj.com/jbrqqhbh/)
+- [陈伟霆何穗带儿子出游](http://www.daogukj.com/6283106)
+- [为什么《暮光之城》男主扮演者这么讨厌《暮光之城》？](http://www.play.hengshemaoyi.cn/xiju/3501535.htm)
+- [寻找卢本伟](http://www.daogukj.com/tfcvjhpk/)
+- [BLG Bin单曲《螺样子》](http://www.daogukj.com/4841868)
+- [输给莎头的夫妻组合收获全场掌声](http://www.play.hengshemaoyi.cn/kongbu/6429820.htm)
+- [水利部解读防汛关键期热点问题](http://www.daogukj.com/jehuxdgs/)
+- [黄仁勋签名皮衣卖了96万美元](http://www.movie.hkepx.cn/xiju/1384580.htm)
+- [豆包清理C盘还是太权威了](http://www.daogukj.com/qyeqjnqv/)
+- [😋“鲁鲁逊漂流记3”😋](http://www.movie.hkepx.cn/movie/7212048.htm)
+- [能不能在黄河边上挖一条运河，让黄河改道，把地上河铲平了，再改回去？](http://www.movie.hkepx.cn/xiju/5780029.htm)
+- [公安部原部长助理谭权已任重庆市领导](http://www.daogukj.com/efezhgld/)
+- [铠甲勇士刑天·守护初心【P1】你是谁？](http://www.play.hengshemaoyi.cn/kongbu/8328027.htm)
+- [【独家】《百日成王》第8集 女孩子们真的又勇敢又可爱！【7月国创】](http://www.movie.hkepx.cn/xiju/5360773.htm)
+- [网传阿根廷绝杀前犯规的「证据图」被证实为AI篡改，如何评价？球衣号码都错误的AI假图为何能被大量转发？](http://www.movie.hkepx.cn/movie/9566975.htm)
+- [“县长硬刚首富”背后是权力傲慢](http://www.daogukj.com/8649041)
+- [快递地址只写到小区真的是妙招吗](http://www.daogukj.com/zvuykujr/)
+- [95后夫妻手搓500集AI漫剧爆火](http://www.daogukj.com/smataala/)
+- [迪士尼《海洋奇缘：启航》票房惨败，首周全球 9500 万美元远低预期，恐净亏损 1 亿美元，原因何在？](http://www.daogukj.com/mzqlfhhq/)
+- [王俊凯喝醉在厕所睡了两个半小时](http://www.play.hengshemaoyi.cn/kongbu/8184754.htm)
+- [Linus 称 Linux 不搞「反 AI」，并要求「要么 fork，要么走人」，这会带来哪些影响？](http://www.movie.hkepx.cn/movie/8042143.htm)
+- [【独家】《凡人修仙传之慕兰之战》第7集【总第183集】](http://www.play.hengshemaoyi.cn/xiju/7145463.htm)
+- [《功夫女足》越骂越火](http://www.play.hengshemaoyi.cn/kongbu/4548535.htm)
+- [酒店不想再送免费早餐了](http://www.daogukj.com/0313251)
+- [广西横州抗蛇毒血清告急？假的](http://www.play.hengshemaoyi.cn/kongbu/0820222.htm)
+- [赛中对手球拍掉了莎头组合吓出表情包](http://www.daogukj.com/btolggbq/)
+- [古典美声+喉音技巧融合](http://www.play.hengshemaoyi.cn/xiju/2703241.htm)
+- [6 月中国原油进口大降四成，创下十年月度新低，是需求减弱还是其他原因？](http://www.play.hengshemaoyi.cn/xiju/1475778.htm)
+- [气象台不敢报40℃？真相来了](http://www.play.hengshemaoyi.cn/xiju/4475779.htm)
+- [如何评价月之暗面kimi最新发布的大模型 k3 ?](http://www.play.hengshemaoyi.cn/xiju/3969235.htm)
+- [王楚钦/孙颖莎晋级全锦赛混双四强](http://www.play.hengshemaoyi.cn/kongbu/1797022.htm)
+- [官俊臣 重庆大学](http://www.movie.hkepx.cn/xiju/9886322.htm)
+- [杜华劝邹市明去看病](http://www.play.hengshemaoyi.cn/xiju/1914744.htm)
+- [黄仁勋标志性皮衣以96万美元成交](http://www.movie.hkepx.cn/movie/2301491.htm)
+- [阿根廷西班牙决赛均穿主场球衣](http://www.play.hengshemaoyi.cn/xiju/2353249.htm)
+- [大衣哥测试除草剂草长疯了果断拒代言](http://www.daogukj.com/fownzino/)
+- [哈哈哈哈（3）](http://www.play.hengshemaoyi.cn/xiju/3652466.htm)
+- [杜华儿子崇拜李飞想去时代峰峻](http://www.daogukj.com/7447842)
+- [锂电池要和成品油一样交消费税了](http://www.daogukj.com/kzpjmnze/)
+- [如何评价东方梦工厂出品的动画电影《八仙！》？](http://www.play.hengshemaoyi.cn/kongbu/4160936.htm)
+- [机器人格斗赛头部脱落后仍能继续战斗，为什么头掉了还能打？这算不算人形机器人的成熟标志？](http://www.daogukj.com/5391271)
+- [如何看待《凡人修仙传》第183集？](http://www.play.hengshemaoyi.cn/xiju/1037193.htm)
+- [自助餐为何“没吃几口就饱”](http://www.daogukj.com/4166842)
+- [郭帆点赞《八仙！》：出影院汗毛还立着](http://www.movie.hkepx.cn/xiju/6638941.htm)
+- [学历史有什么用？](http://www.play.hengshemaoyi.cn/kongbu/4151588.htm)
+- [孙怡瘦到连皮靴都直往下掉](http://www.daogukj.com/jguwcjlw/)
+- [感受人工智能的“智”与“志”](http://www.movie.hkepx.cn/xiju/6322184.htm)
+- [重庆山体崩塌](http://www.play.hengshemaoyi.cn/xiju/2530472.htm)
+- [韩国35万散户被强制平仓](http://www.daogukj.com/5202971)
 
 </details>
 
 ## 原始来源
 
-- [《功夫女足》进入2026年度票房榜前5](https://www.baidu.com/s?wd=%E3%80%8A%E5%8A%9F%E5%A4%AB%E5%A5%B3%E8%B6%B3%E3%80%8B%E8%BF%9B%E5%85%A52026%E5%B9%B4%E5%BA%A6%E7%A5%A8%E6%88%BF%E6%A6%9C%E5%89%8D5&sa=fyb_news&rsv_dl=fyb_news)
+- [《功夫女足》梨花队让韩网友破防](https://www.toutiao.com/trending/7662925610188521522/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227662925610188521522%22%2C%22hot_board_impr_id%22%3A%22202607181431443C05BB078A35A7D5AE42%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: bf75d068d0eacb6e93c7 -->
+<!-- content-fingerprint: 00d85d601ab4fb94cafb -->
