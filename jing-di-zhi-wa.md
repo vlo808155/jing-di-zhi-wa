@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 唐嫣紧身衣身材
+# 马斯克宣称要赶超Kimi
 
-> 来源：微博热搜 · 排名：第 21 位 · 热度：352844 · 分类：艺人 · 更新：2026-07-19T19:39:08+08:00
+> 来源：微博热搜 · 排名：第 17 位 · 热度：529647 · 分类：互联网 · 更新：2026-07-19T22:43:53+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“唐嫣紧身衣身材”位列第 21 位，公开热度指标为 352844，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“马斯克宣称要赶超Kimi”位列第 17 位，公开热度指标为 529647，榜单分类为“互联网”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `艺人`
+`微博热搜` `实时热搜` `热点资讯` `互联网`
 
 ## 相关热点
 
-- [清华大学的学生中有80%的人是过目不忘的，这个是真的么？](hai-kuo-tian-kong.md)
-- [挑战巨型水气球！最后谁会变成落汤鸡？！#挑战# #野兽先生# #MrBeast# #vlog# #整活](gao-zhan-yuan-zhu.md)
-- [考生笔试第一却落选 官方最新通报](xiong-you-cheng-zhu.md)
-- [上咪咕直击世界杯终局之战](yun-chou-wei-wo.md)
+- [85岁浙商12.9亿卖掉自家上市公司](hai-kuo-tian-kong.md)
+- [为什么真人版的毛利兰都没有角？](gao-zhan-yuan-zhu.md)
+- [铠甲勇士刑天·守护初心【P2】光暗一体](xiong-you-cheng-zhu.md)
+- [这一秒过火强吻好尬](yun-chou-wei-wo.md)
 
 ## 站内推荐
 
-- [美加墨世界杯决赛，西班牙 vs 阿根廷，你更看好哪支球队？决胜的关键是什么？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [杭州图书馆允许流浪汉免费入馆阅读，回复投诉读者“我无权拒绝任何人，但你可以离开”，这个做法是否合理？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [最早那一批做断骨增高的人，现在怎么样了？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [友情提示：这是一个解压视频.](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [轻飘~兄弟](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [新动能的三张“新面孔”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [世界杯决赛：西班牙vs阿根廷](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [谁给代露娃做的妆造](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [西班牙阿根廷预测](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [长鑫科技770万个中签号背后](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [在人类禁区哀牢山徒步，据说里面1h等于外面60分钟](http://www.play.hengshemaoyi.cn/xiju/2682331.htm)
-- [姆巴佩说我们也是人](http://www.movie.hkepx.cn/movie/3552953.htm)
-- [乌称俄40分钟向基辅发射约40枚导弹](http://www.movie.hkepx.cn/xiju/5501331.htm)
-- [不是哥们，放火威胁律师 ？](http://www.daogukj.com/5865714)
-- [重庆爱心摩托车严重饱和](http://www.movie.hkepx.cn/xiju/6974026.htm)
-- [莫迪称印度正积极申办2036年奥运会](http://www.movie.hkepx.cn/movie/6932309.htm)
-- [多队球衣已打折 国足球衣仍105美元](http://www.play.hengshemaoyi.cn/xiju/6279680.htm)
-- [最早那一批做断骨增高的人，现在怎么样了？](http://www.movie.hkepx.cn/movie/2684858.htm)
-- [葡媒评世界杯最令人失望23人](http://www.daogukj.com/4259523)
-- [旭旭宝宝回应言论争议](http://www.daogukj.com/qgjsruwo/)
-- [如何评价EWC八强赛BLG 1:2 DK的比赛中，上单选手Bin在三局游戏中的整体表现？](http://www.play.hengshemaoyi.cn/kongbu/0099761.htm)
-- [存钱过万一定要办理纸质存单](http://www.play.hengshemaoyi.cn/kongbu/2800065.htm)
-- [当Bob获得了超能力！](http://www.movie.hkepx.cn/xiju/7938027.htm)
-- [胜你不须第二嚼！](http://www.daogukj.com/yxmhbgmj/)
+- [友情提示：这是一个解压视频.](http://www.play.hengshemaoyi.cn/xiju/2682331.htm)
+- [央视曝0公里二手电动自行车猫腻](http://www.movie.hkepx.cn/movie/3552953.htm)
+- [法国门将身价堪比一杯蜜雪冰城](http://www.movie.hkepx.cn/xiju/5501331.htm)
+- [卫健委辟谣韩红基金会物资分配不均](http://www.daogukj.com/5865714)
+- [长鑫科技海外加密合约炒到8.64美元，市值一度逼近4万亿元人民币，是A股发行价估值的近7倍，如何解读？](http://www.movie.hkepx.cn/xiju/6974026.htm)
+- [下周A股会回稳吗](http://www.movie.hkepx.cn/movie/6932309.htm)
+- [马龙许昕合体撕开国乒男队窘境](http://www.play.hengshemaoyi.cn/xiju/6279680.htm)
+- [谁给代露娃做的妆造](http://www.movie.hkepx.cn/movie/2684858.htm)
+- [黄健翔：阿根廷面对西班牙不存在劣势](http://www.daogukj.com/4259523)
+- [西班牙球员称阿根廷不脏](http://www.daogukj.com/qgjsruwo/)
+- [来杯好茶摇一摇，但是英语版](http://www.play.hengshemaoyi.cn/kongbu/0099761.htm)
+- [九尾 无畏](http://www.play.hengshemaoyi.cn/kongbu/2800065.htm)
+- [马龙许昕 法拉利老了还是法拉利](http://www.movie.hkepx.cn/xiju/7938027.htm)
+- [法国 4-6 英格兰这场比赛算是诚信互刷吗？你怎么看？](http://www.daogukj.com/yxmhbgmj/)
 - [宜家集中出售 8 座商场，已全面清空，其中 7 家商场今年关停，如何看待宜家此次大规模资产处置？](http://www.daogukj.com/ysjajnjj/)
-- [轻飘~兄弟](http://www.daogukj.com/4118538)
-- [阿根廷决赛全家福](http://www.play.hengshemaoyi.cn/kongbu/8139573.htm)
-- [韩国股民迎来股市“大变脸”](http://www.daogukj.com/bgjdqoal/)
-- [现在有的老人连车都打不到](http://www.play.hengshemaoyi.cn/kongbu/1399796.htm)
-- [LGDNBW对战JDG](http://www.movie.hkepx.cn/xiju/1312398.htm)
-- [林诗栋蒯曼全锦赛混双夺冠](http://www.daogukj.com/hqgapaxs/)
-- [阿根廷夺冠概率40%](http://www.play.hengshemaoyi.cn/xiju/5373978.htm)
-- [【纪录片】闪闪的儿科医生4 第8集 爱的回归线](http://www.daogukj.com/1191954)
-- [这一秒过火 红果亦是果](http://www.daogukj.com/6834210)
-- [央视曝0公里二手电动自行车猫腻](http://www.movie.hkepx.cn/movie/6540828.htm)
-- [如何看待索尼宣布取消实体盘半个月后，官方账号沦陷，发什么都被冲，玩家愤怒不仅没减弱反而日益激烈？](http://www.movie.hkepx.cn/movie/7210597.htm)
-- [水皮](http://www.movie.hkepx.cn/xiju/0123432.htm)
-- [有什么东西正在敲你的门……](http://www.play.hengshemaoyi.cn/kongbu/3128174.htm)
-- [林诗栋蒯曼夺冠](http://www.daogukj.com/7181360)
-- [肯德基+必胜客+塔斯汀 史上最强山寨汉堡！](http://www.daogukj.com/6926357)
-- [寻找卢本伟](http://www.play.hengshemaoyi.cn/kongbu/9049497.htm)
-- [四个一起冒烟！狂！大司马杯最搞笑一幕：导播可以开摄像头了。](http://www.daogukj.com/eiphdnwm/)
-- [5个关键词 一文读懂中国经济半年报](http://www.movie.hkepx.cn/xiju/7401130.htm)
-- [⚽世 界 杯 男 团⚽](http://www.movie.hkepx.cn/movie/7110434.htm)
-- [《绝区零》二周年主题曲MV | 预言](http://www.play.hengshemaoyi.cn/kongbu/4490690.htm)
-- [“高考估分715查分299”？警方通报](http://www.movie.hkepx.cn/movie/6518386.htm)
-- [穿山甲和瓜老板的世纪同框](http://www.daogukj.com/8067678)
-- [挑战巨型水气球！最后谁会变成落汤鸡？！#挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.play.hengshemaoyi.cn/kongbu/6649001.htm)
-- [如何评价动画《哥布林杀手》中尽管在生死攸关的时候，精灵仍然禁止主角使用水攻、火攻、毒攻的行为？](http://www.daogukj.com/htblbqcb/)
-- [2026年美加墨世界杯世界杯季军赛法国 4:6 英格兰，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/xiju/4658280.htm)
-- [上海暴雨如注](http://www.movie.hkepx.cn/xiju/0000676.htm)
-- [美国纽约暴发军团病](http://www.play.hengshemaoyi.cn/kongbu/4700540.htm)
-- [“黄总”事件和解 不等于疑问清零](http://www.movie.hkepx.cn/xiju/2723766.htm)
-- [手机次次充到100%也伤电池](http://www.daogukj.com/sxyjxhms/)
-- [灿如繁星直播](http://www.play.hengshemaoyi.cn/kongbu/7497786.htm)
-- [这波躺赢了](http://www.play.hengshemaoyi.cn/kongbu/0039607.htm)
-- [【独家】牧神记 第92集 牛车](http://www.daogukj.com/9799008)
-- [和孩子沟通困难，明明是讨论，但家长提出问题，为什么孩子却不能理解和接受？](http://www.daogukj.com/uavkxthj/)
-- [警方曝光牛肉制假案件，猪肉涂牛油泡牛血变「鲜牛肉」，暴露了哪些问题？消费者能从口感上分辨牛肉和猪肉吗？](http://www.play.hengshemaoyi.cn/xiju/1469979.htm)
-- [《飞舞吧忍者第二季》ep01—忍在囧途](http://www.play.hengshemaoyi.cn/kongbu/2837480.htm)
+- [长鑫科技770万个中签号背后](http://www.daogukj.com/4118538)
+- [现在能抄底A股吗](http://www.play.hengshemaoyi.cn/kongbu/8139573.htm)
+- [电影《八仙！》票房突破 2 亿，猫眼预测超14亿，你觉得最终票房能到多少？](http://www.daogukj.com/bgjdqoal/)
+- [感觉你是那种人 [熊大语录]](http://www.play.hengshemaoyi.cn/kongbu/1399796.htm)
+- [美加墨世界杯决赛，西班牙 vs 阿根廷，你更看好哪支球队？决胜的关键是什么？](http://www.movie.hkepx.cn/xiju/1312398.htm)
+- [7 月 19 日苏州、杭州、上海等地遭遇大暴雨，你那儿雨下得大吗？出行和生活有没有受到影响？](http://www.daogukj.com/hqgapaxs/)
+- [超级计算机预测世界杯冠军](http://www.play.hengshemaoyi.cn/xiju/5373978.htm)
+- [在人类禁区哀牢山徒步，据说里面1h等于外面60分钟](http://www.daogukj.com/1191954)
+- [广东9岁女孩因抠鼻孔险些毁容](http://www.daogukj.com/6834210)
+- [邓亚萍祝贺马龙许昕：姜还是老的辣](http://www.movie.hkepx.cn/movie/6540828.htm)
+- [存钱过万一定要办理纸质存单](http://www.movie.hkepx.cn/movie/7210597.htm)
+- [72岁刘德凯在昆明保养车被偶遇](http://www.movie.hkepx.cn/xiju/0123432.htm)
+- [青春启程踏歌行](http://www.play.hengshemaoyi.cn/kongbu/3128174.htm)
+- [“鬼子专业户”王侃去世](http://www.daogukj.com/7181360)
+- [两只猫为什么会互相舔毛？怎么知道他们是闹着玩还是真的打架？](http://www.daogukj.com/6926357)
+- [38度天两岁娃叼奶嘴赤脚走失街头](http://www.play.hengshemaoyi.cn/kongbu/9049497.htm)
+- [清华大学的学生中有80%的人是过目不忘的，这个是真的么？](http://www.daogukj.com/eiphdnwm/)
+- [于东来建议每年新增 20 至 40 天带薪年假，严格执行每周 40 小时工作制，怎样看待他的用工理念？](http://www.movie.hkepx.cn/xiju/7401130.htm)
+- [上海暴雨 盒马旗下超市被淹](http://www.movie.hkepx.cn/movie/7110434.htm)
+- [如何看待部分社区认为DeepSeek-V4的灰度测试是路由Claude Fable、Opus等模型？](http://www.play.hengshemaoyi.cn/kongbu/4490690.htm)
+- [寻找卢本伟](http://www.movie.hkepx.cn/movie/6518386.htm)
+- [【独家】牧神记 第92集 牛车](http://www.daogukj.com/8067678)
+- [为什么真人版的毛利兰都没有角？](http://www.play.hengshemaoyi.cn/kongbu/6649001.htm)
+- [水皮](http://www.daogukj.com/htblbqcb/)
+- [洪秀柱盼统一：我已近80岁等不及了](http://www.play.hengshemaoyi.cn/xiju/4658280.htm)
+- [“为让国足进世界杯 FIFA主席拼了”](http://www.movie.hkepx.cn/xiju/0000676.htm)
+- [林诗栋蒯曼全锦赛混双夺冠](http://www.play.hengshemaoyi.cn/kongbu/4700540.htm)
+- [⚽世 界 杯 男 团⚽](http://www.movie.hkepx.cn/xiju/2723766.htm)
+- [《八仙！》周末票房逆跌](http://www.daogukj.com/sxyjxhms/)
+- [外网热议中国KFC卖炸鸡西瓜](http://www.play.hengshemaoyi.cn/kongbu/7497786.htm)
+- [外星人罗纳尔多：西班牙队将轻松夺冠](http://www.play.hengshemaoyi.cn/kongbu/0039607.htm)
+- [马龙许昕3比0横扫对手夺冠](http://www.daogukj.com/9799008)
+- [张子枫瘦成这样了](http://www.daogukj.com/uavkxthj/)
+- [向鹏坦言有点招架不住马龙许昕](http://www.play.hengshemaoyi.cn/xiju/1469979.htm)
+- [马龙/许昕获全国乒乓球锦标赛男双冠军，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/2837480.htm)
 
 </details>
 
 ## 原始来源
 
-- [唐嫣紧身衣身材](https://s.weibo.com/weibo?q=%E5%94%90%E5%AB%A3%E7%B4%A7%E8%BA%AB%E8%A1%A3%E8%BA%AB%E6%9D%90)
+- [马斯克宣称要赶超Kimi](https://s.weibo.com/weibo?q=%E9%A9%AC%E6%96%AF%E5%85%8B%E5%AE%A3%E7%A7%B0%E8%A6%81%E8%B5%B6%E8%B6%85Kimi)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c352afbda9c8b817bba5 -->
+<!-- content-fingerprint: 108503d591b5daa771e4 -->
