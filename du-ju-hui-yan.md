@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 宜家集中出售 8 座商场，已全面清空，其中 7 家商场今年关停，如何看待宜家此次大规模资产处置？
+# 绑架杀害中国公民嫌犯刘某文被遣返
 
-> 来源：知乎热榜 · 排名：第 19 位 · 热度：59 万热度 · 分类：问答 · 更新：2026-07-20T07:41:54+08:00
+> 来源：百度热搜 · 排名：第 18 位 · 热度：6088468 · 更新：2026-07-20T18:30:20+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“宜家集中出售 8 座商场，已全面清空，其中 7 家商场今年关停，如何看待宜家此次大规模资产处置？”位列第 19 位，公开热度指标为 59 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“绑架杀害中国公民嫌犯刘某文被遣返”位列第 18 位，公开热度指标为 6088468。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，据商业地产服务投资管理机构仲量联行消息，该机构已获得宜家母公司英格卡集团独家销售委托，将上海、广州、天津、哈尔滨、南通、徐州、贵阳、宁波八座城市的宜家自持闲置物业整体出售。这是宜家进入中国市场近30年来最大规模自持资产集中处置。 据仲量联行披露，本次推向市场的八处资产均为英格卡中国的自持物业，上述资产目前已全面清空，无租约限制，可实现现状即时交付。八处资产均位于各城市成熟商圈或重点发展板块，建筑体量完整、产权清晰，具备转型为长租公寓、社区商业、文旅综合体或企业总部等多种用途的基础。 宜家在今年1月7日宣布，自2月2日起停止运营包括上海宝山商场、广州
+来源公开摘要显示：在公安部统筹协调下，7月20日，随着一架民航客机降落在北京首都国际机场，在境外针对中国公民实施绑架杀人犯罪的主要犯罪嫌疑人刘某文被移交中国警方。2024年6月，中国公民夏某某等人被骗至菲律宾后遭绑架杀害，刘某文有重大作案嫌疑并潜逃至美国。公安部协调多国执法部门，于2024年10月将其拘捕。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [来杯好茶摇一摇，但是英语版](bie-ju-jiang-xin.md)
-- [西班牙对手魔咒再次应验](qiao-duo-tian-gong.md)
-- [夏奇拉好美](gui-fu-shen-gong.md)
-- [法国门将身价堪比一杯蜜雪冰城](jin-shang-tian-hua.md)
+- [黄总包厢事件通报为何难以服众](bie-ju-jiang-xin.md)
+- [指数跌破年线对A股意味着什么](qiao-duo-tian-gong.md)
+- [中国 K3 大模型震惊 AI 界，美巨头高价模式还能撑多久？](gui-fu-shen-gong.md)
+- [通草堆画-百鸟朝凤](jin-shang-tian-hua.md)
 
 ## 站内推荐
 
-- [【独家】牧神记 第92集 牛车](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [西班牙队再加一星](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [《圣斗士星矢》中，五小强里为何只有紫龙每回打得都那么惨烈？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [如何看待OpenAI战略未来负责人对kimi k3开源的公开发言？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [最早那一批做断骨增高的人，现在怎么样了？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [西班牙中场罗德里获 2026 世界杯金球奖，怎样评价他在本届比赛中的表现？对于西班牙队有多重要？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [中国国新、中国诚通深夜发声，增持中国股票资产，释放什么信号？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [一年超 8 万家面包店关停，超市烘焙区却排长队，面包生意到底好不好做？反映了怎样的消费趋势？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [沪指、创业板指收红，电力、煤炭板块走强，如何看待 2026 年 7 月 20 日 A 股市场行情？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [俄方：3名中国公民在无人机袭击中受伤](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [西班牙门将获金手套](http://www.daogukj.com/7203067)
-- [19岁亚马尔首夺世界杯](http://www.daogukj.com/gowgjlqg/)
-- [【异都 01】我能看见别人的好感度，但仅限人](http://www.daogukj.com/7329084)
-- [来不及说我爱你](http://www.daogukj.com/tafakdgo/)
-- [如何评价樊振东在世界杯决赛上的解说表现，这种跨界对他的职业发展有什么帮助吗？](http://www.play.hengshemaoyi.cn/kongbu/6822731.htm)
-- [最早那一批做断骨增高的人，现在怎么样了？](http://www.movie.hkepx.cn/movie/9763774.htm)
-- [苏醒恭喜西班牙队](http://www.movie.hkepx.cn/movie/5499528.htm)
-- [卫健委辟谣韩红基金会物资分配不均](http://www.movie.hkepx.cn/xiju/2091376.htm)
-- [西班牙夺得队史第二冠](http://www.movie.hkepx.cn/movie/3384485.htm)
-- [月之暗面Kimi称算力紧缺](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
-- [王俊凯工作室必有高人指点](http://www.daogukj.com/0541072)
-- [姆巴佩金靴](http://www.daogukj.com/jyvgfrcg/)
-- [金球奖](http://www.daogukj.com/3891590)
-- [西班牙对手魔咒再次应验](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
-- [罗德里获世界杯金球奖](http://www.movie.hkepx.cn/xiju/8805715.htm)
-- [来杯好茶摇一摇，但是英语版](http://www.daogukj.com/5398424)
-- [洪秀柱盼统一：我已近80岁等不及了](http://www.movie.hkepx.cn/xiju/6277332.htm)
-- [胜你不须第二嚼！](http://www.movie.hkepx.cn/xiju/7873556.htm)
-- [西班牙冠军](http://www.play.hengshemaoyi.cn/xiju/9370456.htm)
-- [姆巴佩获金靴奖](http://www.daogukj.com/nzepuewx/)
-- [养了一个自私的且动不动就以跳楼威胁的女儿，该如何破局？](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
-- [姆巴佩10球夺金靴奖](http://www.movie.hkepx.cn/movie/0752879.htm)
-- [新乐器！订书钉演奏《千本樱》](http://www.movie.hkepx.cn/xiju/3642771.htm)
-- [1~11集合集来喽!](http://www.daogukj.com/5617601)
-- [两大央企深夜宣布：增持A股](http://www.daogukj.com/8998145)
-- [有什么东西正在敲你的门……](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
-- [西班牙队再加一星](http://www.movie.hkepx.cn/xiju/8984384.htm)
-- [水皮](http://www.movie.hkepx.cn/xiju/1180114.htm)
-- [铠甲勇士刑天·守护初心【P3】战斗从来不是一个人](http://www.movie.hkepx.cn/movie/0847312.htm)
-- [在人类禁区哀牢山徒步，据说里面1h等于外面60分钟](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
-- [世界杯中场秀 不转播](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
-- [两只猫为什么会互相舔毛？怎么知道他们是闹着玩还是真的打架？](http://www.movie.hkepx.cn/xiju/6763243.htm)
-- [西班牙 1-0 战胜阿根廷，夺得美加墨世界杯冠军，费兰-托雷斯加时赛打入制胜球，如何评价本场比赛？](http://www.movie.hkepx.cn/xiju/9186695.htm)
-- [西班牙夺冠路上唯一没赢的是佛得角](http://www.daogukj.com/pxvooxke/)
-- [不是哥们，放火威胁律师 ？](http://www.movie.hkepx.cn/xiju/1116357.htm)
-- [曝蔡依林演唱会报酬税后仅90万](http://www.movie.hkepx.cn/xiju/0923150.htm)
-- [如何看待OpenAI战略未来负责人对kimi k3开源的公开发言？](http://www.daogukj.com/wwpryopq/)
-- [果葡糖浆，为何被全网妖魔化？](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
-- [感觉你是那种人 [熊大语录]](http://www.movie.hkepx.cn/xiju/6581777.htm)
-- [亚马尔最年轻双冠王](http://www.daogukj.com/ydetypas/)
-- [澎湖海战 撤档](http://www.movie.hkepx.cn/xiju/1440565.htm)
-- [给大领导汇报工作，领导经常性抓到一个点就使劲往细节问，直到问答不上，该如何应对呢？这种现象正常吗？](http://www.movie.hkepx.cn/movie/0748348.htm)
-- [世界杯决赛判罚尺度](http://www.daogukj.com/7529047)
-- [西班牙夺冠含金量太高了](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
-- [西班牙阿根廷冲突](http://www.movie.hkepx.cn/movie/9462286.htm)
-- [阿根廷全员落寞](http://www.movie.hkepx.cn/xiju/6577988.htm)
-- [费兰托雷斯加时破门](http://www.movie.hkepx.cn/movie/1711969.htm)
-- [西班牙进球被吹](http://www.movie.hkepx.cn/movie/1556531.htm)
-- [走读汕头的侨乡家国情](http://www.play.hengshemaoyi.cn/kongbu/3467795.htm)
-- [恩佐红牌罚下](http://www.movie.hkepx.cn/movie/2027222.htm)
+- [众星悼念谢贤](http://www.daogukj.com/7203067)
+- [谢贤九成遗产留给两孙子](http://www.daogukj.com/gowgjlqg/)
+- [张柏芝账号头像变黑](http://www.daogukj.com/7329084)
+- [67岁老人坚持锻炼身体不给儿女添麻烦教程](http://www.daogukj.com/tafakdgo/)
+- [西班牙夺冠路上唯一没赢的是佛得角](http://www.play.hengshemaoyi.cn/kongbu/6822731.htm)
+- [俄方：3名中国公民在无人机袭击中受伤](http://www.movie.hkepx.cn/movie/9763774.htm)
+- [我爸坚决认为人活着就是为了孩子，怎么反驳他？](http://www.movie.hkepx.cn/movie/5499528.htm)
+- [“黄总请你去包厢” 为何围观难散场](http://www.movie.hkepx.cn/xiju/2091376.htm)
+- [证监会就近期A股波动发声](http://www.movie.hkepx.cn/movie/3384485.htm)
+- [经常化妆的人卸妆有一种素颜感](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
+- [亚马尔 决赛遇到中国队也很难](http://www.daogukj.com/0541072)
+- [西班牙两位公主再捧大力神杯](http://www.daogukj.com/jyvgfrcg/)
+- [2026 年世界杯决赛 90 分钟常规时间阿根廷 0 射门，全场鲜有机会，对此你怎么看？](http://www.daogukj.com/3891590)
+- [指数跌破年线对A股意味着什么](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
+- [谢贤去世 17岁出道演艺生涯逾70年](http://www.movie.hkepx.cn/xiju/8805715.htm)
+- [黄总包厢事件通报为何难以服众](http://www.daogukj.com/5398424)
+- [⚡ 全自动 超级 乐魂经验农场 ⚡](http://www.movie.hkepx.cn/xiju/6277332.htm)
+- [张柏芝头像变黑](http://www.movie.hkepx.cn/xiju/7873556.htm)
+- [阿根廷队无法接受输掉决赛的事实](http://www.play.hengshemaoyi.cn/xiju/9370456.htm)
+- [谢贤超1亿港元遗产90%留给孙子](http://www.daogukj.com/nzepuewx/)
+- [ThinkPad 真的被联想做糟了吗？](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
+- [史蒂夫执教中国队！【AI全民制作人】](http://www.movie.hkepx.cn/movie/0752879.htm)
+- [如何看待最近网传的deep seek v4正式版灰测？](http://www.movie.hkepx.cn/xiju/3642771.htm)
+- [A股今天为何盘中震荡尾盘才拉升](http://www.daogukj.com/5617601)
+- [谢贤遗嘱将 90% 遗产留给两个孙子，剩下 10% 由其儿女平均分配，如何看这一分配？](http://www.daogukj.com/8998145)
+- [赛后情书：一切结束了，西班牙夺得美加墨冠军！这届世界杯真的拉完了。](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
+- [中国国新、中国诚通深夜发声，增持中国股票资产，释放什么信号？](http://www.movie.hkepx.cn/xiju/8984384.htm)
+- [AI给人的不止是方便还有勇气](http://www.movie.hkepx.cn/xiju/1180114.htm)
+- [树恨你](http://www.movie.hkepx.cn/movie/0847312.htm)
+- [不是哥们，放火威胁律师 ？](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
+- [谢婷婷发文悼念父亲谢贤](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
+- [世界杯夺冠后爆发冲突，帕雷德斯锁喉加西亚+怒推加维，他会受到追加处罚吗？](http://www.movie.hkepx.cn/xiju/6763243.htm)
+- [如何看待游戏主播旭旭宝宝因发表「不看周星驰新片」观点遭网暴，发视频怒怼网友且拒绝道歉，后又将视频删除？](http://www.movie.hkepx.cn/xiju/9186695.htm)
+- [不太理解光脚穿洞洞鞋的人](http://www.daogukj.com/pxvooxke/)
+- [粉丝投稿了建筑，于是我建造了：](http://www.movie.hkepx.cn/xiju/1116357.htm)
+- [西班牙夺冠 中国赞助商赢麻了](http://www.movie.hkepx.cn/xiju/0923150.htm)
+- [沪指、创业板指收红，电力、煤炭板块走强，如何看待 2026 年 7 月 20 日 A 股市场行情？](http://www.daogukj.com/wwpryopq/)
+- [韩国网友感慨中国综艺聊生理期](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
+- [特朗普隔着防弹玻璃现场看世界杯决赛](http://www.movie.hkepx.cn/xiju/6581777.htm)
+- [谢贤最后露面身形消瘦坐轮椅](http://www.daogukj.com/ydetypas/)
+- [西班牙公主时隔16年再捧大力神杯](http://www.movie.hkepx.cn/xiju/1440565.htm)
+- [谢霆锋发文悼念父亲谢贤](http://www.movie.hkepx.cn/movie/0748348.htm)
+- [专家：A股调整近尾声](http://www.daogukj.com/7529047)
+- [请3天假休13天 “拼假公式”火了](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
+- [无骨草鱼 无骨草鱼教学，十年老师傅无保留教大家，简单易学。](http://www.movie.hkepx.cn/movie/9462286.htm)
+- [⚡对 对 子 战 神 8⚡](http://www.movie.hkepx.cn/xiju/6577988.htm)
+- [中方警告日方：将付出沉重代价](http://www.movie.hkepx.cn/movie/1711969.htm)
+- [我在世界杯闭幕式表演了我的世界杯主题曲 Champion！](http://www.movie.hkepx.cn/movie/1556531.htm)
+- [中国人工智能发展到什么程度了](http://www.play.hengshemaoyi.cn/kongbu/3467795.htm)
+- [谢霆锋悼念父亲：不用哭 他觉得不潇洒](http://www.movie.hkepx.cn/movie/2027222.htm)
 
 </details>
 
 ## 原始来源
 
-- [宜家集中出售 8 座商场，已全面清空，其中 7 家商场今年关停，如何看待宜家此次大规模资产处置？](https://www.zhihu.com/question/2061839991072990909)
+- [绑架杀害中国公民嫌犯刘某文被遣返](https://www.baidu.com/s?wd=%E7%BB%91%E6%9E%B6%E6%9D%80%E5%AE%B3%E4%B8%AD%E5%9B%BD%E5%85%AC%E6%B0%91%E5%AB%8C%E7%8A%AF%E5%88%98%E6%9F%90%E6%96%87%E8%A2%AB%E9%81%A3%E8%BF%94&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 89c61f5c538490d6250b -->
+<!-- content-fingerprint: 5235c17aa0b26992cb16 -->
