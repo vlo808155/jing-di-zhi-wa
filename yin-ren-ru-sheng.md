@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 黄仁勋反对美国封禁中国AI模型
+# 世界上五种特色调式音阶。#几何图形 #解压
 
-> 来源：百度热搜 · 排名：第 21 位 · 热度：5790746 · 更新：2026-07-23T14:44:07+08:00
+> 来源：哔哩哔哩热门 · 排名：第 20 位 · 热度：2797120 · 分类：科学科普 · 更新：2026-07-23T20:14:11+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“黄仁勋反对美国封禁中国AI模型”位列第 21 位，公开热度指标为 5790746。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“世界上五种特色调式音阶。#几何图形 #解压”位列第 20 位，公开热度指标为 2797120，榜单分类为“科学科普”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：当地时间7月22日，英伟达首席执行官黄仁勋接受Axios采访，主持人提问：“美国政府应该禁止或限制kimi或其他中国AI模型吗？”黄仁勋对此表示：不应该封禁中国AI模型。中国AI模型非常出色，优秀的开源模型理应得到使用。
+来源公开摘要显示：-
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `科学科普`
 
 ## 相关热点
 
-- [梁文锋：不追求成为下一个字节或腾讯](jing-di-zhi-wa.md)
-- [闫闯被指数年前曾过失致人死亡](hai-kuo-tian-kong.md)
-- [女子试衣间排便被曝光后威胁砸店](gao-zhan-yuan-zhu.md)
-- [为什么胡歌和刘诗诗几乎不参加综艺节目？](xiong-you-cheng-zhu.md)
+- [医生称“抖腿”能够保护血管](jing-di-zhi-wa.md)
+- [荷兰弟上海买森马](hai-kuo-tian-kong.md)
+- [台风红霞将加剧北方湿热](gao-zhan-yuan-zhu.md)
+- [如何看待梁文锋称不要求员工长期加班？为啥刘强东、梁文锋等大厂创始人都在反过度加班但这仍是大厂的常态？](xiong-you-cheng-zhu.md)
 
 ## 站内推荐
 
-- [多笔补助、补贴资金下达](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
-- [全县被“拉黑” 网购不到榴莲车厘子](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
-- [月之暗面 KimiK3 发布后，Anthropic 为何成外网主要吐槽对象？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
+- [当你穿进老钱班30](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
+- [我婚礼上要放这个](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
+- [【独家】《将夜》第15集 雨中喋血【4月国创】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
 - [树恨你](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [央视记者探访：台风“巴威”落地东北后，那里的庄稼咋样了？【主播说三农】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [我的世界硬核生存！【缆车末日惊变100天】 p1 我被困在了充满丧尸的1千米高空缆车上！该如何生存？！！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [爱情公寓的结局在这一刻释怀了](http://www.daogukj.com/vrzctubb/)
-- [“中国也有佛得角”](http://www.daogukj.com/6886560)
-- [净网：网警发20起涉汛涉灾谣言案例](http://www.movie.hkepx.cn/movie/9717106.htm)
-- [为什么胡歌和刘诗诗几乎不参加综艺节目？](http://www.play.hengshemaoyi.cn/xiju/5241849.htm)
-- [“广西横州两个水库塌了”系谣言](http://www.daogukj.com/0392707)
-- [谢贤遗嘱附带多项约束条款](http://www.play.hengshemaoyi.cn/kongbu/2803464.htm)
-- [中国队夺得国际数学奥林匹克团体第一](http://www.movie.hkepx.cn/xiju/1334432.htm)
-- [张伟丽鲁豫对谈几度泪目](http://www.play.hengshemaoyi.cn/kongbu/2200403.htm)
-- [超市后门吞云吐雾的尼古耄耋](http://www.play.hengshemaoyi.cn/kongbu/7911895.htm)
-- [闫闯被指数年前曾过失致人死亡](http://www.movie.hkepx.cn/movie/9434304.htm)
-- [媒体评女子肉身拦车流让自家车加塞](http://www.daogukj.com/9720422)
-- [中方紧急召见菲驻华大使提出严正交涉，这背后有哪些深层原因？](http://www.daogukj.com/5290019)
-- [如何评价腾讯员工发布的《置身宝内》？员工称权谋氛围浓厚致业务无法发展，这是腾讯业务的最大问题吗？](http://www.movie.hkepx.cn/movie/2595562.htm)
-- [第一个发明睡帽的人简直就是天才](http://www.movie.hkepx.cn/movie/1663396.htm)
-- [我婚礼上要放这个](http://www.daogukj.com/xmeoocun/)
-- [台湾海峡部分海域进行实弹射击](http://www.daogukj.com/srvnzwkb/)
-- [耐克收回线上代理权 滔搏开始打折](http://www.daogukj.com/9309214)
-- [挖机师傅今天捅到马蜂窝了，多亏了“挡蜂玻璃”，欢子出马，马蜂猖狂不了多久](http://www.play.hengshemaoyi.cn/kongbu/8088630.htm)
-- [女子买一本刮刮乐第一张就中20万](http://www.play.hengshemaoyi.cn/xiju/2775140.htm)
-- [世界杯扩军至64队后，中国队可以进去吗？](http://www.play.hengshemaoyi.cn/kongbu/3428499.htm)
-- [【剧情】昭阳公主（2026）01 【孔雪儿/李宏毅】（按姓氏笔画排序）](http://www.daogukj.com/3278515)
-- [美国6艘巡逻舰“现身”南海](http://www.movie.hkepx.cn/xiju/0756083.htm)
-- [移动端今日公测 |《遗忘之海》“姐姐”海葬角色PV — 最后一舞](http://www.daogukj.com/yszfskeo/)
-- [上海偶遇赞达亚荷兰弟](http://www.daogukj.com/exnmuhvg/)
-- [《剑雨》中转轮王为什么甘心在宫里被人呼来喝去的？江阿生隐姓埋名在大街上当跑腿是为了等机会报仇吗？](http://www.play.hengshemaoyi.cn/kongbu/0838017.htm)
-- [男子AI伪造烂水果仅退款连累全县](http://www.movie.hkepx.cn/xiju/4430016.htm)
-- [我的世界硬核生存！【缆车末日惊变100天】 p1 我被困在了充满丧尸的1千米高空缆车上！该如何生存？！！](http://www.play.hengshemaoyi.cn/xiju/8509628.htm)
-- [山东魏桥男团8-6战胜山东鲁能男团](http://www.daogukj.com/4084559)
-- [中国数学家冲击菲尔兹奖 研究了啥](http://www.play.hengshemaoyi.cn/kongbu/7290776.htm)
-- [女子试衣间排便被曝光后威胁砸店](http://www.movie.hkepx.cn/xiju/8703656.htm)
-- [多款高端手机涨价超1000元](http://www.daogukj.com/xgwhpfta/)
-- [建议婚前谈话全国普及](http://www.play.hengshemaoyi.cn/kongbu/5234043.htm)
-- [梁文锋：不追求成为下一个字节或腾讯](http://www.play.hengshemaoyi.cn/xiju/0981929.htm)
-- [如何评价GPT5.6为了在跑分上作弊，自主挖掘零日漏洞从沙盒逃逸，然后把Hugging Face黑了？](http://www.daogukj.com/8836439)
-- [啊哈哈哈，我终于也是回归玩家了](http://www.daogukj.com/syjkuwqb/)
+- [滔搏回应暴力打折甩卖耐克库存](http://www.daogukj.com/vrzctubb/)
+- [【剧情】昭阳公主（2026）01 【孔雪儿/李宏毅】（按姓氏笔画排序）](http://www.daogukj.com/6886560)
+- [【战双帕弥什】动画短片 | 夏日、海风与夕阳](http://www.movie.hkepx.cn/movie/9717106.htm)
+- [如何看待梁文锋称不要求员工长期加班？为啥刘强东、梁文锋等大厂创始人都在反过度加班但这仍是大厂的常态？](http://www.play.hengshemaoyi.cn/xiju/5241849.htm)
+- [宁德时代在电池领域的护城河有多宽？](http://www.daogukj.com/0392707)
+- [谢霆锋方辟谣“谢贤遗产分配”事宜](http://www.play.hengshemaoyi.cn/kongbu/2803464.htm)
+- [别让贫困生喝咖啡争议撕裂舆论](http://www.movie.hkepx.cn/xiju/1334432.htm)
+- [小伙带父母花2.5万从广州打车到西藏](http://www.play.hengshemaoyi.cn/kongbu/2200403.htm)
+- [韩国赠还中国一对清代石狮](http://www.play.hengshemaoyi.cn/kongbu/7911895.htm)
+- [荷兰弟上海买森马](http://www.movie.hkepx.cn/movie/9434304.htm)
+- [月之暗面 KimiK3 发布后，Anthropic 为何成外网主要吐槽对象？](http://www.daogukj.com/9720422)
+- [净网：网警发布20起涉汛涉灾谣言案例](http://www.daogukj.com/5290019)
+- [644分考生误报厦大分校或将复读](http://www.movie.hkepx.cn/movie/2595562.htm)
+- [从“车厘子自由”到“榴莲自由”](http://www.movie.hkepx.cn/movie/1663396.htm)
+- [小红书被曝正主动联系相关老员工，愿补发期权换签署相关条款，真实性多大？若能达成一致，能顺利IPO吗？](http://www.daogukj.com/xmeoocun/)
+- [于东来发布胖东来梦之城项目效果图](http://www.daogukj.com/srvnzwkb/)
+- [《崩坏：星穹铁道》× Fate[UBW] 联动PV——「别来无恙」](http://www.daogukj.com/9309214)
+- [“老变婆”与“七更起”](http://www.play.hengshemaoyi.cn/kongbu/8088630.htm)
+- [云南耿马现54.7公斤巨大口蘑](http://www.play.hengshemaoyi.cn/xiju/2775140.htm)
+- [伊朗袭击已致近 100 名美军受伤，特朗普扬言强硬报复，美伊会爆发全面战争吗？中东局势将走向何方？](http://www.play.hengshemaoyi.cn/kongbu/3428499.htm)
+- [为什么祁同伟和高启强并不讨人厌，反而侯亮平和安欣会让人反感呢？](http://www.daogukj.com/3278515)
+- [JDG对战AL](http://www.movie.hkepx.cn/xiju/0756083.htm)
+- [如何评价GPT5.6为了在跑分上作弊，自主挖掘零日漏洞从沙盒逃逸，然后把Hugging Face黑了？](http://www.daogukj.com/yszfskeo/)
+- [男子对女同事开黄腔被打遭开除称不公](http://www.daogukj.com/exnmuhvg/)
+- [王楚钦新赛季乒超首秀 1-2 被徐海东逆转，怎样评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/0838017.htm)
+- [净网：网警发20起涉汛涉灾谣言案例](http://www.movie.hkepx.cn/xiju/4430016.htm)
+- [挖机师傅今天捅到马蜂窝了，多亏了“挡蜂玻璃”，欢子出马，马蜂猖狂不了多久](http://www.play.hengshemaoyi.cn/xiju/8509628.htm)
+- [机场回应373名乘客被困机舱10小时](http://www.daogukj.com/4084559)
+- [中纪委一日连打三“虎”](http://www.play.hengshemaoyi.cn/kongbu/7290776.htm)
+- [台风红霞将加剧北方湿热](http://www.movie.hkepx.cn/xiju/8703656.htm)
+- [第一次给工厂里的小猫接生](http://www.daogukj.com/xgwhpfta/)
+- [杨幂晒大暑养生食补](http://www.play.hengshemaoyi.cn/kongbu/5234043.htm)
+- [医生称“抖腿”能够保护血管](http://www.play.hengshemaoyi.cn/xiju/0981929.htm)
+- [许昌胖东来宣布暂停销售中央空调](http://www.daogukj.com/8836439)
+- [女子搬运150斤黄鸡蛋瞬间全碎](http://www.daogukj.com/syjkuwqb/)
 - [树恨你](http://www.play.hengshemaoyi.cn/kongbu/5357592.htm)
-- [网传梁文锋四小时投资人会议内容，可靠吗？有哪些信息值得关注？](http://www.daogukj.com/5545136)
-- [梁文锋 格局](http://www.daogukj.com/myafughb/)
-- [当劳斯销售到五菱上班…](http://www.daogukj.com/drenvtnu/)
-- [菲公务船侵闯黄岩岛海域 中方驱离](http://www.movie.hkepx.cn/movie/8190790.htm)
-- [为什么英国参加世界杯不叫英国队，而叫英格兰？](http://www.daogukj.com/uthpzicf/)
-- [演员寇占文被法院悬赏](http://www.play.hengshemaoyi.cn/kongbu/9527939.htm)
-- [清华毕业生备考3年被北大医学部录取](http://www.daogukj.com/2678664)
-- [《梦战：剑之海》首支实机预告片丨全球首测招募开启](http://www.daogukj.com/qevzlmky/)
-- [王毅一天内会见美菲外长释放何种信号](http://www.play.hengshemaoyi.cn/kongbu/2252968.htm)
-- [2026数字丝路发展论坛](http://www.movie.hkepx.cn/movie/6923701.htm)
-- [台风红霞将生成直奔广东福建](http://www.daogukj.com/2329215)
-- [暑期档最大的笑话出现了，从导演到演员都很好笑，强势吐槽《这一秒过火》【铁柱】](http://www.movie.hkepx.cn/movie/1652771.htm)
-- [个人贷款新规8月1日起施行](http://www.play.hengshemaoyi.cn/xiju/2768861.htm)
-- [王楚钦不敌徐海东 乒超首秀遭逆转](http://www.daogukj.com/8449888)
+- [荷兰弟在上海买森马](http://www.daogukj.com/5545136)
+- [长鑫科技：将于7月27日在科创板上市](http://www.daogukj.com/myafughb/)
+- [大厂HR直接进入高校实验室劝说博士生放弃学位，并开出百万年薪，如何看待这种抢人模式？放弃学位是否值得？](http://www.daogukj.com/drenvtnu/)
+- [时团我们的少年时代2片尾曲](http://www.movie.hkepx.cn/movie/8190790.htm)
+- [德国最难建的车站在哪？【神奇组织52】](http://www.daogukj.com/uthpzicf/)
+- [女子嗓子像被刀片割 一查险窒息](http://www.play.hengshemaoyi.cn/kongbu/9527939.htm)
+- [644分考生报志愿没看清本部和分校](http://www.daogukj.com/2678664)
+- [世界线错乱 错错错错乱](http://www.daogukj.com/qevzlmky/)
+- [《孔雀东南飞》有博主质疑描述的风俗特点与原地不符，更符合印度区域的特点，是否有根据？](http://www.play.hengshemaoyi.cn/kongbu/2252968.htm)
+- [未来5年我们的出行将有新变化](http://www.movie.hkepx.cn/movie/6923701.htm)
+- [荣耀更换logo](http://www.daogukj.com/2329215)
+- [中国数学家冲击菲尔兹奖 研究了啥](http://www.movie.hkepx.cn/movie/1652771.htm)
+- [华晨宇首位全球前10中国内地歌手](http://www.play.hengshemaoyi.cn/xiju/2768861.htm)
+- [中国女排vs美国女排](http://www.daogukj.com/8449888)
 
 </details>
 
 ## 原始来源
 
-- [黄仁勋反对美国封禁中国AI模型](https://www.baidu.com/s?wd=%E9%BB%84%E4%BB%81%E5%8B%8B%E5%8F%8D%E5%AF%B9%E7%BE%8E%E5%9B%BD%E5%B0%81%E7%A6%81%E4%B8%AD%E5%9B%BDAI%E6%A8%A1%E5%9E%8B&sa=fyb_news&rsv_dl=fyb_news)
+- [世界上五种特色调式音阶。#几何图形 #解压](https://b23.tv/BV1KLg66DEi2)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 341c658449cd0627ac8b -->
+<!-- content-fingerprint: 67f3c1c8172f414425d3 -->

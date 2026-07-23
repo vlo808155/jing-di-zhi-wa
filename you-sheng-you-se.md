@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 好莱坞那些已经过时的科幻设定！编剧脑洞楞没跟上科技膨胀速度！
+# 苹果拟推出设备租赁计划，iPhone 可租用 24 个月，月付租机的模式可行吗？你会考虑租苹果设备吗？
 
-> 来源：哔哩哔哩热门 · 排名：第 21 位 · 热度：1486354 · 分类：影视杂谈 · 更新：2026-07-23T14:44:07+08:00
+> 来源：知乎热榜 · 排名：第 20 位 · 热度：83 万热度 · 分类：问答 · 更新：2026-07-23T20:14:11+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“好莱坞那些已经过时的科幻设定！编剧脑洞楞没跟上科技膨胀速度！”位列第 21 位，公开热度指标为 1486354，榜单分类为“影视杂谈”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“苹果拟推出设备租赁计划，iPhone 可租用 24 个月，月付租机的模式可行吗？你会考虑租苹果设备吗？”位列第 20 位，公开热度指标为 83 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-哔哩哔哩热门本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：彭博社马克 · 古尔曼昨日报道称，苹果公司预计于 2026 年 7 月 28 日（下周二）在美国市场推出名为“Apple Upgrade”的全新设备租赁计划。 这项服务将覆盖 iPhone、Mac、iPad 及 Apple Watch 的大部分机型，是苹果在硬件销售模式上的一次重要调整。 据介绍，苹果将与金融科技公司 Klarna 合作，由后者为该租赁项目提供资金支持。受此消息影响，Klarna 股价一度上涨 11% 至 20.78 美元，市值超 92 亿美元（现汇率约合 623.58 亿元人民币）。 古尔曼透露，Apple Upgrade 的运作模式类
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `影视杂谈`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [黄仁勋反对美国封禁中国AI模型](yin-ren-ru-sheng.md)
-- [梁文锋：不追求成为下一个字节或腾讯](jing-di-zhi-wa.md)
-- [闫闯被指数年前曾过失致人死亡](hai-kuo-tian-kong.md)
-- [女子试衣间排便被曝光后威胁砸店](gao-zhan-yuan-zhu.md)
+- [世界上五种特色调式音阶。#几何图形 #解压](yin-ren-ru-sheng.md)
+- [医生称“抖腿”能够保护血管](jing-di-zhi-wa.md)
+- [荷兰弟上海买森马](hai-kuo-tian-kong.md)
+- [台风红霞将加剧北方湿热](gao-zhan-yuan-zhu.md)
 
 ## 站内推荐
 
-- [第一次给工厂里的小猫接生](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [世界上五种特色调式音阶。#几何图形 #解压](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
-- [蚂蚁钻入用了6年的电脑显示屏筑巢](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [大厂HR直接进入高校实验室劝说博士生放弃学位，并开出百万年薪，如何看待这种抢人模式？放弃学位是否值得？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [王楚钦新赛季乒超首秀 1-2 被徐海东逆转，怎样评价本场比赛？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [新能源车跨境自驾遭远程锁车，车主称「事前未提醒出境会被锁车」，汽车售出后厂商该不该保留「控制权」？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
+- [中方紧急召见菲驻华大使提出严正交涉，这背后有哪些深层原因？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [你觉得你离菲尔兹奖最近的一刻是什么时候？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [为什么英国参加世界杯不叫英国队，而叫英格兰？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [从《八仙！》热映来说，说起中国传统神话，八仙一起上，他们能不能和孙悟空拼一下？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [山东魏桥男团8-6战胜山东鲁能男团](http://www.daogukj.com/xpqxgjcv/)
-- [净网：网警发布20起涉汛涉灾谣言案例](http://www.play.hengshemaoyi.cn/xiju/9504622.htm)
-- [清华毕业生备考3年被北大医学部录取](http://www.movie.hkepx.cn/movie/6749947.htm)
-- [德国最难建的车站在哪？【神奇组织52】](http://www.play.hengshemaoyi.cn/xiju/4948083.htm)
-- [美国6艘巡逻舰“现身”南海](http://www.movie.hkepx.cn/xiju/7607655.htm)
-- [女子试衣间排便被曝光后威胁砸店](http://www.play.hengshemaoyi.cn/xiju/5325575.htm)
-- [新老师喜欢吗？](http://www.play.hengshemaoyi.cn/kongbu/9379279.htm)
-- [大爷摸知了猴3个小时赚近400元](http://www.daogukj.com/egbjfccc/)
-- [“广西横州两个水库塌了”系谣言](http://www.movie.hkepx.cn/movie/2907268.htm)
-- [“老变婆”与“七更起”](http://www.movie.hkepx.cn/xiju/1786474.htm)
-- [男子对女同事开黄腔被打遭开除称不公](http://www.play.hengshemaoyi.cn/kongbu/3660768.htm)
-- [大厂HR直接进入高校实验室劝说博士生放弃学位，并开出百万年薪，如何看待这种抢人模式？放弃学位是否值得？](http://www.movie.hkepx.cn/xiju/4183202.htm)
-- [贝克汉姆秃顶了](http://www.play.hengshemaoyi.cn/kongbu/6256469.htm)
-- [第一个发明睡帽的人简直就是天才](http://www.movie.hkepx.cn/xiju/5108742.htm)
-- [多款高端手机涨价超1000元](http://www.movie.hkepx.cn/xiju/7519171.htm)
-- [男乒正副队长乒超首日均爆冷输球](http://www.movie.hkepx.cn/movie/2577743.htm)
-- [上海偶遇赞达亚荷兰弟](http://www.movie.hkepx.cn/xiju/8256350.htm)
-- [“中国也有佛得角”](http://www.play.hengshemaoyi.cn/kongbu/3840000.htm)
-- [游客阻止高山兀鹫吃马尸引争议，这种行为反映了人们对生态的哪些误解？](http://www.daogukj.com/pggpwtpd/)
-- [小红书被曝正主动联系相关老员工，愿补发期权换签署相关条款，真实性多大？若能达成一致，能顺利IPO吗？](http://www.play.hengshemaoyi.cn/xiju/2942368.htm)
-- [女子买一本刮刮乐第一张就中20万](http://www.movie.hkepx.cn/movie/3592629.htm)
-- [建议婚前谈话全国普及](http://www.play.hengshemaoyi.cn/xiju/8731518.htm)
-- [黄仁勋反对美国封禁中国AI模型](http://www.play.hengshemaoyi.cn/xiju/3438881.htm)
-- [王楚钦新赛季乒超首秀 1-2 被徐海东逆转，怎样评价本场比赛？](http://www.daogukj.com/rvtjhukc/)
-- [如何评价GPT5.6为了在跑分上作弊，自主挖掘零日漏洞从沙盒逃逸，然后把Hugging Face黑了？](http://www.play.hengshemaoyi.cn/kongbu/3059344.htm)
-- [苹果拟推出设备租赁计划，iPhone 可租用 24 个月，月付租机的模式可行吗？你会考虑租苹果设备吗？](http://www.movie.hkepx.cn/movie/8044035.htm)
-- [报道称《功夫女足》线上被偷票房超 2000 万，全国偷漏占比约28%，损失票房超 4 亿，这么严重吗？](http://www.movie.hkepx.cn/movie/0744393.htm)
-- [啊哈哈哈，我终于也是回归玩家了](http://www.play.hengshemaoyi.cn/xiju/2844176.htm)
-- [快递站老板称答应朋友让孩子到店劳动实践，却遭举报雇童工被罚五千元，如何看待该处理方式？老板被罚冤不冤？](http://www.play.hengshemaoyi.cn/kongbu/4388909.htm)
-- [新能源车跨境自驾遭远程锁车，车主称「事前未提醒出境会被锁车」，汽车售出后厂商该不该保留「控制权」？](http://www.play.hengshemaoyi.cn/kongbu/7258246.htm)
-- [《梦战：剑之海》首支实机预告片丨全球首测招募开启](http://www.movie.hkepx.cn/movie/3477880.htm)
-- [谢贤遗嘱附带多项约束条款](http://www.daogukj.com/mxxaaoqi/)
-- [台风红霞将生成直奔广东福建](http://www.movie.hkepx.cn/xiju/0410176.htm)
-- [中方紧急召见菲驻华大使提出严正交涉，这背后有哪些深层原因？](http://www.play.hengshemaoyi.cn/kongbu/4983709.htm)
-- [中国“芯片刻刀”终于出鞘](http://www.play.hengshemaoyi.cn/xiju/9262750.htm)
-- [网传梁文锋四小时投资人会议内容，可靠吗？有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/4671141.htm)
-- [今天花2万包5000斤的鱼塘，塘主的举动让人暖心](http://www.movie.hkepx.cn/movie/8349964.htm)
-- [张伟丽鲁豫对谈几度泪目](http://www.daogukj.com/4716922)
-- [爱情公寓的结局在这一刻释怀了](http://www.movie.hkepx.cn/movie/5393498.htm)
-- [大爷摸知了猴3小时赚近400元](http://www.movie.hkepx.cn/movie/5460085.htm)
-- [台湾海峡部分海域进行实弹射击](http://www.play.hengshemaoyi.cn/xiju/3011100.htm)
-- [男子AI伪造烂水果仅退款连累全县](http://www.play.hengshemaoyi.cn/xiju/4637538.htm)
-- [为什么祁同伟和高启强并不讨人厌，反而侯亮平和安欣会让人反感呢？](http://www.movie.hkepx.cn/movie/8940560.htm)
-- [我的世界硬核生存！【缆车末日惊变100天】 p1 我被困在了充满丧尸的1千米高空缆车上！该如何生存？！！](http://www.movie.hkepx.cn/movie/0831513.htm)
-- [2026数字丝路发展论坛](http://www.daogukj.com/cmhomvpy/)
-- [亚运会中国男足与伊朗朝鲜阿联酋同组](http://www.play.hengshemaoyi.cn/kongbu/7216702.htm)
-- [第一次给工厂里的小猫接生](http://www.play.hengshemaoyi.cn/xiju/1028140.htm)
-- [世界杯扩军至64队后，中国队可以进去吗？](http://www.movie.hkepx.cn/movie/1414994.htm)
-- [耐克收回线上代理权 滔搏开始打折](http://www.daogukj.com/2345067)
-- [央视记者探访：台风“巴威”落地东北后，那里的庄稼咋样了？【主播说三农】](http://www.movie.hkepx.cn/movie/8392048.htm)
+- [机场回应373名乘客被困机舱10小时](http://www.daogukj.com/xpqxgjcv/)
+- [成毅路过短剧](http://www.play.hengshemaoyi.cn/xiju/9504622.htm)
+- [644分考生报志愿没看清本部和分校](http://www.movie.hkepx.cn/movie/6749947.htm)
+- [龙凤胎弟弟弄醒姐姐后立马装睡](http://www.play.hengshemaoyi.cn/xiju/4948083.htm)
+- [JDG对战AL](http://www.movie.hkepx.cn/xiju/7607655.htm)
+- [台风红霞将加剧北方湿热](http://www.play.hengshemaoyi.cn/xiju/5325575.htm)
+- [100天亏掉40%？理财大赛S2结果公布！](http://www.play.hengshemaoyi.cn/kongbu/9379279.htm)
+- [向太力挺王菲谢霆锋](http://www.daogukj.com/egbjfccc/)
+- [宁德时代在电池领域的护城河有多宽？](http://www.movie.hkepx.cn/movie/2907268.htm)
+- [无骨草鱼 无骨草鱼教学，十年老师傅无保留教大家，简单易学。](http://www.movie.hkepx.cn/xiju/1786474.htm)
+- [移动端今日公测 |《遗忘之海》“姐姐”海葬角色PV — 最后一舞](http://www.play.hengshemaoyi.cn/kongbu/3660768.htm)
+- [为什么英国参加世界杯不叫英国队，而叫英格兰？](http://www.movie.hkepx.cn/xiju/4183202.htm)
+- [滔搏卖爆了](http://www.play.hengshemaoyi.cn/kongbu/6256469.htm)
+- [从“车厘子自由”到“榴莲自由”](http://www.movie.hkepx.cn/xiju/5108742.htm)
+- [第一次给工厂里的小猫接生](http://www.movie.hkepx.cn/xiju/7519171.htm)
+- [逃窜时菲方还站在船头作秀摆拍](http://www.movie.hkepx.cn/movie/2577743.htm)
+- [男子对女同事开黄腔被打遭开除称不公](http://www.movie.hkepx.cn/xiju/8256350.htm)
+- [【剧情】昭阳公主（2026）01 【孔雪儿/李宏毅】（按姓氏笔画排序）](http://www.play.hengshemaoyi.cn/kongbu/3840000.htm)
+- [中方回应王毅缺席东盟与中日韩外长会](http://www.daogukj.com/pggpwtpd/)
+- [中纪委连打三虎](http://www.play.hengshemaoyi.cn/xiju/2942368.htm)
+- [云南耿马现54.7公斤巨大口蘑](http://www.movie.hkepx.cn/movie/3592629.htm)
+- [杨幂晒大暑养生食补](http://www.play.hengshemaoyi.cn/xiju/8731518.htm)
+- [世界上五种特色调式音阶。#几何图形 #解压](http://www.play.hengshemaoyi.cn/xiju/3438881.htm)
+- [从《八仙！》热映来说，说起中国传统神话，八仙一起上，他们能不能和孙悟空拼一下？](http://www.daogukj.com/rvtjhukc/)
+- [许昌胖东来宣布暂停销售中央空调](http://www.play.hengshemaoyi.cn/kongbu/3059344.htm)
+- [河南矿山「最爱发钱」老板为员工子女提供暑期专项实习，每月津贴四千元还包吃住，如何看待这一福利？](http://www.movie.hkepx.cn/movie/8044035.htm)
+- [今天花2万包5000斤的鱼塘，塘主的举动让人暖心](http://www.movie.hkepx.cn/movie/0744393.htm)
+- [女子搬运150斤黄鸡蛋瞬间全碎](http://www.play.hengshemaoyi.cn/xiju/2844176.htm)
+- [评论区摄影大赛锐评与治愈系篇终于来了，博主这期比较狠，玻璃心慎重。](http://www.play.hengshemaoyi.cn/kongbu/4388909.htm)
+- [任正非：韬定律是华为唯一突围道路](http://www.play.hengshemaoyi.cn/kongbu/7258246.htm)
+- [世界线错乱 错错错错乱](http://www.movie.hkepx.cn/movie/3477880.htm)
+- [谢霆锋方辟谣“谢贤遗产分配”事宜](http://www.daogukj.com/mxxaaoqi/)
+- [荣耀更换logo](http://www.movie.hkepx.cn/xiju/0410176.htm)
+- [净网：网警发布20起涉汛涉灾谣言案例](http://www.play.hengshemaoyi.cn/kongbu/4983709.htm)
+- [人社部亮出社保“家底”](http://www.play.hengshemaoyi.cn/xiju/9262750.htm)
+- [荷兰弟在上海买森马](http://www.play.hengshemaoyi.cn/kongbu/4671141.htm)
+- [耐克将清退数千家网络经销商，同款鞋官旗比经销商贵 400，为啥价差这么大？以后还能买到便宜的耐克吗？](http://www.movie.hkepx.cn/movie/8349964.htm)
+- [小伙带父母花2.5万从广州打车到西藏](http://www.daogukj.com/4716922)
+- [滔搏回应暴力打折甩卖耐克库存](http://www.movie.hkepx.cn/movie/5393498.htm)
+- [军校录取通知书送达现场排面拉满](http://www.movie.hkepx.cn/movie/5460085.htm)
+- [于东来发布胖东来梦之城项目效果图](http://www.play.hengshemaoyi.cn/xiju/3011100.htm)
+- [净网：网警发20起涉汛涉灾谣言案例](http://www.play.hengshemaoyi.cn/xiju/4637538.htm)
+- [我国服务消费延续向新向好的发展态势](http://www.movie.hkepx.cn/movie/8940560.htm)
+- [挖机师傅今天捅到马蜂窝了，多亏了“挡蜂玻璃”，欢子出马，马蜂猖狂不了多久](http://www.movie.hkepx.cn/movie/0831513.htm)
+- [未来5年我们的出行将有新变化](http://www.daogukj.com/cmhomvpy/)
+- [GDP十强省份又变了](http://www.play.hengshemaoyi.cn/kongbu/7216702.htm)
+- [新能源车跨境自驾遭远程锁车，车主称「事前未提醒出境会被锁车」，汽车售出后厂商该不该保留「控制权」？](http://www.play.hengshemaoyi.cn/xiju/1028140.htm)
+- [伊朗袭击已致近 100 名美军受伤，特朗普扬言强硬报复，美伊会爆发全面战争吗？中东局势将走向何方？](http://www.movie.hkepx.cn/movie/1414994.htm)
+- [《崩坏：星穹铁道》× Fate[UBW] 联动PV——「别来无恙」](http://www.daogukj.com/2345067)
+- [我的世界硬核生存！【缆车末日惊变100天】 p1 我被困在了充满丧尸的1千米高空缆车上！该如何生存？！！](http://www.movie.hkepx.cn/movie/8392048.htm)
 
 </details>
 
 ## 原始来源
 
-- [好莱坞那些已经过时的科幻设定！编剧脑洞楞没跟上科技膨胀速度！](https://b23.tv/BV1D2g66bEnF)
+- [苹果拟推出设备租赁计划，iPhone 可租用 24 个月，月付租机的模式可行吗？你会考虑租苹果设备吗？](https://www.zhihu.com/question/2063258715155686223)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f36363b60090d2613716 -->
+<!-- content-fingerprint: 80bfc4239d77a640828a -->
