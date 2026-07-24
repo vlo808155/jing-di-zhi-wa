@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# SK掌门人50亿美元天价离婚案判了
+# 如何看待内存的涨价终于波及到了显卡，50系显卡逐渐大面积缺货开始暴涨？
 
-> 来源：百度热搜 · 排名：第 17 位 · 热度：6179643 · 更新：2026-07-24T17:12:51+08:00
+> 来源：知乎热榜 · 排名：第 18 位 · 热度：98 万热度 · 分类：问答 · 更新：2026-07-24T23:15:10+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“SK掌门人50亿美元天价离婚案判了”位列第 17 位，公开热度指标为 6179643。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待内存的涨价终于波及到了显卡，50系显卡逐渐大面积缺货开始暴涨？”位列第 18 位，公开热度指标为 98 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，韩国首尔高等法院判令SK海力士会长崔泰源向前妻支付约6.43亿美元离婚财产分割款。若该判决最终生效，这将是韩国史上金额最高的离婚案。据彭博亿万富豪指数，崔泰源当前身家约56亿美元，过去一年净资产已翻倍以上。
+知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [长鑫科技将上市](ming-cha-qiu-hao.md)
-- [小伙689分考入清华：想撑起这个家](jian-wei-zhi-zhu.md)
-- [曝演员片酬再降，片酬从2亿降到最高2500万，透露出影视业哪些问题？对行业生态来说，是好事还是坏事？](du-ju-hui-yan.md)
-- [当你穿进老钱班30](bie-ju-jiang-xin.md)
+- [我婚礼上要放这个](ming-cha-qiu-hao.md)
+- [云南旅游点完菜后发现老板砍树去了](jian-wei-zhi-zhu.md)
+- [窦靖童第一](du-ju-hui-yan.md)
+- [AI重现狼牙山五壮士英雄壮举](bie-ju-jiang-xin.md)
 
 ## 站内推荐
 
-- [微信新调整：发消息可“无痕撤回”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [缅北“四大家族”已被彻底摧毁](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [腾讯晒317万年终奖员工因泄密被辞退](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [王虹在菲尔兹颁奖现场介绍家乡桂林](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [义乌一把电扇“硬控”半个地球](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [暑期游火爆 网红民宿老板却亏麻了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [中国卖不动的车在欧洲上了销量榜](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [媒体评女司机拿走俩苹果不给钱](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [如何评价荣耀最新的 logo？为啥要在这个时间点更换logo？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [宫本茂称做游戏别老想着回本，如何看待任天堂的开发理念？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [四字名已经满足不了90后家长了](http://www.play.hengshemaoyi.cn/kongbu/7686149.htm)
-- [西班牙队世界杯夺冠奖金要向美国交税](http://www.movie.hkepx.cn/movie/4579405.htm)
-- [没彩礼没宴席 夫妻花200元办婚礼](http://www.movie.hkepx.cn/xiju/3169477.htm)
-- [长大后发现父母单位根本考不上](http://www.movie.hkepx.cn/xiju/8635128.htm)
-- [⚡赤石科技！⚡牢大复活机](http://www.play.hengshemaoyi.cn/kongbu/9338626.htm)
-- [当你穿进老钱班30](http://www.play.hengshemaoyi.cn/kongbu/1542166.htm)
-- [我婚礼上要放这个](http://www.daogukj.com/0287665)
-- [Angelababy13岁旧照](http://www.movie.hkepx.cn/movie/7272745.htm)
-- [7月26日广东省内铁路全线停运](http://www.play.hengshemaoyi.cn/xiju/6780679.htm)
-- [男子在家裸体被邻居拍照发群](http://www.daogukj.com/4477330)
-- [曝演员片酬再降，片酬从2亿降到最高2500万，透露出影视业哪些问题？对行业生态来说，是好事还是坏事？](http://www.daogukj.com/0861506)
-- [一温州老板9000万元抄底金条](http://www.daogukj.com/9767084)
-- [我国社会稳定形势持续向好](http://www.movie.hkepx.cn/movie/5257500.htm)
-- [袜学导论：从脚踝到大腿，袜子如何成就二次元的顶级暗示！【泛式/次元论战】](http://www.daogukj.com/gykfwffn/)
-- [如何评价荣耀最新的 logo？为啥要在这个时间点更换logo？](http://www.play.hengshemaoyi.cn/xiju/5052420.htm)
-- [中方回应美国新一轮关税措施将生效](http://www.daogukj.com/xdtbrdmh/)
-- [带老北京人沉浸式体验乐园](http://www.daogukj.com/0346242)
-- [微信新调整：发消息可“无痕撤回”](http://www.movie.hkepx.cn/xiju/3607769.htm)
-- [如何看待越野跑被「上坟的路都比这陡，我小时候穿拖鞋都能跑」的评论嘲讽？](http://www.play.hengshemaoyi.cn/kongbu/0133104.htm)
-- [《下一个是谁》第七季（2）](http://www.movie.hkepx.cn/xiju/7939480.htm)
-- [如何看待高德上线的「位置口令」功能，6 位数字锁定精确点位？实际用途大吗？](http://www.movie.hkepx.cn/xiju/0345684.htm)
-- [中国籍数学家首获菲尔兹奖说明什么](http://www.movie.hkepx.cn/xiju/4105891.htm)
-- [耐克宣布自明年 1 月起清退中国数千家在线经销商，对国内市场有什么影响？会冲击实体商户吗？](http://www.movie.hkepx.cn/xiju/7210722.htm)
-- [“加长版”中伏来了 记得吃碗二伏面](http://www.movie.hkepx.cn/movie/8592737.htm)
-- [王楚钦：大连海鲜有名但我不能吃](http://www.play.hengshemaoyi.cn/xiju/5306630.htm)
-- [东方甄选“去主播化”后赚疯了](http://www.daogukj.com/1659974)
-- [如何看待腾讯 317 万年终奖员工因泄密被辞退，「打入黑名单，永不录用」？大厂保密红线究竟有多严？](http://www.movie.hkepx.cn/movie/0941539.htm)
-- [长鑫科技将上市](http://www.movie.hkepx.cn/movie/2635515.htm)
-- [缅北“四大家族”已被彻底摧毁](http://www.movie.hkepx.cn/xiju/6515808.htm)
-- [跟着中国第一个旅游博主徐霞客的足迹去旅行，看看400年后变成了什么样！](http://www.play.hengshemaoyi.cn/xiju/8816869.htm)
-- [郭一鸣：A股缩量普跌静待方向选择](http://www.daogukj.com/dvtugytg/)
-- [情侣还愿时遇神奇小鸟停男生肩上](http://www.movie.hkepx.cn/xiju/6349162.htm)
-- [一组数据感受中国经济强劲动能](http://www.daogukj.com/uiagrfmg/)
-- [长鑫科技上市时间敲定 7 月 27 日，哪些信息值得关注？你看好它的上市吗？](http://www.movie.hkepx.cn/xiju/5108394.htm)
-- [小S失去能理解她幽默感的时代](http://www.play.hengshemaoyi.cn/kongbu/2476719.htm)
-- [认清汛期灾害谣言](http://www.play.hengshemaoyi.cn/kongbu/6062295.htm)
-- [义乌一把电扇“硬控”半个地球](http://www.play.hengshemaoyi.cn/xiju/4493695.htm)
-- [上课时的难绷瞬间！](http://www.daogukj.com/tnrfqrke/)
-- [黑龙江隧道施工遇上洞内“回南天”](http://www.movie.hkepx.cn/xiju/4346084.htm)
-- [外交部回应韩国赠还中国石狮](http://www.movie.hkepx.cn/movie/7332141.htm)
-- [金价连涨四天，现货黄金重回 4100 美元，深圳水贝挤满购金人，如何看待黄金当下行情？](http://www.daogukj.com/qwdjcwxs/)
-- [树恨你](http://www.daogukj.com/uqrxqnjs/)
-- [郑恺看到苗苗剪短发后的反应](http://www.play.hengshemaoyi.cn/xiju/9086559.htm)
-- [菲尔兹奖得主王虹也发过NeurIPS](http://www.play.hengshemaoyi.cn/xiju/0582780.htm)
-- [谢霆锋等父亲过完“头七”才离港](http://www.movie.hkepx.cn/xiju/5890662.htm)
-- [中方回应欧委会对全球速卖通罚 5.5 亿欧元，停止利用法律条文模糊性滥用自由裁量权，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/9155162.htm)
-- [成吉思鸡200卢比买一送一，我只要送的那份](http://www.movie.hkepx.cn/movie/7891312.htm)
-- [中国海警局就菲蓄意挑衅发表谈话](http://www.play.hengshemaoyi.cn/xiju/9382187.htm)
-- [王虹在菲尔兹颁奖现场介绍家乡桂林](http://www.play.hengshemaoyi.cn/xiju/1231015.htm)
-- [连续21天十点睡六点起，我真的会变健康吗？](http://www.daogukj.com/fpcntxir/)
+- [林依轮复刻白鹿周生如故红衣造型](http://www.play.hengshemaoyi.cn/kongbu/7686149.htm)
+- [王小洪会见美国联邦调查局局长](http://www.movie.hkepx.cn/movie/4579405.htm)
+- [《歌手》第10期排名：窦靖童第一](http://www.movie.hkepx.cn/xiju/3169477.htm)
+- [树恨你](http://www.movie.hkepx.cn/xiju/8635128.htm)
+- [袜学导论：从脚踝到大腿，袜子如何成就二次元的顶级暗示！【泛式/次元论战】](http://www.play.hengshemaoyi.cn/kongbu/9338626.htm)
+- [AI重现狼牙山五壮士英雄壮举](http://www.play.hengshemaoyi.cn/kongbu/1542166.htm)
+- [乔欣晒瑞士旅行随拍](http://www.daogukj.com/0287665)
+- [如何看待腾讯 317 万年终奖员工因泄密被辞退，「打入黑名单，永不录用」？大厂保密红线究竟有多严？](http://www.movie.hkepx.cn/movie/7272745.htm)
+- [证监会原副主席方星海被查](http://www.play.hengshemaoyi.cn/xiju/6780679.htm)
+- [上课打游戏 期末考段位？电竞专业真有这么爽吗？](http://www.daogukj.com/4477330)
+- [窦靖童第一](http://www.daogukj.com/0861506)
+- [大家猜猜我是谁](http://www.daogukj.com/9767084)
+- [从三组外贸数据读懂“中国机遇2.0”](http://www.movie.hkepx.cn/movie/5257500.htm)
+- [A股史上最大股票回购方案](http://www.daogukj.com/gykfwffn/)
+- [Angelababy13岁旧照](http://www.play.hengshemaoyi.cn/xiju/5052420.htm)
+- [方某军因操纵证券市场被罚没1.75亿](http://www.daogukj.com/xdtbrdmh/)
+- [博主：一场医考骚乱撕开印度深层困局](http://www.daogukj.com/0346242)
+- [暑期游火爆 网红民宿老板却亏麻了](http://www.movie.hkepx.cn/xiju/3607769.htm)
+- [OPPO 、Vivo 拒绝三星存储涨价报价，后续国产手机可能都用长鑫等国产内存吗？](http://www.play.hengshemaoyi.cn/kongbu/0133104.htm)
+- [《最绝望の主持人》](http://www.movie.hkepx.cn/xiju/7939480.htm)
+- [为什么感觉现在小孩越来越笨了？](http://www.movie.hkepx.cn/xiju/0345684.htm)
+- [长鑫科技一签能赚多少](http://www.movie.hkepx.cn/xiju/4105891.htm)
+- [目前除了王虹和邓煜两位数学家，还有哪些华人数学家未来有望争取菲尔兹奖？](http://www.movie.hkepx.cn/xiju/7210722.htm)
+- [街头“神奇冰柜”免费水越取越多](http://www.movie.hkepx.cn/movie/8592737.htm)
+- [全国首条穿越长江高铁隧道贯通，这是一个怎样的工程？在长江底下挖高铁隧道，有多难？](http://www.play.hengshemaoyi.cn/xiju/5306630.htm)
+- [重庆山体崩塌现场新搜寻出3名遇难者](http://www.daogukj.com/1659974)
+- [王兴兴登《时代》封面](http://www.movie.hkepx.cn/movie/0941539.htm)
+- [我婚礼上要放这个](http://www.movie.hkepx.cn/movie/2635515.htm)
+- [中国卖不动的车在欧洲上了销量榜](http://www.movie.hkepx.cn/xiju/6515808.htm)
+- [澳大利亚工党大会中方官员愤然离席](http://www.play.hengshemaoyi.cn/xiju/8816869.htm)
+- [“鞋拔子脸”维权女孩：修复至少30万](http://www.daogukj.com/dvtugytg/)
+- [长鑫科技上市时间敲定 7 月 27 日，哪些信息值得关注？你看好它的上市吗？](http://www.movie.hkepx.cn/xiju/6349162.htm)
+- [解码中国经济半年报](http://www.daogukj.com/uiagrfmg/)
+- [大叔跳江救的女娃今年考上北大了](http://www.movie.hkepx.cn/xiju/5108394.htm)
+- [周星驰回应观众才是最牛的，强调纪录由观众创造的，而冯导却抛出观众垃圾论，你认为那种说法更对？](http://www.play.hengshemaoyi.cn/kongbu/2476719.htm)
+- [连续21天十点睡六点起，我真的会变健康吗？](http://www.play.hengshemaoyi.cn/kongbu/6062295.htm)
+- [宫本茂称做游戏别老想着回本，如何看待任天堂的开发理念？](http://www.play.hengshemaoyi.cn/xiju/4493695.htm)
+- [《我的花童弟弟》](http://www.daogukj.com/tnrfqrke/)
+- [俄罗斯再成中国汽车最大买家](http://www.movie.hkepx.cn/xiju/4346084.htm)
+- [演员寇占文被法院悬赏，立案标的 694 万，曾出演《隋唐英雄传》《逐玉》《镖人》，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/7332141.htm)
+- [每周2天少吃坚持一月瘦5斤](http://www.daogukj.com/qwdjcwxs/)
+- [爸妈吵架都走了 男孩抱妹妹找奶奶](http://www.daogukj.com/uqrxqnjs/)
+- [移动端今日公测 |《遗忘之海》“姐姐”海葬角色PV — 最后一舞](http://www.play.hengshemaoyi.cn/xiju/9086559.htm)
+- [台风红霞或以巅峰强度登陆广东](http://www.play.hengshemaoyi.cn/xiju/0582780.htm)
+- [陪莉莉一起吃饭吧～](http://www.movie.hkepx.cn/xiju/5890662.htm)
+- [峰学蔚来武亮住院](http://www.movie.hkepx.cn/movie/9155162.htm)
+- [睡眠好坏和床头朝向有关系吗](http://www.movie.hkepx.cn/movie/7891312.htm)
+- [怎样看待女生越来越不喜欢肌肉男的现象？](http://www.play.hengshemaoyi.cn/xiju/9382187.htm)
+- [如何评价荣耀最新的 logo？为啥要在这个时间点更换logo？](http://www.play.hengshemaoyi.cn/xiju/1231015.htm)
+- [森罗物语扩展包/沉浸式吃播展示 （部分）](http://www.daogukj.com/fpcntxir/)
 
 </details>
 
 ## 原始来源
 
-- [SK掌门人50亿美元天价离婚案判了](https://www.baidu.com/s?wd=SK%E6%8E%8C%E9%97%A8%E4%BA%BA50%E4%BA%BF%E7%BE%8E%E5%85%83%E5%A4%A9%E4%BB%B7%E7%A6%BB%E5%A9%9A%E6%A1%88%E5%88%A4%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news)
+- [如何看待内存的涨价终于波及到了显卡，50系显卡逐渐大面积缺货开始暴涨？](https://www.zhihu.com/question/2063926827077445448)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f383eff78d1e3059524e -->
+<!-- content-fingerprint: 4373182840ced4b61571 -->
