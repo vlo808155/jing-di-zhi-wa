@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 《民法典》为什么把“配偶”放在“亲属”的第1位？
+# 宁德时代上半年日赚 2.39 亿元，拟200-400亿元回购股份注销，创下 A 股历史纪录，如何解读？
 
-> 来源：知乎热榜 · 排名：第 17 位 · 热度：67 万热度 · 分类：问答 · 更新：2026-07-26T07:43:08+08:00
+> 来源：知乎热榜 · 排名：第 17 位 · 热度：150 万热度 · 分类：问答 · 更新：2026-07-26T15:58:27+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“《民法典》为什么把“配偶”放在“亲属”的第1位？”位列第 17 位，公开热度指标为 67 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“宁德时代上半年日赚 2.39 亿元，拟200-400亿元回购股份注销，创下 A 股历史纪录，如何解读？”位列第 17 位，公开热度指标为 150 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：《民法典》第一千零四十五条 亲属包括配偶、血亲和姻亲。 配偶、父母、子女、兄弟姐妹、祖父母、外祖父母、孙子女、外孙子女为近亲属。 配偶、父母、子女和其他共同生活的近亲属为家庭成员。 如题。 《民法典》所载“亲属”有3类，依次为：配偶、血亲、姻亲。 “配偶”，根据我的理解，就是合同关系。不比别的任何一种合同（例如：买卖合同、代理合同…）关系特殊。 请问：为什么要把配偶排在血亲的前面？是因为没有配偶，就没有血亲吗？例如：没有配偶，就没有子女；没有子女，又何来“父母”这一对称谓？《民法典》是根据这个逻辑给3类亲属排序的吗？ 看上去，“配偶”是一切“亲属”的源泉
+来源公开摘要显示：7月24日盘后，宁德时代发布2026年半年度报告，实现营业收入为2769.17亿元，同比增长54.80%；归属于上市公司股东的净利润为432.84亿元，同比增长41.98%。公司拟以总股本扣除回购股份后的45.98亿股为基数，每10股派发现金分红14.11元。 值得注意的是，宁德时代公告称，公司拟使用自有或自筹资金以集中竞价交易方式回购公司A股股份，回购资金总额不低于200亿元且不超过400亿元，回购价格上限为573元/股。回购的股份将用于注销并减少公司注册资本，回购期限自股东会审议通过之日起12个月内。 据了解，宁德时代此次回购方案资金总额上限为400
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [《明日方舟》SideStory「直到大地变成一颗酸橙」活动宣传PV](yun-chou-wei-wo.md)
-- [狗在马路上玩滑板转头撞上车](shen-mou-yuan-lv.md)
-- [科技股大跌是因为量化砸盘吗](ming-cha-qiu-hao.md)
-- [A股下周会迎来更猛烈的震荡吗](jian-wei-zhi-zhu.md)
+- [我是律师，请用当事人的语气让我破防17.0](yun-chou-wei-wo.md)
+- [十几个外甥来过暑假舅舅花费超5万](shen-mou-yuan-lv.md)
+- [家属回应6岁女童基因编辑试验后死亡](ming-cha-qiu-hao.md)
+- [台风致楼层晃动雨水似高压水枪射出](jian-wei-zhi-zhu.md)
 
 ## 站内推荐
 
-- [穿凉鞋的人越来越少，洞洞鞋、勃肯鞋、溯溪鞋接班，为什么大家这样选？反映出哪些消费趋势？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [《年会不能停 2！》开点映了，看过的都来说说，如何评价这部电影？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [谢贤遗嘱附带多项约束条款，若张柏芝改嫁或失去谢贤遗产代管资格，如何解读？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [经常熬夜的人颜值会有什么变化？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [二年前买的二手房，现在房主说她放在地下室的东西被我扔了，我要负责，请问我有责任吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [店主卖 7.9 元手机壳时标注「荣耀XX型号」被荣耀索赔 38 万元，如何从法律角度解读？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [王楚钦梁靖崑 1-2 爆冷输给向鹏温瑞博，如何评价本场比赛？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [如何评价邹市明曾为不和冉莹颖离婚带失效身份证去民事局，邹市明冉莹颖的感情状况到底如何？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [如果没有出现四大天王，香港乐坛能否敌得过台湾乐坛？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [为什么大多数成年人一旦学会游泳就只想连续游，不再关注技术动作？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [专家辟谣“乳状云预示龙卷风”](http://www.play.hengshemaoyi.cn/kongbu/3483820.htm)
-- [博三女生没结婚问亲戚：谁笑话我妈了](http://www.movie.hkepx.cn/xiju/3408565.htm)
-- [《明日方舟》EP - 酸橙色信笺](http://www.play.hengshemaoyi.cn/kongbu/9358766.htm)
-- [【MAFG】MC动画：于是，我们的故事开始了......](http://www.movie.hkepx.cn/movie/6761076.htm)
-- [王一博给摩托姐姐点赞了](http://www.movie.hkepx.cn/movie/4354942.htm)
-- [红霞在广东惠州登陆](http://www.play.hengshemaoyi.cn/kongbu/7691913.htm)
-- [电影《三国第一部：争洛阳》撤档](http://www.daogukj.com/zxhxffqk/)
-- [中国粉丝被泰国gmm工作人员打](http://www.play.hengshemaoyi.cn/kongbu/0581403.htm)
-- [印度和日本因高铁闹翻](http://www.play.hengshemaoyi.cn/xiju/8368894.htm)
-- [超级暴雨来了：台风红霞将巅峰登陆广东，四川等省高温将明显缓解](http://www.movie.hkepx.cn/movie/3724589.htm)
-- [【纪录片】闪闪的儿科医生4 第9集 扎起，全技能就绪！](http://www.movie.hkepx.cn/movie/4073082.htm)
-- [狗在马路上玩滑板转头撞上车](http://www.movie.hkepx.cn/movie/7225991.htm)
-- [谢贤遗嘱附带多项约束条款，若张柏芝改嫁或失去谢贤遗产代管资格，如何解读？](http://www.movie.hkepx.cn/movie/5475557.htm)
-- [程潇真喝罗云熙假喝](http://www.play.hengshemaoyi.cn/xiju/1901702.htm)
-- [如何评价天蚕土豆新书《神通者》签约番茄？](http://www.daogukj.com/1487547)
-- [王楚钦梁靖崑双打1比2](http://www.daogukj.com/sqqsfnyh/)
-- [山东一高速服务区设啤酒档口，工作人员称「已经过审批，卖两个月了」，如何看待这一档口设置？卖啤酒合理吗？](http://www.movie.hkepx.cn/movie/3969864.htm)
-- [汪苏泷脱完全场沉默了](http://www.daogukj.com/iqmqrbhp/)
-- [台风「红霞」在广东惠州登陆，超越美莎克、巴威，成今年以来登陆我国的最强台风，影响多大？你那里情况如何？](http://www.play.hengshemaoyi.cn/xiju/8313158.htm)
-- [冉莹颖拳馆项目被疑利益输送，大额项目被指定向内定给亲属体系，这是真的吗？家族式管理模式有哪些风险？](http://www.movie.hkepx.cn/xiju/9816658.htm)
-- [【独家】《凡人修仙传之慕兰之战》第8集【总第184集】](http://www.daogukj.com/3514427)
-- [如何看待郑州新东方暑期补课被查，要求清退学生？这波清查能有效打击学科培训机构吗？](http://www.movie.hkepx.cn/movie/5821299.htm)
-- [罗永浩怒斥电视机厂商](http://www.movie.hkepx.cn/movie/7016997.htm)
-- [第二代身份证内部根本没有磁条](http://www.daogukj.com/klgjmmqw/)
-- [女子被老头乐压到致肋骨骨折](http://www.play.hengshemaoyi.cn/kongbu/2965446.htm)
-- [胖东来门口设200万音响免费唱](http://www.daogukj.com/8554716)
-- [如何评价北大著名校友柳智宇评价同学王虹邓煜获得菲尔兹奖，祝贺两位校友，并不后悔自己上山出家离开数学？](http://www.daogukj.com/4018030)
-- [携程因垄断行为被罚没51.79亿元](http://www.play.hengshemaoyi.cn/xiju/7007818.htm)
-- [《三国第一部：争洛阳》上映 16 天官宣撤档，票房未破亿，电影的问题出在哪？改档期会有效吗？](http://www.daogukj.com/7787398)
-- [我会顺着网线 找到你！](http://www.play.hengshemaoyi.cn/xiju/3303937.htm)
-- [《三国第一部：争洛阳》撤档](http://www.play.hengshemaoyi.cn/xiju/6811831.htm)
-- [25岁男星被指在高铁占素人座位](http://www.play.hengshemaoyi.cn/kongbu/5731979.htm)
-- [这挑战迪迦干完都亮红灯走的](http://www.play.hengshemaoyi.cn/kongbu/8531788.htm)
-- [台风红霞在广东惠州登陆](http://www.play.hengshemaoyi.cn/xiju/3940464.htm)
-- [新冠疫情升至中流行水平 专家建议](http://www.play.hengshemaoyi.cn/xiju/5367021.htm)
-- [【萌黄一槽】金钟罩，木龙盘！千手柱间[侠隐江湖]全技能爆料！](http://www.movie.hkepx.cn/xiju/7619002.htm)
-- [如何评价《海贼王》漫画最新的第1189话情报？](http://www.play.hengshemaoyi.cn/xiju/7491703.htm)
-- [台风红霞路径图公布](http://www.movie.hkepx.cn/xiju/9433984.htm)
-- [二年前买的二手房，现在房主说她放在地下室的东西被我扔了，我要负责，请问我有责任吗？](http://www.play.hengshemaoyi.cn/xiju/8043846.htm)
-- [高露洁多款“心机商标”被宣告无效](http://www.play.hengshemaoyi.cn/kongbu/5790640.htm)
-- [台风红霞登陆广东](http://www.play.hengshemaoyi.cn/kongbu/2929388.htm)
-- [蛋定，我们会再见～](http://www.play.hengshemaoyi.cn/xiju/2191121.htm)
-- [景德镇用小写的c惊艳全球](http://www.play.hengshemaoyi.cn/kongbu/3389194.htm)
-- [《明日方舟》SideStory「直到大地变成一颗酸橙」活动先导PV](http://www.daogukj.com/2463480)
-- [穿凉鞋的人越来越少，洞洞鞋、勃肯鞋、溯溪鞋接班，为什么大家这样选？反映出哪些消费趋势？](http://www.movie.hkepx.cn/xiju/2416068.htm)
-- [博主：詹姆斯不应被嘲讽](http://www.daogukj.com/4620332)
-- [女投资人五年前重仓长鑫](http://www.movie.hkepx.cn/movie/5413853.htm)
-- [《下一个是谁》第七季（2）](http://www.play.hengshemaoyi.cn/kongbu/3114909.htm)
-- [平均每天减少22所小学](http://www.movie.hkepx.cn/movie/3357497.htm)
-- [多预警齐发！多地将有大风暴雨](http://www.daogukj.com/aagwkkjr/)
+- [第二代身份证会被消磁系谣言](http://www.play.hengshemaoyi.cn/kongbu/3483820.htm)
+- [花一万多产检一路绿灯 生下来却畸形](http://www.movie.hkepx.cn/xiju/3408565.htm)
+- [【独家】牧神记 第93集 弑帝](http://www.play.hengshemaoyi.cn/kongbu/9358766.htm)
+- [躲在航天核心区捡垃圾的两人【三角洲动画】](http://www.movie.hkepx.cn/movie/6761076.htm)
+- [16岁女生服刑期发现漏罪被判12年](http://www.movie.hkepx.cn/movie/4354942.htm)
+- [滞销西瓜被网红压价到一毛多一斤](http://www.play.hengshemaoyi.cn/kongbu/7691913.htm)
+- [小伙徒步10年走遍180城超10万公里](http://www.daogukj.com/zxhxffqk/)
+- [张柏芝就像偷偷开了高清](http://www.play.hengshemaoyi.cn/kongbu/0581403.htm)
+- [台风红霞超越巴威 系今年最强台风](http://www.play.hengshemaoyi.cn/xiju/8368894.htm)
+- [脑洞向：白雪公主故事新编](http://www.movie.hkepx.cn/movie/3724589.htm)
+- [这挑战迪迦干完都亮红灯走的](http://www.movie.hkepx.cn/movie/4073082.htm)
+- [十几个外甥来过暑假舅舅花费超5万](http://www.movie.hkepx.cn/movie/7225991.htm)
+- [如何评价邹市明曾为不和冉莹颖离婚带失效身份证去民事局，邹市明冉莹颖的感情状况到底如何？](http://www.movie.hkepx.cn/movie/5475557.htm)
+- [爸妈笑了半小时才打完B超](http://www.play.hengshemaoyi.cn/xiju/1901702.htm)
+- [高通宣布 9 月起芯片涨价两位数百分比，将对手机市场产生哪些影响？](http://www.daogukj.com/1487547)
+- [黄仁勋 我的薪水低得可怜](http://www.daogukj.com/sqqsfnyh/)
+- [中南大学一硕士论文被指13页雷同，校方成立调查组，此前曾称暑假结束再受理举报，如何评价？暴露哪些问题？](http://www.movie.hkepx.cn/movie/3969864.htm)
+- [那英曾劝张雅琪别天天照镜子](http://www.daogukj.com/iqmqrbhp/)
+- [如何看待儿子沉迷游戏吞药入院，父亲因此起诉腾讯、网易、米哈游和三七互娱，并且索赔10元？](http://www.play.hengshemaoyi.cn/xiju/8313158.htm)
+- [澳大利亚国土面积世界第六，军力仅5.5万，为什么没人敢打？](http://www.movie.hkepx.cn/xiju/9816658.htm)
+- [螃蟹挑战赛](http://www.daogukj.com/3514427)
+- [为什么网络都提倡减肥要少吃米面馒头？](http://www.movie.hkepx.cn/movie/5821299.htm)
+- [狡猾的健身猪妖](http://www.movie.hkepx.cn/movie/7016997.htm)
+- [被罚51.79亿 携程真的疼了吗](http://www.daogukj.com/klgjmmqw/)
+- [容祖儿锐评自己早年绿色丝袜造型](http://www.play.hengshemaoyi.cn/kongbu/2965446.htm)
+- [俄罗斯多地遭袭已致14死超30伤](http://www.daogukj.com/8554716)
+- [郑州银行利润 18.95 亿却不分红，将 3.37 亿砸进总部大楼建设，中小股东的反对票说明了什么？](http://www.daogukj.com/4018030)
+- [郑丽文3声怒吼“一定让民进党垮台”](http://www.play.hengshemaoyi.cn/xiju/7007818.htm)
+- [台风「红霞」在广东惠州登陆，超越美莎克、巴威，成今年以来登陆我国的最强台风，影响多大？你那里情况如何？](http://www.daogukj.com/7787398)
+- [陈翔六点半：有人在这里被爱过，有人在这里学会了爱](http://www.play.hengshemaoyi.cn/xiju/3303937.htm)
+- [台风红霞已降到热带风暴级](http://www.play.hengshemaoyi.cn/xiju/6811831.htm)
+- [《被裁掉的女孩》播放破2亿](http://www.play.hengshemaoyi.cn/kongbu/5731979.htm)
+- [《明日方舟》EP - 酸橙色信笺](http://www.play.hengshemaoyi.cn/kongbu/8531788.htm)
+- [女童接受基因编辑试验死亡 院方通报](http://www.play.hengshemaoyi.cn/xiju/3940464.htm)
+- [宇宙舅舅的外甥队伍开始缩水了](http://www.play.hengshemaoyi.cn/xiju/5367021.htm)
+- [万一真爱呢？司马懿未必有良子女友能忍！【网络狠人109】](http://www.movie.hkepx.cn/xiju/7619002.htm)
+- [如何评价凡人修仙传导演王裕仁破防骂网友？](http://www.play.hengshemaoyi.cn/xiju/7491703.htm)
+- [中国粉丝称遭泰国GMM人员暴力对待](http://www.movie.hkepx.cn/xiju/9433984.htm)
+- [为什么大多数成年人一旦学会游泳就只想连续游，不再关注技术动作？](http://www.play.hengshemaoyi.cn/xiju/8043846.htm)
+- [郑丽文怒吼：一定要让民进党下台垮台](http://www.play.hengshemaoyi.cn/kongbu/5790640.htm)
+- [女孩连人带床被台风卷到户外绿化带](http://www.play.hengshemaoyi.cn/kongbu/2929388.htm)
+- [《鸣潮》共鸣者战斗演示 | 穗穗](http://www.play.hengshemaoyi.cn/xiju/2191121.htm)
+- [中国61项世界遗产最新“全家福”](http://www.play.hengshemaoyi.cn/kongbu/3389194.htm)
+- [班赛就是我的舞台，我就是主角！](http://www.daogukj.com/2463480)
+- [店主卖 7.9 元手机壳时标注「荣耀XX型号」被荣耀索赔 38 万元，如何从法律角度解读？](http://www.movie.hkepx.cn/xiju/2416068.htm)
+- [直击台风“红霞”登陆后排险现场](http://www.daogukj.com/4620332)
+- [伊称准备好应对可能的空袭或地面行动](http://www.movie.hkepx.cn/movie/5413853.htm)
+- [【MAFG】MC动画：于是，我们的故事开始了......](http://www.play.hengshemaoyi.cn/kongbu/3114909.htm)
+- [业主拒交2年物业费被起诉 法院判了](http://www.movie.hkepx.cn/movie/3357497.htm)
+- [义乌又爆单了](http://www.daogukj.com/aagwkkjr/)
 
 </details>
 
 ## 原始来源
 
-- [《民法典》为什么把“配偶”放在“亲属”的第1位？](https://www.zhihu.com/question/628507781)
+- [宁德时代上半年日赚 2.39 亿元，拟200-400亿元回购股份注销，创下 A 股历史纪录，如何解读？](https://www.zhihu.com/question/2064123998942901167)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f9c200cb1bab6be311e7 -->
+<!-- content-fingerprint: 152123992ffbae129c5a -->
