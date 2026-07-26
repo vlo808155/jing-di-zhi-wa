@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 穿凉鞋的人越来越少，洞洞鞋、勃肯鞋、溯溪鞋接班，为什么大家这样选？反映出哪些消费趋势？
+# 鹿晗勋章全场大合唱
 
-> 来源：知乎热榜 · 排名：第 17 位 · 热度：83 万热度 · 分类：问答 · 更新：2026-07-26T19:48:35+08:00
+> 来源：微博热搜 · 排名：第 17 位 · 热度：399003 · 分类：艺人 · 更新：2026-07-26T23:44:03+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“穿凉鞋的人越来越少，洞洞鞋、勃肯鞋、溯溪鞋接班，为什么大家这样选？反映出哪些消费趋势？”位列第 17 位，公开热度指标为 83 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“鹿晗勋章全场大合唱”位列第 17 位，公开热度指标为 399003，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：七月中旬，全国各地气温陆续突破35℃大关。往年，这本该是凉鞋满街的季节。但如今，凉鞋似乎已不再居于“C位”。 杭州地铁1号线的车厢里，十几位乘客中只有一位女士穿着凉鞋。出了地铁站，来到核心商圈，凉鞋的出镜率也没有变高——小孩子脚下踩的是洞洞鞋，逛商场的女孩穿的是勃肯鞋和板鞋，男人们则大多穿着运动鞋。 大家记忆里那种露脚趾、带绊带、夏天专属的凉鞋，仿佛在城市里蒸发了。 凉鞋，真的已经“凉”了吗？ 在八零后、九零后的记忆里，夏天与凉鞋可是一对黄金拍档。那时候，气温一升高，街边鞋店就会把凉鞋摆到最显眼的位置。 小孩穿的是塑料凉鞋，五颜六色，鞋面镂空，脚后跟一根
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`微博热搜` `实时热搜` `热点资讯` `艺人`
 
 ## 相关热点
 
-- [决战晚自习](gao-zhan-yuan-zhu.md)
-- [女子陪诊被医生看出异常 查出肿瘤](xiong-you-cheng-zhu.md)
-- [中国AI芯片国产替代率五年从10%升至40%](yun-chou-wei-wo.md)
-- [日本称与俄谈重要问题 遭俄方打脸](shen-mou-yuan-lv.md)
+- [台媒：演员王建隆家中去世](gao-zhan-yuan-zhu.md)
+- [开源Ai性能接近闭源，那些闭源模型的估值怎么维持？](xiong-you-cheng-zhu.md)
+- [《明日方舟》EP - 酸橙色信笺](yun-chou-wei-wo.md)
+- [王虹北大同学晒大一合照](shen-mou-yuan-lv.md)
 
 ## 站内推荐
 
-- [多家外媒：中国经济展现出较强韧性](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [长鑫科技上市前夕记者探访](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [第二代身份证会被消磁？谣言](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [张柏芝一身黑衣现身机场](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [人类的指甲在生活中看起来好像并没有什么实际的价值，为什么这么长时间也没有退化呢？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [新产业跑出中国加速度](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
+- [终于明白职场没有朋友的含义了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [昆凌是昆凌的姓](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [演员王建隆去世](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [山东一高中多名新生身高超1米85](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [台风「红霞」在广东惠州登陆，超越美莎克、巴威，成今年以来登陆我国的最强台风，影响多大？你那里情况如何？](http://www.play.hengshemaoyi.cn/kongbu/1578357.htm)
-- [美国五大科技巨头 AI 隐性债务被曝达1.65万亿美元，四年内增长8倍，巨额表外负债会成为定时炸弹吗？](http://www.movie.hkepx.cn/xiju/7876471.htm)
-- [《西游记》孙悟空为何从不找结拜兄弟镇元子帮忙？](http://www.movie.hkepx.cn/xiju/5115238.htm)
-- [小孔摄像头藏进胸牌车钥匙](http://www.movie.hkepx.cn/movie/0606742.htm)
-- [百花杀大结局](http://www.play.hengshemaoyi.cn/xiju/7807975.htm)
-- [软孤立](http://www.movie.hkepx.cn/xiju/9954551.htm)
-- [台风致楼层晃动雨水似高压水枪射出](http://www.movie.hkepx.cn/movie/7533960.htm)
-- [日本称与俄谈重要问题 遭俄方打脸](http://www.movie.hkepx.cn/xiju/8246281.htm)
-- [香肠这东西到底是中国人自己发明的还是欧洲传过来的？](http://www.play.hengshemaoyi.cn/xiju/4160683.htm)
-- [神23乘组在轨已满60天](http://www.movie.hkepx.cn/movie/4035506.htm)
-- [人类的指甲在生活中看起来好像并没有什么实际的价值，为什么这么长时间也没有退化呢？](http://www.movie.hkepx.cn/movie/7792290.htm)
-- [“顶级智斗，胜负已分”【天堂的彼端-变速】【智斗の小曲】](http://www.play.hengshemaoyi.cn/kongbu/1158345.htm)
-- [第二代身份证会被消磁？谣言](http://www.play.hengshemaoyi.cn/xiju/2216098.htm)
-- [王楚钦2比1黄旭男](http://www.daogukj.com/7206749)
-- [为什么大多数成年人一旦学会游泳就只想连续游，不再关注技术动作？](http://www.daogukj.com/3682471)
-- [业主拒交2年物业费被起诉 法院判了](http://www.play.hengshemaoyi.cn/kongbu/5760703.htm)
-- [仅剩4年 吸烟率如何再降3.2%](http://www.play.hengshemaoyi.cn/xiju/5757022.htm)
-- [徐良演唱会让伴舞唱歌 自己在后面跳](http://www.play.hengshemaoyi.cn/kongbu/7848326.htm)
-- [⚡️异 域 狗 叫 ⚡️](http://www.movie.hkepx.cn/xiju/6958589.htm)
-- [胖东来回应售卖的西瓜上为何有圆圈](http://www.movie.hkepx.cn/movie/7310674.htm)
-- [演员王建隆去世](http://www.play.hengshemaoyi.cn/kongbu/2440700.htm)
-- [张颂文和段奕宏跳着舞步上台颁奖](http://www.play.hengshemaoyi.cn/kongbu/6463071.htm)
-- [如何评价凡人修仙传导演王裕仁破防骂网友？](http://www.daogukj.com/uiqoxaho/)
-- [如何看待数码博主极客湾最新一期的《续航大横评》？这会给国产手机厂商和市场带来什么样的影响？](http://www.movie.hkepx.cn/xiju/9888707.htm)
-- [《薰衣草》小童演员王建隆在家中离世](http://www.movie.hkepx.cn/xiju/8080320.htm)
-- [港澳预警美素佳儿奶粉检出铅超标](http://www.play.hengshemaoyi.cn/xiju/5503009.htm)
-- [晚饭后最好的耗糖运动](http://www.play.hengshemaoyi.cn/xiju/8114286.htm)
-- [台媒：演员王建隆家中去世](http://www.play.hengshemaoyi.cn/xiju/9867402.htm)
-- [10艘万吨大驱“齐聚”亮相](http://www.daogukj.com/5414956)
-- [第二代身份证会被消磁系谣言](http://www.movie.hkepx.cn/movie/5135374.htm)
-- [女子偷准婆婆的支付密码 给自己转账](http://www.movie.hkepx.cn/movie/5537104.htm)
-- [如何看待儿子沉迷游戏吞药入院，父亲因此起诉腾讯、网易、米哈游和三七互娱，并且索赔10元？](http://www.daogukj.com/nlpmxiub/)
-- [躲在航天核心区捡垃圾的两人【三角洲动画】](http://www.daogukj.com/9528136)
-- [艾米净身高165](http://www.movie.hkepx.cn/xiju/7046583.htm)
-- [店主卖 7.9 元手机壳时标注「荣耀XX型号」被荣耀索赔 38 万元，如何从法律角度解读？](http://www.movie.hkepx.cn/movie/7006918.htm)
-- [王楚钦梁靖崑 1-2 爆冷输给向鹏温瑞博，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/0001475.htm)
-- [张柏芝一身黑衣现身机场](http://www.play.hengshemaoyi.cn/xiju/7201519.htm)
-- [如果没有出现四大天王，香港乐坛能否敌得过台湾乐坛？](http://www.movie.hkepx.cn/xiju/0892442.htm)
-- [男子回乡奔丧途中遇害 嫌犯一审无罪](http://www.daogukj.com/vukboudm/)
-- [班赛就是我的舞台，我就是主角！](http://www.movie.hkepx.cn/movie/9956763.htm)
-- [某演员高铁占座 铁路部门回应](http://www.daogukj.com/6468305)
-- [美国“学校午餐”牛奶犹如史莱姆](http://www.movie.hkepx.cn/xiju/5050923.htm)
-- [瓷砖贴到一半业主才发现装错房](http://www.play.hengshemaoyi.cn/kongbu/1188761.htm)
-- [中国AI芯片国产替代率五年从10%升至40%](http://www.daogukj.com/gueipuzl/)
-- [希望胖东来开到外省的举个手！](http://www.daogukj.com/0647494)
-- [百万粉丝女网红贩卖私密视频被逮捕](http://www.play.hengshemaoyi.cn/xiju/5125908.htm)
-- [中国61项世界遗产最新“全家福”](http://www.movie.hkepx.cn/movie/9717231.htm)
-- [港版金秘书为何这样路透](http://www.play.hengshemaoyi.cn/kongbu/0333129.htm)
-- [四川丰谷vs北京一点心动](http://www.play.hengshemaoyi.cn/xiju/0914168.htm)
-- [「新宿决战」雨爱版](http://www.daogukj.com/0263464)
+- [业主拒交2年物业费被起诉 法院判了](http://www.play.hengshemaoyi.cn/kongbu/1578357.htm)
+- [甘肃一景区发生山洪致10死23伤](http://www.movie.hkepx.cn/xiju/7876471.htm)
+- [周星驰：中国功夫世界第一](http://www.movie.hkepx.cn/xiju/5115238.htm)
+- [暴涨5倍后 拼豆迎来国家级安全警示](http://www.movie.hkepx.cn/movie/0606742.htm)
+- [龙卷风突袭 他3分钟失去父母和公司](http://www.play.hengshemaoyi.cn/xiju/7807975.htm)
+- [AI冲击短剧行业 “戏王”也扛不住了](http://www.movie.hkepx.cn/xiju/9954551.htm)
+- [不要长期向AI倾泻心事](http://www.movie.hkepx.cn/movie/7533960.htm)
+- [王虹北大同学晒大一合照](http://www.movie.hkepx.cn/xiju/8246281.htm)
+- [第二代身份证会被消磁？谣言](http://www.play.hengshemaoyi.cn/xiju/4160683.htm)
+- [除了中式清凉 欧洲游客还看中很多](http://www.movie.hkepx.cn/movie/4035506.htm)
+- [山东一高中多名新生身高超1米85](http://www.movie.hkepx.cn/movie/7792290.htm)
+- [如何评价章笛沙执导，黄渤、吴磊、高叶等主演的电影《群星闪耀时》？](http://www.play.hengshemaoyi.cn/kongbu/1158345.htm)
+- [昆凌是昆凌的姓](http://www.play.hengshemaoyi.cn/xiju/2216098.htm)
+- [螃蟹挑战赛](http://www.daogukj.com/7206749)
+- [如何看待罗永浩向电视行业“开炮”](http://www.daogukj.com/3682471)
+- [群星闪耀时撤档](http://www.play.hengshemaoyi.cn/kongbu/5760703.htm)
+- [“顶级智斗，胜负已分”【天堂的彼端-变速】【智斗の小曲】](http://www.play.hengshemaoyi.cn/xiju/5757022.htm)
+- [「新宿决战」雨爱版](http://www.play.hengshemaoyi.cn/kongbu/7848326.htm)
+- [为什么大多数成年人一旦学会游泳就只想连续游，不再关注技术动作？](http://www.movie.hkepx.cn/xiju/6958589.htm)
+- [原来请假是不需要理由的](http://www.movie.hkepx.cn/movie/7310674.htm)
+- [“上海一商业街发生命案”系谣言](http://www.play.hengshemaoyi.cn/kongbu/2440700.htm)
+- [这挑战迪迦干完都亮红灯走的](http://www.play.hengshemaoyi.cn/kongbu/6463071.htm)
+- [美对伊空袭突然叫停有何考量](http://www.daogukj.com/uiqoxaho/)
+- [俄罗斯打到缺钱了吗](http://www.movie.hkepx.cn/xiju/9888707.htm)
+- [拿报废钻头锻造非洲战刀！《锻刀大赛》最阴间的钢材](http://www.movie.hkepx.cn/xiju/8080320.htm)
+- [海来阿木回应演唱会下跪争议](http://www.play.hengshemaoyi.cn/xiju/5503009.htm)
+- [小狗护主咬死剧毒眼镜蛇 仅嘴角中毒](http://www.play.hengshemaoyi.cn/xiju/8114286.htm)
+- [美素佳儿最新回应](http://www.play.hengshemaoyi.cn/xiju/9867402.htm)
+- [杭州已经发展成这样了吗](http://www.daogukj.com/5414956)
+- [别人说倒装句！广西人讲乱装句！这谁能听懂啊！😵](http://www.movie.hkepx.cn/movie/5135374.htm)
+- [“月嫂”你听过，那周末的“全职奶舅”听过吗？](http://www.movie.hkepx.cn/movie/5537104.htm)
+- [今年消费品以旧换新销售额超万亿元](http://www.daogukj.com/nlpmxiub/)
+- [古代没冰箱，肉怎么保存？](http://www.daogukj.com/9528136)
+- [台湾新北4.8级地震 福建多地有震感](http://www.movie.hkepx.cn/xiju/7046583.htm)
+- [九寨沟景区通报泥石流致游客滞留](http://www.movie.hkepx.cn/movie/7006918.htm)
+- [济南暴雨 积水深到大腿](http://www.play.hengshemaoyi.cn/kongbu/0001475.htm)
+- [演员王建隆去世](http://www.play.hengshemaoyi.cn/xiju/7201519.htm)
+- [16岁女生服刑期发现漏罪被判12年](http://www.movie.hkepx.cn/xiju/0892442.htm)
+- [鞠婧祎让粉丝进酒店看出妆](http://www.daogukj.com/vukboudm/)
+- [亚运短跑冠军体脂低于 10%，退役不到一年查出三高和脂肪肝，这是什么原因？](http://www.movie.hkepx.cn/movie/9956763.htm)
+- [【TF家族练习生】《突围II破局》EP05：你的位置，决定了你有多少选择（下）](http://www.daogukj.com/6468305)
+- [迪丽热巴名字长还有这好处](http://www.movie.hkepx.cn/xiju/5050923.htm)
+- [被骂了三十年的PPT，为什么我们还离不开它？｜附做PPT好用的AI！](http://www.play.hengshemaoyi.cn/kongbu/1188761.htm)
+- [《明日方舟》EP - 酸橙色信笺](http://www.daogukj.com/gueipuzl/)
+- [宁德时代上半年日赚 2.39 亿元，拟200-400亿元回购股份注销，创下 A 股历史纪录，如何解读？](http://www.daogukj.com/0647494)
+- [甘肃景区山洪冲走多辆汽车](http://www.play.hengshemaoyi.cn/xiju/5125908.htm)
+- [极客湾手机续航大横评：电池锁容？电量缩水？谁在浑水摸鱼？](http://www.movie.hkepx.cn/movie/9717231.htm)
+- [滞销西瓜被网红压价到一毛多一斤](http://www.play.hengshemaoyi.cn/kongbu/0333129.htm)
+- [你会让自己孩子和一些品行不端正，学习成绩又不好的孩子成为好朋友吗？](http://www.play.hengshemaoyi.cn/xiju/0914168.htm)
+- [《年会不能停 2！》开点映了，看过的都来说说，如何评价这部电影？](http://www.daogukj.com/0263464)
 
 </details>
 
 ## 原始来源
 
-- [穿凉鞋的人越来越少，洞洞鞋、勃肯鞋、溯溪鞋接班，为什么大家这样选？反映出哪些消费趋势？](https://www.zhihu.com/question/2062144078456648299)
+- [鹿晗勋章全场大合唱](https://s.weibo.com/weibo?q=%E9%B9%BF%E6%99%97%E5%8B%8B%E7%AB%A0%E5%85%A8%E5%9C%BA%E5%A4%A7%E5%90%88%E5%94%B1)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 842623f2eff2e48145dd -->
+<!-- content-fingerprint: e3935f8a51d14d661978 -->
