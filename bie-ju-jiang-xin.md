@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 黄磊小儿子长得好像黄磊
+# 朱志鑫 造型
 
-> 来源：微博热搜 · 排名：第 19 位 · 热度：400471 · 分类：艺人 · 更新：2026-07-28T15:47:30+08:00
+> 来源：微博热搜 · 排名：第 19 位 · 热度：350633 · 分类：演出 · 更新：2026-07-28T21:21:47+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“黄磊小儿子长得好像黄磊”位列第 19 位，公开热度指标为 400471，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“朱志鑫 造型”位列第 19 位，公开热度指标为 350633，榜单分类为“演出”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `艺人`
+`微博热搜` `实时热搜` `热点资讯` `演出`
 
 ## 相关热点
 
-- [如何看待上单老祖做的视频，黄金剑魔打王者蒙多，两场均以黄金剑魔获胜？](qiao-duo-tian-gong.md)
-- [全新开箱！我居然买到了德军的HK G28精确射手步枪？](gui-fu-shen-gong.md)
-- [中国罕见“拉黑”一所波兰大学](jin-shang-tian-hua.md)
-- [武艺综艺谈上一段恋情分手原因](hua-long-dian-jing.md)
+- [小区突发火灾 两人疑似打滑先后坠楼](qiao-duo-tian-gong.md)
+- [“侠以武犯禁”与“侠之大者为国为民”存在矛盾，当代武侠游戏应当如何平衡两种侠客价值观？](gui-fu-shen-gong.md)
+- [没一点想看的欲望？胆量不详？笑料一筐！周笔畅满身大汉？笑到没空害怕《密室大逃脱8》](jin-shang-tian-hua.md)
+- [患癌妻子申请销毁婚外胚胎遭拒](hua-long-dian-jing.md)
 
 ## 站内推荐
 
-- [【剧情】昭阳公主（2026）08 【孔雪儿/李宏毅】（按姓氏笔画排序）](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [周星驰不再演戏的原因](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
-- [《功夫女足》总票房突破20亿](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [女孩正颌手术被做反 当事医生已停诊](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [敬一丹公众号疑似辟谣脑溢血传闻](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [【独家】《百日成王》第11集 快看！天上有金子！【7月国创】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
+- [著名相声表演艺术家常佩业去世](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [日本突发7.1级地震 山崩瞬间曝光](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
+- [爷爷撬开焊死6年存钱箱助孙子上大学](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [警方通报4辆越野车高速并排占道](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [携程被罚 51.79 亿元后发内部全员信，透露出哪些信息？](http://www.movie.hkepx.cn/movie/2915060.htm)
-- [纽约中央公园“出轨门”男女身份确认](http://www.play.hengshemaoyi.cn/xiju/6650559.htm)
-- [上海震感](http://www.daogukj.com/zukhhxhm/)
-- [长鑫科技股价暴涨、上市创 A 股多项纪录，它为什么能这么火？这轮上涨到底能走多远？](http://www.play.hengshemaoyi.cn/xiju/8385002.htm)
-- [幼儿产检正常出生双脚畸形，医院坚持称系「医学盲区」，能用「盲区」来免责吗？产检真的检查不出来吗？](http://www.daogukj.com/9990025)
+- [又一名小红书前员工曝「距期权归属仅剩 8 天被解除劳动合同」，具体情况如何？其中涉及哪些法律问题？](http://www.movie.hkepx.cn/movie/2915060.htm)
+- [班主任称考上清北三分天赋七分努力](http://www.play.hengshemaoyi.cn/xiju/6650559.htm)
+- [花儿与少年8录制回国](http://www.daogukj.com/zukhhxhm/)
+- [从《八仙！》上映说起，为何孙悟空在影视作品中总是正义的英雄，二郎神杨戬有时候当正派，有时候当反派？](http://www.play.hengshemaoyi.cn/xiju/8385002.htm)
+- [如何看待上单老祖做的视频，黄金剑魔打王者蒙多，两场均以黄金剑魔获胜？](http://www.daogukj.com/9990025)
 - [美通缉重犯被曝在华东师范大学任教十余年，这一事件暴露出高校在教师管理上的哪些短板和漏洞？](http://www.daogukj.com/hlzgjllr/)
-- [英伟达微软反对禁止中国开源AI](http://www.daogukj.com/1279926)
-- [女子被家暴13年丈夫一审获刑6个月](http://www.play.hengshemaoyi.cn/xiju/7656141.htm)
-- [【剧情】昭阳公主（2026）08 【孔雪儿/李宏毅】（按姓氏笔画排序）](http://www.daogukj.com/3778150)
-- [网红书记带货知了猴被指破坏生态](http://www.movie.hkepx.cn/xiju/3087462.htm)
-- [俄方就日防卫大臣涉核言论发出警告](http://www.daogukj.com/1068777)
-- [女子种出二三十万斤玉米后懵圈了](http://www.movie.hkepx.cn/movie/1255369.htm)
-- [长鑫上市后，美股「半导体-芯片板块」普跌，SK海力士破发，早盘韩股熔断，日经大跌，对此你怎么看？](http://www.daogukj.com/5932895)
-- [来杯好酒摇一摇](http://www.daogukj.com/0377653)
-- [奇怪的玩具工厂 第五章 Part1](http://www.movie.hkepx.cn/xiju/9207771.htm)
-- [大连气温超30℃ 这些人需格外注意](http://www.daogukj.com/swhxvolr/)
-- [莱茵金属、太脱拉等 14 家欧盟实体被中方列入出口管制，大家怎么看今后的中欧关系？](http://www.play.hengshemaoyi.cn/xiju/2171847.htm)
+- [GMM致歉](http://www.daogukj.com/1279926)
+- [日本地震 上海、杭州网友称有震感](http://www.play.hengshemaoyi.cn/xiju/7656141.htm)
+- [【独家】《百日成王》第11集 快看！天上有金子！【7月国创】](http://www.daogukj.com/3778150)
+- [日本熊本天空浮现巨型蘑菇云](http://www.movie.hkepx.cn/xiju/3087462.htm)
+- [全款买房的人变多](http://www.daogukj.com/1068777)
+- [每次进超市买牛奶 就和做数学题一样](http://www.movie.hkepx.cn/movie/1255369.htm)
+- [幼儿产检正常出生双脚畸形，医院坚持称系「医学盲区」，能用「盲区」来免责吗？产检真的检查不出来吗？](http://www.daogukj.com/5932895)
+- [还记得“卖茶女”的诈骗套路吗？当“深圳网警”遇到“恋爱脑”，深情难抵骗局真相！](http://www.daogukj.com/0377653)
+- [中国王中王围棋争霸赛，柯洁击败李轩豪，如何评价本场对局？](http://www.movie.hkepx.cn/xiju/9207771.htm)
+- [乒乓百分大战：张继科VS郑荣植](http://www.daogukj.com/swhxvolr/)
+- [沃齐尼亚世界杯后被智利科洛科洛签约，如何看待他这一选择？世界杯热度红利能持续多久？](http://www.play.hengshemaoyi.cn/xiju/2171847.htm)
 - [【剧情】炸弹妞 第三季（2014）01【玛蒂娜·希尔 / 马蒂亚斯·德特莫塞尔】](http://www.movie.hkepx.cn/movie/1158138.htm)
-- [杨天真 切胃瘦了但迅速又胖了](http://www.play.hengshemaoyi.cn/xiju/7265248.htm)
-- [中国新新三样全球圈粉](http://www.play.hengshemaoyi.cn/xiju/7463556.htm)
-- [这 一 钓 会 很 帅](http://www.movie.hkepx.cn/movie/8356454.htm)
-- [坚守者 vs 各种傀儡！](http://www.play.hengshemaoyi.cn/kongbu/7174540.htm)
-- [【洛天依原创】若夏日终将完结](http://www.daogukj.com/djiijlzz/)
-- [寿司郎正在成为十年前的海底捞](http://www.movie.hkepx.cn/xiju/0852942.htm)
-- [多元夜游激发文旅活力](http://www.movie.hkepx.cn/xiju/2073519.htm)
-- [5元水饺4元面馆 一批低价餐饮爆火](http://www.daogukj.com/bxdkirzi/)
-- [美国校园午餐被曝牛奶黏稠似史莱姆、胡萝卜可被磁铁吸起，可能有什么「科技狠活」？对健康有伤害吗？](http://www.play.hengshemaoyi.cn/xiju/2092178.htm)
-- [王虹、邓煜的成长经历是否动摇了「是金子在哪都能发光」的说法？顶尖科研人才的成长需要怎样的土壤？](http://www.movie.hkepx.cn/movie/6851513.htm)
-- [越南为何感谢中方？菲律宾最好听听](http://www.play.hengshemaoyi.cn/xiju/7317912.htm)
-- [携程被罚后内部全员信曝光](http://www.play.hengshemaoyi.cn/kongbu/0295456.htm)
-- [美反华机构：以后我们每年都要去中国](http://www.daogukj.com/ffeoohmm/)
-- [“全款买房”的人在变多](http://www.daogukj.com/8793756)
-- [古天乐坚持十年每天只吃一顿饭，这种饮食习惯是否健康？](http://www.daogukj.com/9221593)
-- [青海兴海连发强震 兰州西宁有震感](http://www.play.hengshemaoyi.cn/xiju/0638780.htm)
-- [如何评价大连理工2026在陕招生，普通批仅10人全部为计算机人工智能？](http://www.daogukj.com/5791131)
-- [女孩正颌手术被做反 当事医生已停诊](http://www.daogukj.com/ripwhmis/)
-- [中国火箭军现在到底强到什么程度了](http://www.movie.hkepx.cn/xiju/0388039.htm)
-- [一个人清理海浪冲上来的垃圾有人夸吗](http://www.daogukj.com/5335466)
-- [管乐加黄灿灿微信秀美甲](http://www.movie.hkepx.cn/movie/9946874.htm)
-- [年轻人为何对王虹产生强烈共鸣](http://www.daogukj.com/eylipvua/)
-- [日本记者体验小鹏汽车自动驾驶](http://www.play.hengshemaoyi.cn/kongbu/4095300.htm)
-- [黑龙江木兰13万只大鹅漫山遍野](http://www.movie.hkepx.cn/movie/5118663.htm)
-- [荣耀焕新品牌片「敢想，敢不同」](http://www.daogukj.com/qbzygzag/)
-- [韩股暴跌逼近6000点](http://www.movie.hkepx.cn/movie/1702335.htm)
-- [折个鸡](http://www.movie.hkepx.cn/movie/3713595.htm)
-- [女孩正颌后成“鞋拔子脸” 医生停诊](http://www.movie.hkepx.cn/xiju/1227154.htm)
-- [韩股“崩了”](http://www.play.hengshemaoyi.cn/xiju/7776346.htm)
-- [《遗忘之海》“饿猫”希尔达角色PV ——今晚加餐](http://www.movie.hkepx.cn/movie/2434946.htm)
-- [小米展出澎程6万公里路测车](http://www.daogukj.com/6801387)
-- [大批散户为配市值打新长鑫，却遭到大幅回撤，如何看待「为打新亏大钱」的荒诞投资现状？](http://www.daogukj.com/2226152)
+- [上海街头偶遇Angelababy](http://www.play.hengshemaoyi.cn/xiju/7265248.htm)
+- [上半年全国空气和地表水环境质量改善](http://www.play.hengshemaoyi.cn/xiju/7463556.htm)
+- [🏨杀死伪人🏨](http://www.movie.hkepx.cn/movie/8356454.htm)
+- [荣耀焕新品牌片「敢想，敢不同」](http://www.play.hengshemaoyi.cn/kongbu/7174540.htm)
+- [网友感慨「有微信之前人是可以不用一直在线的」，你有同感吗？你认为社交软件的进步有影响到你的生活吗？](http://www.daogukj.com/djiijlzz/)
+- [C罗无世界杯冠军遭航空公司嘲讽](http://www.movie.hkepx.cn/xiju/0852942.htm)
+- [地震来了怎么办？提前设置地震预警](http://www.movie.hkepx.cn/xiju/2073519.htm)
+- [地牢酒馆-20集 《吃美的巨魔与不速之客》](http://www.daogukj.com/bxdkirzi/)
+- [长鑫上市后，美股「半导体-芯片板块」普跌，SK海力士破发，早盘韩股熔断，日经大跌，对此你怎么看？](http://www.play.hengshemaoyi.cn/xiju/2092178.htm)
+- [携程被罚 51.79 亿元后发内部全员信，透露出哪些信息？](http://www.movie.hkepx.cn/movie/6851513.htm)
+- [伊朗导弹甩开美军多枚拦截弹画面](http://www.play.hengshemaoyi.cn/xiju/7317912.htm)
+- [长鑫科技登顶A股意味着什么](http://www.play.hengshemaoyi.cn/kongbu/0295456.htm)
+- [日本强震一购物中心坍塌 多人死亡](http://www.daogukj.com/ffeoohmm/)
+- [日本熊本县发生7.1级地震 余震不断](http://www.daogukj.com/8793756)
+- [商务部发布《关于所谓「产能过剩」问题的中方立场》，称保护主义只会扰乱全球经贸秩序，如何解读此文件？](http://www.daogukj.com/9221593)
+- [比亚迪海獭在日本上市](http://www.play.hengshemaoyi.cn/xiju/0638780.htm)
+- [全新开箱！我居然买到了德军的HK G28精确射手步枪？](http://www.daogukj.com/5791131)
+- [爷爷撬开焊死6年存钱箱助孙子上大学](http://www.daogukj.com/ripwhmis/)
+- [日本地震 杭州上海江苏有震感](http://www.movie.hkepx.cn/xiju/0388039.htm)
+- [一口气看完【末世爽剧】——《末日来临，先杀圣母》就你道德绑架是吧？那你先嘎！](http://www.daogukj.com/5335466)
+- [感冒灵正式纳入禁驾清单](http://www.movie.hkepx.cn/movie/9946874.htm)
+- [日本地震致著名景点古石墙倒塌](http://www.daogukj.com/eylipvua/)
+- [王的猜想](http://www.play.hengshemaoyi.cn/kongbu/4095300.htm)
+- [来杯好酒摇一摇](http://www.movie.hkepx.cn/movie/5118663.htm)
+- [路边一块，用心雕琢，也可以变成大家喜欢的样子。](http://www.daogukj.com/qbzygzag/)
+- [刘亦菲 富有且大方](http://www.movie.hkepx.cn/movie/1702335.htm)
+- [退货千万不要提前给取件码](http://www.movie.hkepx.cn/movie/3713595.htm)
+- [女子每天从天津到北京上班](http://www.movie.hkepx.cn/xiju/1227154.htm)
+- [日本地震山崩瞬间画面曝光](http://www.play.hengshemaoyi.cn/xiju/7776346.htm)
+- [算命3](http://www.movie.hkepx.cn/movie/2434946.htm)
+- [齐达内出任法国国家队主教练](http://www.daogukj.com/6801387)
+- [为什么菲尔兹奖的两个得主，大部分人都在关注王虹，而关于邓煜的消息寥寥无几？](http://www.daogukj.com/2226152)
 
 </details>
 
 ## 原始来源
 
-- [黄磊小儿子长得好像黄磊](https://s.weibo.com/weibo?q=%E9%BB%84%E7%A3%8A%E5%B0%8F%E5%84%BF%E5%AD%90%E9%95%BF%E5%BE%97%E5%A5%BD%E5%83%8F%E9%BB%84%E7%A3%8A)
+- [朱志鑫 造型](https://s.weibo.com/weibo?q=%E6%9C%B1%E5%BF%97%E9%91%AB%20%E9%80%A0%E5%9E%8B)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 2ba9d984585ecaf01762 -->
+<!-- content-fingerprint: a27f8cef049f4e63c1a1 -->
