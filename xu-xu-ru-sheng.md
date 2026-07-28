@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 女子屁股痛以为上火确诊食肉菌感染
+# 【洛天依原创】若夏日终将完结
 
-> 来源：今日头条热榜 · 排名：第 20 位 · 热度：3873644 · 更新：2026-07-28T05:52:38+08:00
+> 来源：哔哩哔哩热门 · 排名：第 20 位 · 热度：167122 · 分类：原创音乐 · 更新：2026-07-28T15:47:30+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“女子屁股痛以为上火确诊食肉菌感染”位列第 20 位，公开热度指标为 3873644。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“【洛天依原创】若夏日终将完结”位列第 20 位，公开热度指标为 167122，榜单分类为“原创音乐”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：词曲编PV：@Henry_28 夏日终会完结，但我会在四季流转中，继续做着少年的梦。 ------------------------------------------------ 我淋着一场春雨 化开冬日残存的忧郁 我迎着秋风几缕 回想夏日摇曳的思绪 地球上流转四季 就算夏天会离去 我们一定会 编织出 永远铭记 的回忆 树荫下 欢笑声还响亮 长椅旁 风与蝉鸣歌唱 没有作业的午后 无忧无虑的夏夜 愿这个夏日永不完结 也许啊 树上的叶子会枯黄 是啊 衣服的袖子会变长 若夏日终将完结 在没有预告
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `原创音乐`
 
 ## 相关热点
 
-- [Claude Opus 5 系统提示词泄漏，膨胀到 20 万字符的系统提示词，你怎么看？](huo-ling-huo-xian.md)
-- [读 评 论](you-sheng-you-se.md)
-- [酒店夜晚关空调 消费者被热醒](yin-ren-ru-sheng.md)
-- [苹果总市值超越英伟达重返全球第一](jing-di-zhi-wa.md)
+- [5元水饺4元面馆 一批低价餐饮爆火](huo-ling-huo-xian.md)
+- [女子被家暴13年丈夫一审获刑6个月](you-sheng-you-se.md)
+- [敬一丹公众号疑似辟谣脑溢血传闻](yin-ren-ru-sheng.md)
+- [詹姆斯引用中国名言却写错出处](jing-di-zhi-wa.md)
 
 ## 站内推荐
 
-- [美股](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
-- [超过五年没联系的朋友直接删](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
-- [肠癌很多人发现就是中晚期](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
-- [真有人把AI的照片当成自己](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
-- [敬一丹公众号疑似辟谣去世传闻](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
+- [地震50年后突然搜到已故父亲名字](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
+- [大连气温超30℃ 这些人需格外注意](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
+- [年轻人为何对王虹产生强烈共鸣](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
+- [青海兴海连发强震 兰州西宁有震感](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
+- [长鑫科技股价暴涨、上市创 A 股多项纪录，它为什么能这么火？这轮上涨到底能走多远？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [张柏芝家里墙上都是三个儿子的照片](http://www.daogukj.com/sqcbcoyd/)
-- [电影《年会不能停 2！》点映后口碑如何，它有哪些看点值得期待？](http://www.movie.hkepx.cn/movie/3229474.htm)
-- [耐克终止线上合作后，滔搏被曝暴力打折甩卖库存，如何解读此现象？](http://www.daogukj.com/3429973)
-- [女孩和男友吵架闹分手从18层坠楼](http://www.play.hengshemaoyi.cn/kongbu/2710783.htm)
-- [越来越多中国人不去日本旅游](http://www.movie.hkepx.cn/xiju/6386103.htm)
-- [为什么现在的汽车都要宣传百公里加速多少，我要开那么快干什么？](http://www.daogukj.com/2618773)
-- [湖南被安徽反超跌出全国前十以及江西超越陕西两件事同时发生。逐步落后又被步步紧逼，湖南应该怎么发展？](http://www.movie.hkepx.cn/movie/9325911.htm)
-- [美财政部威胁制裁中国模型，硅谷 200 家企业联名反对，硅谷的态度反弹说明了什么？](http://www.movie.hkepx.cn/xiju/3640841.htm)
+- [如何评价《绝区零》蕾米埃尔EP | Two to Tango 交缠舞步？](http://www.daogukj.com/sqcbcoyd/)
+- [冰岛发生5.3级地震](http://www.movie.hkepx.cn/movie/3229474.htm)
+- [来杯好酒摇一摇](http://www.daogukj.com/3429973)
+- [六部门：禁止涉军队退役报废装备销售](http://www.play.hengshemaoyi.cn/kongbu/2710783.htm)
+- [青海地震](http://www.movie.hkepx.cn/xiju/6386103.htm)
+- [当家里来强盗时，此时我和我的兄弟 1～6全集](http://www.daogukj.com/2618773)
+- [如何评价KIMI K3正式开源，以及同步发布出技术报告？](http://www.movie.hkepx.cn/movie/9325911.htm)
+- [黑龙江木兰13万只大鹅漫山遍野](http://www.movie.hkepx.cn/xiju/3640841.htm)
 - [和解剖了4000具尸体的法医，一起看了影片中的尸体...](http://www.movie.hkepx.cn/xiju/7828843.htm)
-- [台风后女子海滩捡上百斤金鲳鱼](http://www.daogukj.com/1443155)
-- [金鹰奖 提名名单](http://www.play.hengshemaoyi.cn/xiju/5386769.htm)
-- [为什么菲尔兹奖要限定40岁以下？](http://www.play.hengshemaoyi.cn/kongbu/4757137.htm)
-- [极客湾手机续航大横评：电池锁容？电量缩水？谁在浑水摸鱼？](http://www.daogukj.com/1847569)
-- [对伊朗停火 美国是不打了还是打不了](http://www.daogukj.com/9911095)
-- [真有人把AI的照片当成自己](http://www.play.hengshemaoyi.cn/xiju/3785579.htm)
-- [美股](http://www.play.hengshemaoyi.cn/kongbu/5104096.htm)
-- [长鑫科技上市 哪些城市是赢家](http://www.play.hengshemaoyi.cn/xiju/1113699.htm)
-- [法老的诅咒：一场殖民者写给世界的爽文](http://www.movie.hkepx.cn/xiju/6249881.htm)
-- [15个不成熟父母的特征](http://www.daogukj.com/3232228)
-- [河南回应三支一扶成绩争议：全面调查](http://www.play.hengshemaoyi.cn/xiju/4957012.htm)
-- [大庆赶海，大海退潮后发现大个的竹节蛏眼，撒上一点盐往外跑](http://www.movie.hkepx.cn/xiju/7760980.htm)
-- [20岁女孩从18楼坠落奇迹生还](http://www.daogukj.com/rawnvqja/)
-- [某博主制作知了猴馅水饺，结果知了猴集体出逃、活蹦乱跳，如何看待这一烹饪做法？你怎么看？](http://www.play.hengshemaoyi.cn/xiju/1510529.htm)
-- [女副部张世平被开除党籍：大肆敛财](http://www.movie.hkepx.cn/movie/2155535.htm)
-- [网传“西藏千年古碉遭强拆”系谣言](http://www.play.hengshemaoyi.cn/xiju/0705872.htm)
-- [尹锡悦当选韩国总统或无效](http://www.daogukj.com/mreurhye/)
+- [鸿门宴上樊哙生吃了一个彘肩（猪前腿），为何没有感染细菌寄生虫等？](http://www.daogukj.com/1443155)
+- [折个鸡](http://www.play.hengshemaoyi.cn/xiju/5386769.htm)
+- [如何评价大连理工2026在陕招生，普通批仅10人全部为计算机人工智能？](http://www.play.hengshemaoyi.cn/kongbu/4757137.htm)
+- [携程被罚后内部全员信曝光](http://www.daogukj.com/1847569)
+- [熬夜时最恐怖的事](http://www.daogukj.com/9911095)
+- [青海兴海连发强震 兰州西宁有震感](http://www.play.hengshemaoyi.cn/xiju/3785579.htm)
+- [地震50年后突然搜到已故父亲名字](http://www.play.hengshemaoyi.cn/kongbu/5104096.htm)
+- [这 一 钓 会 很 帅](http://www.play.hengshemaoyi.cn/xiju/1113699.htm)
+- [美国学校午餐胡萝卜可被吸铁石吸起](http://www.movie.hkepx.cn/xiju/6249881.htm)
+- [女孩正颌后成“鞋拔子脸” 医生停诊](http://www.daogukj.com/3232228)
+- [宋威龙张婧仪 共享手机密码](http://www.play.hengshemaoyi.cn/xiju/4957012.htm)
+- [女子种出二三十万斤玉米后懵圈了](http://www.movie.hkepx.cn/xiju/7760980.htm)
+- [日本记者体验小鹏汽车自动驾驶](http://www.daogukj.com/rawnvqja/)
+- [坚守者 vs 各种傀儡！](http://www.play.hengshemaoyi.cn/xiju/1510529.htm)
+- [阿里押注长鑫 76 亿搏出近 1700 亿，小米雷军打新长鑫浮盈 7 亿，背后是怎样的投资逻辑？](http://www.movie.hkepx.cn/movie/2155535.htm)
+- [小米 MiMo-V2.5 升至全球大模型调用量第一，这背后反映了哪些趋势和挑战？](http://www.play.hengshemaoyi.cn/xiju/0705872.htm)
+- [韩股“崩了”](http://www.daogukj.com/mreurhye/)
 - [丧 尸 下 乡](http://www.daogukj.com/qwfixtbt/)
-- [徐正溪赵今麦好有药味的父女线](http://www.play.hengshemaoyi.cn/kongbu/4247093.htm)
-- [中国入境游何以“圈粉”世界](http://www.daogukj.com/0243864)
-- [碧桂园卖长鑫痛失 470 亿，如何看待这一商业决策？如果没有卖长鑫可能会给碧桂园哪些影响？](http://www.daogukj.com/vwgrjwhx/)
-- [肖战告黑胜诉](http://www.movie.hkepx.cn/xiju/7783555.htm)
+- [C罗无世界杯冠军遭航空公司嘲讽](http://www.play.hengshemaoyi.cn/kongbu/4247093.htm)
+- [多元夜游激发文旅活力](http://www.daogukj.com/0243864)
+- [皇家美素力 1 号奶粉被澳门检出铅超标九倍，但厂商自检说符合标准，到底该信谁？铅超标有什么食用风险？](http://www.daogukj.com/vwgrjwhx/)
+- [如何看待上单老祖做的视频，黄金剑魔打王者蒙多，两场均以黄金剑魔获胜？](http://www.movie.hkepx.cn/xiju/7783555.htm)
 - [【剧情】昭阳公主（2026）08 【孔雪儿/李宏毅】（按姓氏笔画排序）](http://www.daogukj.com/yqngchqm/)
-- [敬一丹公众号疑似辟谣去世传闻](http://www.play.hengshemaoyi.cn/kongbu/1109876.htm)
-- [生物军团vs泰坦傀儡！](http://www.daogukj.com/6926689)
-- [读 评 论](http://www.play.hengshemaoyi.cn/kongbu/4911992.htm)
-- [为什么中国人总喜欢把客厅弄那么大厨房卫生间那么小？](http://www.daogukj.com/9879629)
-- [高通机器人瘫倒 被盖上黑布抬走](http://www.daogukj.com/5934021)
-- [哈吉蜂为了救克莱尔居然掏出了......](http://www.daogukj.com/0462954)
-- [Anthropic 刚招了研究王阳明的哲学教授，你觉得其他 AI公司会跟进吗？](http://www.daogukj.com/nsrsfedm/)
-- [20岁女孩从18楼坠落后奇迹生还](http://www.play.hengshemaoyi.cn/xiju/4318078.htm)
-- [长鑫科技上市首日高开 471%，市值突破 3 万亿，成 A 股新「一哥」，如何看待其表现？](http://www.play.hengshemaoyi.cn/xiju/1040523.htm)
-- [阿里76亿元投资长鑫搏出近1700亿](http://www.play.hengshemaoyi.cn/xiju/8546835.htm)
-- [这 一 钓 会 很 帅](http://www.play.hengshemaoyi.cn/xiju/0791591.htm)
-- [34岁货车司机服务区去世后被发现](http://www.play.hengshemaoyi.cn/kongbu/5159078.htm)
-- [Tiny Giant (Remix) | Zenless Zone Zero](http://www.movie.hkepx.cn/xiju/6783269.htm)
-- [约好跟同学写作业 其实是一起玩手机](http://www.movie.hkepx.cn/movie/1452887.htm)
-- [痞幼发飙车视频 副驾未系安全带](http://www.daogukj.com/vbpouezt/)
-- [【终末地】向 渊 行 前 传.exe](http://www.play.hengshemaoyi.cn/kongbu/7923516.htm)
-- [奇怪的玩具工厂 第五章 Part1](http://www.movie.hkepx.cn/movie/6325229.htm)
-- [日本作家东野圭吾去世，如何评价他的作品？你与他初相遇是从哪本书开始的？最推荐他的哪部作品？](http://www.play.hengshemaoyi.cn/xiju/3070885.htm)
+- [长鑫科技股价暴涨、上市创 A 股多项纪录，它为什么能这么火？这轮上涨到底能走多远？](http://www.play.hengshemaoyi.cn/kongbu/1109876.htm)
+- [买大路灯护眼 孩子视力1年涨200度](http://www.daogukj.com/6926689)
+- [女子被家暴13年丈夫一审获刑6个月](http://www.play.hengshemaoyi.cn/kongbu/4911992.htm)
+- [《遗忘之海》“饿猫”希尔达角色PV ——今晚加餐](http://www.daogukj.com/9879629)
+- [中国火箭军现在到底强到什么程度了](http://www.daogukj.com/5934021)
+- [《功夫女足》总票房突破20亿](http://www.daogukj.com/0462954)
+- [一个人清理海浪冲上来的垃圾有人夸吗](http://www.daogukj.com/nsrsfedm/)
+- [上海震感](http://www.play.hengshemaoyi.cn/xiju/4318078.htm)
+- [没一点想看的欲望？胆量不详？笑料一筐！周笔畅满身大汉？笑到没空害怕《密室大逃脱8》](http://www.play.hengshemaoyi.cn/xiju/1040523.htm)
+- [刘亦菲素颜女大](http://www.play.hengshemaoyi.cn/xiju/8546835.htm)
+- [6G相比5G不只是速度更快](http://www.play.hengshemaoyi.cn/xiju/0791591.htm)
+- [越南为何感谢中方？菲律宾最好听听](http://www.play.hengshemaoyi.cn/kongbu/5159078.htm)
+- [黄磊小儿子长得好像黄磊](http://www.movie.hkepx.cn/xiju/6783269.htm)
+- [杨天真 切胃瘦了但迅速又胖了](http://www.movie.hkepx.cn/movie/1452887.htm)
+- [韩股暴跌逼近6000点](http://www.daogukj.com/vbpouezt/)
+- [周星驰不再演戏的原因](http://www.play.hengshemaoyi.cn/kongbu/7923516.htm)
+- [创业板指跌超7% 算力硬件股全线下挫](http://www.movie.hkepx.cn/movie/6325229.htm)
+- [【剧情】炸弹妞 第三季（2014）01【玛蒂娜·希尔 / 马蒂亚斯·德特莫塞尔】](http://www.play.hengshemaoyi.cn/xiju/3070885.htm)
 
 </details>
 
 ## 原始来源
 
-- [女子屁股痛以为上火确诊食肉菌感染](https://www.toutiao.com/trending/7666766254091042870/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227666766254091042870%22%2C%22hot_board_impr_id%22%3A%22202607280552377E506FE598B8DD9F5378%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [【洛天依原创】若夏日终将完结](https://b23.tv/BV1X3gd6BES2)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 06529db45228bd2115d4 -->
+<!-- content-fingerprint: af1bee2e66f1cf55c71b -->

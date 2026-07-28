@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 老人一个月内被骗光600万积蓄
+# 168一盒的巧克力，我没给孩子买她没哭，回家后我一直在想如果她哭了，我会不会就买了，到底该不该给她买？
 
-> 来源：微博热搜 · 排名：第 17 位 · 热度：37817 · 分类：舆论监督 · 更新：2026-07-28T05:52:38+08:00
+> 来源：知乎热榜 · 排名：第 17 位 · 热度：171 万热度 · 分类：问答 · 更新：2026-07-28T15:47:30+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“老人一个月内被骗光600万积蓄”位列第 17 位，公开热度指标为 37817，榜单分类为“舆论监督”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“168一盒的巧克力，我没给孩子买她没哭，回家后我一直在想如果她哭了，我会不会就买了，到底该不该给她买？”位列第 17 位，公开热度指标为 171 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：四岁，女孩，平时就不太敢跟人要东西。今天在商场看到一盒巧克力，包装挺好看的，168块，15颗。她站在那没动，也没说想要，就是盯着看。我喊她走，没反应。喊第二声，挪了一步。第三声，回头看了我一眼。第四声，她才走过来，牵住我的手，一直没说话。 我蹲下来问她说：“你是不是想要那个巧克力？” 她没点头，也没摇头，就是看着地面，然后轻轻拉了一下我的手，说：“妈妈，我们走吧。” 我就带她走了。 走在路上，她一直没提那个巧克力。 回家以后，我打开手机看那个巧克力的页面，在想—— 那盒巧克力，到底该不该买？
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `舆论监督`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [“听泉赏宝”宣布彻底告别股市](gao-zhan-yuan-zhu.md)
-- [美财政部威胁制裁中国模型，硅谷 200 家企业联名反对，硅谷的态度反弹说明了什么？](xiong-you-cheng-zhu.md)
-- [黄金剑魔vs王者蒙多！这个对局到底多难打？#真金白银vs最强王者](yun-chou-wei-wo.md)
-- [高通机器人瘫倒 被盖上黑布抬走](shen-mou-yuan-lv.md)
+- [奇怪的玩具工厂 第五章 Part1](gao-zhan-yuan-zhu.md)
+- [黑龙江木兰13万只大鹅漫山遍野](xiong-you-cheng-zhu.md)
+- [英伟达微软反对禁止中国开源AI](yun-chou-wei-wo.md)
+- [中国火箭军现在到底强到什么程度了](shen-mou-yuan-lv.md)
 
 ## 站内推荐
 
-- [数说中国硬核经济亮点](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [白夜行一个恶生恶的故事](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [阿里押注长鑫76亿搏出近1700亿](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [逐玉配角第一个飞升的是李卿](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [专家：14nm凭什么等效4nm](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [请查收这份家庭防汛防灾应急包](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
+- [敦煌拟聘用外籍主播年薪30万](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [佛得角门将签约泪洒现场？图是AI的](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [老人一个月内被骗近600万](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [全新开箱！我居然买到了德军的HK G28精确射手步枪？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [女副部张世平被开除党籍：大肆敛财](http://www.play.hengshemaoyi.cn/kongbu/1578357.htm)
-- [印度男子在祖母火化时钻入焚尸炉](http://www.movie.hkepx.cn/xiju/7876471.htm)
-- [比邱淑贞女儿还像邱淑贞的女警](http://www.movie.hkepx.cn/xiju/5115238.htm)
-- [国内首部AI长片首播](http://www.movie.hkepx.cn/movie/0606742.htm)
-- [越来越多中国人不去日本旅游](http://www.play.hengshemaoyi.cn/xiju/7807975.htm)
-- [20岁女孩从18楼坠落后奇迹生还](http://www.movie.hkepx.cn/xiju/9954551.htm)
-- [超过五年没联系的朋友直接删](http://www.movie.hkepx.cn/movie/7533960.htm)
-- [高通机器人瘫倒 被盖上黑布抬走](http://www.movie.hkepx.cn/xiju/8246281.htm)
-- [网传“西藏千年古碉遭强拆”系谣言](http://www.play.hengshemaoyi.cn/xiju/4160683.htm)
-- [中国入境游何以“圈粉”世界](http://www.movie.hkepx.cn/movie/4035506.htm)
-- [专家：14nm凭什么等效4nm](http://www.movie.hkepx.cn/movie/7792290.htm)
-- [碧桂园卖长鑫痛失 470 亿，如何看待这一商业决策？如果没有卖长鑫可能会给碧桂园哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/1158345.htm)
-- [阿里押注长鑫76亿搏出近1700亿](http://www.play.hengshemaoyi.cn/xiju/2216098.htm)
-- [Tiny Giant (Remix) | Zenless Zone Zero](http://www.daogukj.com/7206749)
-- [越南为何感谢中方？菲律宾最好听听](http://www.daogukj.com/3682471)
-- [金鹰奖 提名名单](http://www.play.hengshemaoyi.cn/kongbu/5760703.htm)
-- [《绝区零》蕾米埃尔EP | Two to Tango 交缠舞步](http://www.play.hengshemaoyi.cn/xiju/5757022.htm)
-- [生物军团vs泰坦傀儡！](http://www.play.hengshemaoyi.cn/kongbu/7848326.htm)
-- [日本作家东野圭吾去世，如何评价他的作品？你与他初相遇是从哪本书开始的？最推荐他的哪部作品？](http://www.movie.hkepx.cn/xiju/6958589.htm)
-- [肠癌留了10年逃生窗口期](http://www.movie.hkepx.cn/movie/7310674.htm)
-- [“西藏千年古碉遭强拆”系谣言](http://www.play.hengshemaoyi.cn/kongbu/2440700.htm)
-- [《电话簿是你的谎言》](http://www.play.hengshemaoyi.cn/kongbu/6463071.htm)
-- [那英吐槽冉莹颖败家](http://www.daogukj.com/uiqoxaho/)
-- [敬一丹公众号疑似辟谣脑溢血传闻](http://www.movie.hkepx.cn/xiju/9888707.htm)
-- [在线峰值四千人！我做出来了三角洲第一个全自动改枪...](http://www.movie.hkepx.cn/xiju/8080320.htm)
-- [酒店夜晚关空调 消费者被热醒](http://www.play.hengshemaoyi.cn/xiju/5503009.htm)
-- [美光科技总市值跌破万亿美元](http://www.play.hengshemaoyi.cn/xiju/8114286.htm)
-- [各个行业被AI取代的概率](http://www.play.hengshemaoyi.cn/xiju/9867402.htm)
-- [徐正溪赵今麦好有药味的父女线](http://www.daogukj.com/5414956)
-- [这 一 钓 会 很 帅](http://www.movie.hkepx.cn/movie/5135374.htm)
-- [人类幼崽开机使用说明书](http://www.movie.hkepx.cn/movie/5537104.htm)
-- [展望“十五五”时期残疾人事业新局面](http://www.daogukj.com/nlpmxiub/)
-- [为什么现在的汽车都要宣传百公里加速多少，我要开那么快干什么？](http://www.daogukj.com/9528136)
-- [男孩胸前挂幼童在车流中骑行](http://www.movie.hkepx.cn/xiju/7046583.htm)
-- [尹锡悦当选韩国总统或无效](http://www.movie.hkepx.cn/movie/7006918.htm)
-- [台风后女子海滩捡上百斤金鲳鱼](http://www.play.hengshemaoyi.cn/kongbu/0001475.htm)
-- [逐玉配角第一个飞升的是李卿](http://www.play.hengshemaoyi.cn/xiju/7201519.htm)
-- [张柏芝家里墙上都是三个儿子的照片](http://www.movie.hkepx.cn/xiju/0892442.htm)
-- [真有人把AI的照片当成自己](http://www.daogukj.com/vukboudm/)
-- [长鑫科技上市首日高开 471%，市值突破 3 万亿，成 A 股新「一哥」，如何看待其表现？](http://www.movie.hkepx.cn/movie/9956763.htm)
-- [奇怪的玩具工厂 第五章 Part1](http://www.daogukj.com/6468305)
-- [20岁女孩从18楼坠落奇迹生还](http://www.movie.hkepx.cn/xiju/5050923.htm)
-- [【终末地】向 渊 行 前 传.exe](http://www.play.hengshemaoyi.cn/kongbu/1188761.htm)
-- [黄金剑魔vs王者蒙多！这个对局到底多难打？#真金白银vs最强王者](http://www.daogukj.com/gueipuzl/)
-- [如何看待某博主称“客厅游戏PC只需插两根线”，被网友吐槽“过度吹捧，所有主机不都这样”？](http://www.daogukj.com/0647494)
-- [痞幼发飙车视频 副驾未系安全带](http://www.play.hengshemaoyi.cn/xiju/5125908.htm)
+- [阿里押注长鑫 76 亿搏出近 1700 亿，小米雷军打新长鑫浮盈 7 亿，背后是怎样的投资逻辑？](http://www.play.hengshemaoyi.cn/kongbu/1578357.htm)
+- [长鑫上市后，美股「半导体-芯片板块」普跌，SK海力士破发，早盘韩股熔断，日经大跌，对此你怎么看？](http://www.movie.hkepx.cn/xiju/7876471.htm)
+- [大批散户为配市值打新长鑫，却遭到大幅回撤，如何看待「为打新亏大钱」的荒诞投资现状？](http://www.movie.hkepx.cn/xiju/5115238.htm)
+- [美反华机构：以后我们每年都要去中国](http://www.movie.hkepx.cn/movie/0606742.htm)
+- [青海地震](http://www.play.hengshemaoyi.cn/xiju/7807975.htm)
+- [上海震感](http://www.movie.hkepx.cn/xiju/9954551.htm)
+- [大连气温超30℃ 这些人需格外注意](http://www.movie.hkepx.cn/movie/7533960.htm)
+- [中国火箭军现在到底强到什么程度了](http://www.movie.hkepx.cn/xiju/8246281.htm)
+- [小米 MiMo-V2.5 升至全球大模型调用量第一，这背后反映了哪些趋势和挑战？](http://www.play.hengshemaoyi.cn/xiju/4160683.htm)
+- [多元夜游激发文旅活力](http://www.movie.hkepx.cn/movie/4035506.htm)
+- [全新开箱！我居然买到了德军的HK G28精确射手步枪？](http://www.movie.hkepx.cn/movie/7792290.htm)
+- [皇家美素力 1 号奶粉被澳门检出铅超标九倍，但厂商自检说符合标准，到底该信谁？铅超标有什么食用风险？](http://www.play.hengshemaoyi.cn/kongbu/1158345.htm)
+- [佛得角门将签约泪洒现场？图是AI的](http://www.play.hengshemaoyi.cn/xiju/2216098.htm)
+- [黄磊小儿子长得好像黄磊](http://www.daogukj.com/7206749)
+- [幼儿产检正常出生双脚畸形，医院坚持称系「医学盲区」，能用「盲区」来免责吗？产检真的检查不出来吗？](http://www.daogukj.com/3682471)
+- [折个鸡](http://www.play.hengshemaoyi.cn/kongbu/5760703.htm)
+- [荣耀焕新品牌片「敢想，敢不同」](http://www.play.hengshemaoyi.cn/xiju/5757022.htm)
+- [买大路灯护眼 孩子视力1年涨200度](http://www.play.hengshemaoyi.cn/kongbu/7848326.htm)
+- [【剧情】炸弹妞 第三季（2014）01【玛蒂娜·希尔 / 马蒂亚斯·德特莫塞尔】](http://www.movie.hkepx.cn/xiju/6958589.htm)
+- [改善脖子前倾最简单的动作](http://www.movie.hkepx.cn/movie/7310674.htm)
+- [泰国国家旅游局发文致歉](http://www.play.hengshemaoyi.cn/kongbu/2440700.htm)
+- [寿司郎正在成为十年前的海底捞](http://www.play.hengshemaoyi.cn/kongbu/6463071.htm)
+- [古天乐坚持十年每天只吃一顿饭，这种饮食习惯是否健康？](http://www.daogukj.com/uiqoxaho/)
+- [尹锡悦当选韩国总统或无效](http://www.movie.hkepx.cn/xiju/9888707.htm)
+- [建议撞脸马斯克老板改名Space X烧烤](http://www.movie.hkepx.cn/xiju/8080320.htm)
+- [敬一丹公众号疑似辟谣脑溢血传闻](http://www.play.hengshemaoyi.cn/xiju/5503009.htm)
+- [念相思妆造廉价感](http://www.play.hengshemaoyi.cn/xiju/8114286.htm)
+- [纽约中央公园“出轨门”男女身份确认](http://www.play.hengshemaoyi.cn/xiju/9867402.htm)
+- [C罗无世界杯冠军遭航空公司嘲讽](http://www.daogukj.com/5414956)
+- [6G相比5G不只是速度更快](http://www.movie.hkepx.cn/movie/5135374.htm)
+- [女孩正颌手术被做反 当事医生已停诊](http://www.movie.hkepx.cn/movie/5537104.htm)
+- [中国新新三样全球圈粉](http://www.daogukj.com/nlpmxiub/)
+- [当家里来强盗时，此时我和我的兄弟 1～6全集](http://www.daogukj.com/9528136)
+- [俄方就日防卫大臣涉核言论发出警告](http://www.movie.hkepx.cn/xiju/7046583.htm)
+- [韩股“崩了”](http://www.movie.hkepx.cn/movie/7006918.htm)
+- [鸿门宴上樊哙生吃了一个彘肩（猪前腿），为何没有感染细菌寄生虫等？](http://www.play.hengshemaoyi.cn/kongbu/0001475.htm)
+- [老人一个月内被骗近600万](http://www.play.hengshemaoyi.cn/xiju/7201519.htm)
+- [如何评价《绝区零》蕾米埃尔EP | Two to Tango 交缠舞步？](http://www.movie.hkepx.cn/xiju/0892442.htm)
+- [青海兴海连发强震 兰州西宁有震感](http://www.daogukj.com/vukboudm/)
+- [没一点想看的欲望？胆量不详？笑料一筐！周笔畅满身大汉？笑到没空害怕《密室大逃脱8》](http://www.movie.hkepx.cn/movie/9956763.htm)
+- [创业板指跌超7% 算力硬件股全线下挫](http://www.daogukj.com/6468305)
+- [日本记者体验小鹏汽车自动驾驶](http://www.movie.hkepx.cn/xiju/5050923.htm)
+- [周星驰不再演戏的原因](http://www.play.hengshemaoyi.cn/kongbu/1188761.htm)
+- [英伟达微软反对禁止中国开源AI](http://www.daogukj.com/gueipuzl/)
+- [从哪里跌倒就从哪里站起](http://www.daogukj.com/0647494)
+- [韩股暴跌逼近6000点](http://www.play.hengshemaoyi.cn/xiju/5125908.htm)
 - [和解剖了4000具尸体的法医，一起看了影片中的尸体...](http://www.movie.hkepx.cn/movie/9717231.htm)
-- [对伊朗停火 美国是不打了还是打不了](http://www.play.hengshemaoyi.cn/kongbu/0333129.htm)
-- [电影《年会不能停 2！》点映后口碑如何，它有哪些看点值得期待？](http://www.play.hengshemaoyi.cn/xiju/0914168.htm)
-- [Claude Opus 5 系统提示词泄漏，膨胀到 20 万字符的系统提示词，你怎么看？](http://www.daogukj.com/0263464)
+- [熬夜时最恐怖的事](http://www.play.hengshemaoyi.cn/kongbu/0333129.htm)
+- [冰岛发生5.3级地震](http://www.play.hengshemaoyi.cn/xiju/0914168.htm)
+- [5元水饺4元面馆 一批低价餐饮爆火](http://www.daogukj.com/0263464)
 
 </details>
 
 ## 原始来源
 
-- [老人一个月内被骗光600万积蓄](https://s.weibo.com/weibo?q=%E8%80%81%E4%BA%BA%E4%B8%80%E4%B8%AA%E6%9C%88%E5%86%85%E8%A2%AB%E9%AA%97%E5%85%89600%E4%B8%87%E7%A7%AF%E8%93%84)
+- [168一盒的巧克力，我没给孩子买她没哭，回家后我一直在想如果她哭了，我会不会就买了，到底该不该给她买？](https://www.zhihu.com/question/2064373953393702199)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 2917a6c7d2e1a9abbc1b -->
+<!-- content-fingerprint: 88035b32bfd3e9da95bb -->
