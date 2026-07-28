@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 网友感慨「有微信之前人是可以不用一直在线的」，你有同感吗？你认为社交软件的进步有影响到你的生活吗？
+# 幼儿产检正常出生双脚畸形，医院坚持称系「医学盲区」，能用「盲区」来免责吗？产检真的检查不出来吗？
 
-> 来源：知乎热榜 · 排名：第 20 位 · 热度：70 万热度 · 分类：问答 · 更新：2026-07-28T21:21:47+08:00
+> 来源：知乎热榜 · 排名：第 20 位 · 热度：78 万热度 · 分类：问答 · 更新：2026-07-29T02:04:10+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“网友感慨「有微信之前人是可以不用一直在线的」，你有同感吗？你认为社交软件的进步有影响到你的生活吗？”位列第 20 位，公开热度指标为 70 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“幼儿产检正常出生双脚畸形，医院坚持称系「医学盲区」，能用「盲区」来免责吗？产检真的检查不出来吗？”位列第 20 位，公开热度指标为 78 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：网友： 很多人怀念没有微信的年代，从来不是怀念落后的通讯方式，而是怀念生活有边界、身心有退路、独处有自由的日子。 原来我们如今焦虑、内耗、被碎片化的生活，不是人生本该如此，而是被即时通讯工具悄悄改变了。放在十几年前，“24小时在线”从来不是普通人的标配，可到了现在，随时待命、秒回消息、永不离线，成了成年人默认的生存准则。 在微信尚未普及的年代，人与人的连接，是有边界、有分寸、有时间差的。 网友： 越想越觉得这件事很讽刺。 QQ时代是开放的，陌生人可以进你空间，可以看你说说，可以随意加好友，社交边界很宽。但同时它又给了你十足的退路，头像灰了就是下线，隐身了
+来源公开摘要显示：7 月 25 日，珠海发生一起新生儿产检漏诊事件。家属反映孩子在产检过程中各项检查均显示正常一路“绿灯”，但出生后却发现双脚严重畸形。家属痛心质问：是医生资质不够还是B超根本没仔细看？目前，涉事医院产科方面暂未给出具体回应，院方坚持认为该情况属于医学盲区，难以在产检中完全规避，因此主张无责任。 花了1万多产检一路“绿灯”，宝宝出生后双脚却严重畸形，医院回应_腾讯新闻
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,72 +18,72 @@
 
 ## 相关热点
 
-- [地牢酒馆-20集 《吃美的巨魔与不速之客》](huo-ling-huo-xian.md)
-- [日本地震 上海、杭州网友称有震感](you-sheng-you-se.md)
-- [警方通报4辆越野车高速并排占道](yin-ren-ru-sheng.md)
-- [日本熊本强震天空浮现巨型蘑菇云](jing-di-zhi-wa.md)
+- [一个人清理海浪冲上来的垃圾有人夸吗](huo-ling-huo-xian.md)
+- [“罗汉娃”考上成都医学院](you-sheng-you-se.md)
+- [张凌赫我最讨厌事后道歉](yin-ren-ru-sheng.md)
+- [高原空战印度空军真的有优势吗](jing-di-zhi-wa.md)
 
 ## 站内推荐
 
-- [日本7.1级地震民众哭喊声一片](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
-- [乒乓百分大战：张继科VS郑荣植](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
-- [日本地震致著名景点古石墙倒塌](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
-- [比亚迪海獭在日本上市](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
-- [从《八仙！》上映说起，为何孙悟空在影视作品中总是正义的英雄，二郎神杨戬有时候当正派，有时候当反派？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
+- [男友逼坠楼生还女孩返还恋爱开销](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qi-shang-ba-xia.md)
+- [我国年收入前1%群体贡献逾五成个税](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/zhi-shang-tan-bing.md)
+- [日本地震山崩瞬间画面曝光](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/zi-xiang-mao-dun.md)
+- [网红景区10人遇难 3次预警为何失效](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xue-fu-wu-che.md)
+- [林黛玉进荣国府拜见舅舅，为什么舅舅都“避而不见”呢？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/ming-cha-qiu-hao.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [24 岁女孩正颌手术被做反变「鞋拔子脸」，当事医生已停诊，为什么会出现这种医疗事故？患者要怎么维权？](http://www.daogukj.com/sqcbcoyd/)
-- [“黄金界爱马仕”市值1年蒸发超千亿](http://www.movie.hkepx.cn/movie/3229474.htm)
-- [还记得“卖茶女”的诈骗套路吗？当“深圳网警”遇到“恋爱脑”，深情难抵骗局真相！](http://www.daogukj.com/3429973)
-- [日本强震已致多人死亡](http://www.play.hengshemaoyi.cn/kongbu/2710783.htm)
-- [张凌赫是王楚然铁粉](http://www.movie.hkepx.cn/xiju/6386103.htm)
-- [奇怪的玩具工厂 第五章 Part1](http://www.daogukj.com/2618773)
-- [皇家美素力 1 号奶粉被澳门检出铅超标九倍，但厂商自检说符合标准，到底该信谁？铅超标有什么食用风险？](http://www.movie.hkepx.cn/movie/9325911.htm)
-- [来杯好酒摇一摇](http://www.movie.hkepx.cn/xiju/3640841.htm)
-- [野人，你已经被我看透了！](http://www.movie.hkepx.cn/xiju/7828843.htm)
+- [【苏新皓｜4K直拍】囍 直拍｜梦寐以求·演唱会](http://www.daogukj.com/sqcbcoyd/)
+- [中国夫妇在马代玩拖曳伞双双坠海](http://www.movie.hkepx.cn/movie/3229474.htm)
+- [小区突发火灾 两人疑似打滑先后坠楼](http://www.daogukj.com/3429973)
+- [日本强震时天空出现巨型蘑菇云](http://www.play.hengshemaoyi.cn/kongbu/2710783.htm)
+- [日本7.1级地震民众哭喊声一片](http://www.movie.hkepx.cn/xiju/6386103.htm)
+- [景区NPC和游客猜拳全程无人赢走银票](http://www.daogukj.com/2618773)
+- [【独家】《百日成王》第11集 快看！天上有金子！【7月国创】](http://www.movie.hkepx.cn/movie/9325911.htm)
+- [重庆两名出租车司机飙车追逐被刑拘](http://www.movie.hkepx.cn/xiju/3640841.htm)
+- [地震来了怎么办？提前设置地震预警](http://www.movie.hkepx.cn/xiju/7828843.htm)
 - [日本熊本县连续发生 7.1 级、6.1 级地震，长三角多地网友称有震感，目前情况如何？](http://www.daogukj.com/1443155)
 - [退货千万不要提前给取件码](http://www.play.hengshemaoyi.cn/xiju/5386769.htm)
-- [全新开箱！我居然买到了德军的HK G28精确射手步枪？](http://www.play.hengshemaoyi.cn/kongbu/4757137.htm)
-- [长鑫科技登顶A股意味着什么](http://www.daogukj.com/1847569)
-- [长鑫估值](http://www.daogukj.com/9911095)
-- [比亚迪海獭在日本上市](http://www.play.hengshemaoyi.cn/xiju/3785579.htm)
-- [日本7.1级地震民众哭喊声一片](http://www.play.hengshemaoyi.cn/kongbu/5104096.htm)
-- [🏨杀死伪人🏨](http://www.play.hengshemaoyi.cn/xiju/1113699.htm)
-- [实拍日本地震：超市内孩子们哭成一片](http://www.movie.hkepx.cn/xiju/6249881.htm)
-- [女子每天从天津到北京上班](http://www.daogukj.com/3232228)
-- [御廷谣 空降](http://www.play.hengshemaoyi.cn/xiju/4957012.htm)
-- [每次进超市买牛奶 就和做数学题一样](http://www.movie.hkepx.cn/xiju/7760980.htm)
-- [王的猜想](http://www.daogukj.com/rawnvqja/)
-- [荣耀焕新品牌片「敢想，敢不同」](http://www.play.hengshemaoyi.cn/xiju/1510529.htm)
-- [为什么老一辈人总害怕被笑话？](http://www.movie.hkepx.cn/movie/2155535.htm)
-- [小米 MiMo-V2.5 升至全球大模型调用量第一，这背后反映了哪些趋势和挑战？](http://www.play.hengshemaoyi.cn/xiju/0705872.htm)
-- [日本地震山崩瞬间画面曝光](http://www.daogukj.com/mreurhye/)
-- [日本熊本县强震已确认一人死亡](http://www.daogukj.com/qwfixtbt/)
-- [女孩催促不要挡电梯被男孩母亲打](http://www.play.hengshemaoyi.cn/kongbu/4247093.htm)
-- [地震来了怎么办？提前设置地震预警](http://www.daogukj.com/0243864)
-- [河南多市三支一扶考试被指高分人数与招录名额高度对应，官方成立工作组调查，哪些信息值得关注？](http://www.daogukj.com/vwgrjwhx/)
-- [小区突发火灾 两人疑似打滑先后坠楼](http://www.movie.hkepx.cn/xiju/7783555.htm)
-- [【独家】《百日成王》第11集 快看！天上有金子！【7月国创】](http://www.daogukj.com/yqngchqm/)
-- [从《八仙！》上映说起，为何孙悟空在影视作品中总是正义的英雄，二郎神杨戬有时候当正派，有时候当反派？](http://www.play.hengshemaoyi.cn/kongbu/1109876.htm)
-- [日本熊本已发生60多次余震](http://www.daogukj.com/6926689)
-- [日本地震 上海、杭州网友称有震感](http://www.play.hengshemaoyi.cn/kongbu/4911992.htm)
-- [算命3](http://www.daogukj.com/9879629)
-- [日本地震 杭州上海江苏有震感](http://www.daogukj.com/5934021)
-- [日本突发7.1级地震 山崩瞬间曝光](http://www.daogukj.com/0462954)
-- [一口气看完【末世爽剧】——《末日来临，先杀圣母》就你道德绑架是吧？那你先嘎！](http://www.daogukj.com/nsrsfedm/)
-- [花儿与少年8录制回国](http://www.play.hengshemaoyi.cn/xiju/4318078.htm)
-- [一个人清理海浪冲上来的垃圾有人夸吗](http://www.play.hengshemaoyi.cn/xiju/1040523.htm)
-- [王虹 王的猜想](http://www.play.hengshemaoyi.cn/xiju/8546835.htm)
+- [【乾乾特工·剧场版】大制作来啦！！！](http://www.play.hengshemaoyi.cn/kongbu/4757137.htm)
+- [乒乓小将失利后拳击对手 官方通报](http://www.daogukj.com/1847569)
+- [AI公司 原版书籍销毁](http://www.daogukj.com/9911095)
+- [网红景区10人遇难 3次预警为何失效](http://www.play.hengshemaoyi.cn/xiju/3785579.htm)
+- [男友逼坠楼生还女孩返还恋爱开销](http://www.play.hengshemaoyi.cn/kongbu/5104096.htm)
+- [【洛天依原创】若夏日终将完结](http://www.play.hengshemaoyi.cn/xiju/1113699.htm)
+- [河南再回应“三支一扶”高分成绩争议](http://www.movie.hkepx.cn/xiju/6249881.htm)
+- [爷爷撬开焊死6年存钱箱助孙子上大学](http://www.daogukj.com/3232228)
+- [日本坍塌购物中心多人确认死亡](http://www.play.hengshemaoyi.cn/xiju/4957012.htm)
+- [女孩催促不要挡电梯被男孩母亲打](http://www.movie.hkepx.cn/xiju/7760980.htm)
+- [日韩经济到底怎么了](http://www.daogukj.com/rawnvqja/)
+- [兄弟们，刚哥的烤肠上线了，今天带大家检验一下刚哥黑猪烤肠的生产流程，让大家每一口都吃得放心！](http://www.play.hengshemaoyi.cn/xiju/1510529.htm)
+- [为什么很多电车后屁股都凹一块也不修？](http://www.movie.hkepx.cn/movie/2155535.htm)
+- [为什么菲尔兹奖的两个得主，大部分人都在关注王虹，而关于邓煜的消息寥寥无几？](http://www.play.hengshemaoyi.cn/xiju/0705872.htm)
+- [你怎样看待菲尔兹奖得主王虹在北大的经历？](http://www.daogukj.com/mreurhye/)
+- [日本熊本天空浮现巨型蘑菇云](http://www.daogukj.com/qwfixtbt/)
+- [王的猜想](http://www.play.hengshemaoyi.cn/kongbu/4247093.htm)
+- [上半年我国环境空气质量稳中向好](http://www.daogukj.com/0243864)
+- [假如一千年后的博物馆......](http://www.daogukj.com/vwgrjwhx/)
+- [日本地震致著名景点古石墙倒塌](http://www.movie.hkepx.cn/xiju/7783555.htm)
+- [1个西瓜卖898元 商家称营养高10倍](http://www.daogukj.com/yqngchqm/)
+- [林黛玉进荣国府拜见舅舅，为什么舅舅都“避而不见”呢？](http://www.play.hengshemaoyi.cn/kongbu/1109876.htm)
+- [Flandre离开AL](http://www.daogukj.com/6926689)
+- [“罗汉娃”考上成都医学院](http://www.play.hengshemaoyi.cn/kongbu/4911992.htm)
+- [法老的诅咒：一场殖民者写给世界的爽文](http://www.daogukj.com/9879629)
+- [中国夫妇在马尔代夫玩拖曳伞双双坠海](http://www.daogukj.com/5934021)
+- [深圳科学家用菌丝“织”出一条裙子](http://www.daogukj.com/0462954)
+- [《无期迷途》四周年庆典·主线限时活动——「绝响」](http://www.daogukj.com/nsrsfedm/)
+- [伊朗导弹甩开美军多枚拦截弹画面](http://www.play.hengshemaoyi.cn/xiju/4318078.htm)
+- [地狱猫复刻中途加油，全速怕什么怕拉爆直升机！](http://www.play.hengshemaoyi.cn/xiju/1040523.htm)
+- [曝Bin圣枪哥处境相反](http://www.play.hengshemaoyi.cn/xiju/8546835.htm)
 - [济南暴雨铁路桥下汽车被淹不实](http://www.play.hengshemaoyi.cn/xiju/0791591.htm)
-- [伊朗导弹甩开美军多枚拦截弹画面](http://www.play.hengshemaoyi.cn/kongbu/5159078.htm)
-- [朱志鑫 造型](http://www.movie.hkepx.cn/xiju/6783269.htm)
-- [上海街头偶遇Angelababy](http://www.movie.hkepx.cn/movie/1452887.htm)
-- [刘亦菲 富有且大方](http://www.daogukj.com/vbpouezt/)
-- [著名相声表演艺术家常佩业去世](http://www.play.hengshemaoyi.cn/kongbu/7923516.htm)
+- [如何看待《蜘蛛侠：崭新之日》总票房预测达18亿，首日预测超2.5亿，预售破亿，零点场近3000万？](http://www.play.hengshemaoyi.cn/kongbu/5159078.htm)
+- [普京称俄罗斯未来岌岌可危](http://www.movie.hkepx.cn/xiju/6783269.htm)
+- [柳周cp亲了](http://www.movie.hkepx.cn/movie/1452887.htm)
+- [第五人格](http://www.daogukj.com/vbpouezt/)
+- [日本发生7.1级地震 山崩瞬间曝光](http://www.play.hengshemaoyi.cn/kongbu/7923516.htm)
 - [“请把文字还给它本来的意思”](http://www.movie.hkepx.cn/movie/6325229.htm)
 - [【剧情】炸弹妞 第三季（2014）01【玛蒂娜·希尔 / 马蒂亚斯·德特莫塞尔】](http://www.play.hengshemaoyi.cn/xiju/3070885.htm)
 
@@ -91,8 +91,8 @@
 
 ## 原始来源
 
-- [网友感慨「有微信之前人是可以不用一直在线的」，你有同感吗？你认为社交软件的进步有影响到你的生活吗？](https://www.zhihu.com/question/2065138370057953642)
+- [幼儿产检正常出生双脚畸形，医院坚持称系「医学盲区」，能用「盲区」来免责吗？产检真的检查不出来吗？](https://www.zhihu.com/question/2064636039679795644)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 322053185c3a4bd99bc5 -->
+<!-- content-fingerprint: 5fe3f9e70d5db8934b16 -->
