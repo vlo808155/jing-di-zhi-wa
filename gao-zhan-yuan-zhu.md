@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 如何看待房主任离婚选择净身出户后，现在申请独立户口遭拒一事及其在节目中的表现？
+# 开车是最容易进入心流状态的活动
 
-> 来源：知乎热榜 · 排名：第 17 位 · 热度：156 万热度 · 分类：问答 · 更新：2026-07-29T16:01:14+08:00
+> 来源：微博热搜 · 排名：第 18 位 · 热度：418576 · 分类：情感 · 更新：2026-07-29T23:35:41+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何看待房主任离婚选择净身出户后，现在申请独立户口遭拒一事及其在节目中的表现？”位列第 17 位，公开热度指标为 156 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“开车是最容易进入心流状态的活动”位列第 18 位，公开热度指标为 418576，榜单分类为“情感”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：“娘家回不去，婆家落不下户，不是不想投靠，是我没有父母可以投靠”这是脱口秀演员房主任近日打电话给派出所面对户籍时，情绪失控说出的一段话。因离婚后名下无房、父母双亡，她申请独立户口遭拒，当场崩溃大哭。这一幕引发热议——一个曾在舞台上用段子治愈无数人的喜剧人，如今却要在现实里面对一张无处可去的户籍证明。 事情的起因并不复杂。房主任与前夫离婚时选择净身出户，将夫妻共同所有的房产和土地全部留给了对方。在她看来，这是一种彻底告别过去的方式——“我不要他的钱，我只要自由。”然而，当她想在户籍上与前夫彻底切割时，却发现这条路远比想象中艰难。 根据户籍管理规定，单独立户
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`微博热搜` `实时热搜` `热点资讯` `情感`
 
 ## 相关热点
 
-- [乌鲁鲁的巡飞弹旅游指南](xiong-you-cheng-zhu.md)
-- [韩股崩了](yun-chou-wei-wo.md)
-- [智驾小蓝灯将被禁用](shen-mou-yuan-lv.md)
-- [特朗普被发现在格雷厄姆葬礼打瞌睡](ming-cha-qiu-hao.md)
+- [女子修手机被店主导出40多张私密照](xiong-you-cheng-zhu.md)
+- [网红私占宁波无人岛直播改造被查处，个人可以开发利用无居民海岛吗？荒岛为何不能随意建房、居住？](yun-chou-wei-wo.md)
+- [孩子们，出了社会可没人惯着你](shen-mou-yuan-lv.md)
+- [韩国釜山破122年来最高气温纪录](ming-cha-qiu-hao.md)
 
 ## 站内推荐
 
-- [暑期文旅消费持续升温](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [为什么好多人根本没有意识到，其实大部分人个人手机的性能是超过他个人电脑（公司等的不算）的？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [如何看待 SK 海力士二季度营收 79 万亿韩元，净利润 60.54 万亿韩元？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [《人民的名义》里，高育良和李达康都没贪钱，为什么一个坐牢一个过关？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [为什么越来越多人客厅不要沙发了，那用什么替代呢？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [“十五五”开局我国经济运行稳中向好](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
+- [孙悟空客串了很多影视剧，为什么总是被用来救场？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [如何看待国外某历史学老师在考试题目中加入隐藏提示词抓 AI 作弊，35 名学生中 32 人中招？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [【4K高燃】中国最帅街道飘移追走大片儿！！！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [司晓迪反复碰瓷艺人收割流量该管了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [“玄学疗愈”乱象该管管了](http://www.movie.hkepx.cn/movie/7491355.htm)
-- [中俄正讨论建立公民永久免签制度](http://www.movie.hkepx.cn/movie/6352008.htm)
-- [女童熟睡遭3岁男孩9次拿被褥捂头](http://www.play.hengshemaoyi.cn/kongbu/7644353.htm)
-- [欧盟打算同时对抗中美](http://www.daogukj.com/ywhitats/)
-- [一觉没睡和豆包聊了8个小时](http://www.movie.hkepx.cn/movie/3484420.htm)
-- [少年被北大录取 当地政府送8万助学金](http://www.movie.hkepx.cn/movie/9834457.htm)
-- [锅已就位](http://www.daogukj.com/7853746)
-- [韩国股市今年以来第九次触发熔断机制，这一轮下跌最终会如何收场？](http://www.daogukj.com/fwtacuny/)
-- [谢贤去世后张柏芝首次公开露面](http://www.play.hengshemaoyi.cn/kongbu/1303344.htm)
-- [千万粉丝“鉴宝网红”炒股亏光父母积蓄遭拉黑，踢出家族群，直言：再玩就剁手，相关股票软件全部删除！](http://www.movie.hkepx.cn/movie/9793548.htm)
-- [日本7.1级强震，熊本县商场、桥梁、工厂烟囱等坍塌，有当地人讲讲亲历了怎样的震动吗？都是怎样避险的？](http://www.movie.hkepx.cn/xiju/5225700.htm)
-- [【独家】《百日成王》第11集 快看！天上有金子！【7月国创】](http://www.play.hengshemaoyi.cn/xiju/1079547.htm)
-- [有哪些“中国标准”成为“世界标准”的例子？](http://www.daogukj.com/cppelcpa/)
-- [会计被AI取代的概率](http://www.play.hengshemaoyi.cn/xiju/9936698.htm)
-- [初中生曝光侵华日军罪证被死亡威胁](http://www.play.hengshemaoyi.cn/xiju/3875070.htm)
-- [小蓝灯](http://www.play.hengshemaoyi.cn/xiju/9037846.htm)
-- [外交部回应美禁止进口中国新型机器人](http://www.play.hengshemaoyi.cn/xiju/5500139.htm)
-- [疑似南方医科大学珠江医院一医生发布「除非死人，不要临时请假」言论，院方已启动调查，反映了哪些问题？](http://www.movie.hkepx.cn/movie/3660898.htm)
-- [苏醒谈谢娜李荣浩亲自下场](http://www.play.hengshemaoyi.cn/xiju/4097066.htm)
-- [女子煮饭婆婆扔“手榴弹”当柴火](http://www.daogukj.com/3797954)
-- [印度两男子涉嫌轮奸被警察当街暴打](http://www.movie.hkepx.cn/movie/1081634.htm)
-- [17岁哥哥上中科大15岁妹妹上北大](http://www.play.hengshemaoyi.cn/kongbu/6230935.htm)
-- [中国GDP全球第二为何股市仍有差距](http://www.movie.hkepx.cn/xiju/6125548.htm)
-- [你不要再吸我啦！](http://www.play.hengshemaoyi.cn/xiju/0444256.htm)
-- [中国新型机器人视频在国外爆火](http://www.play.hengshemaoyi.cn/kongbu/3739402.htm)
-- [《无期迷途》四周年庆典·主线限时活动——「绝响」](http://www.daogukj.com/4846112)
-- [343斤网红徒步峨眉山晕倒被抬下山](http://www.play.hengshemaoyi.cn/kongbu/6216021.htm)
-- [乐事薯片废料回收充当食用淀粉原料](http://www.play.hengshemaoyi.cn/xiju/2439055.htm)
-- [日本强震时天空出现巨型蘑菇云](http://www.movie.hkepx.cn/xiju/9305926.htm)
-- [将门独后全阵容官宣](http://www.daogukj.com/3174256)
-- [日本强震瞬间满载货车被抛起](http://www.movie.hkepx.cn/xiju/7583013.htm)
-- [日本强震瞬间满载大货车被抛起](http://www.daogukj.com/8189876)
-- [“爆发红眼病毒后公司乱成一锅粥了，赶紧趁热把boss丢下楼！！！”](http://www.movie.hkepx.cn/xiju/6446029.htm)
-- [韩股崩盘6周暴跌40%](http://www.movie.hkepx.cn/movie/5734451.htm)
-- [为什么越来越多人客厅不要沙发了，那用什么替代呢？](http://www.movie.hkepx.cn/movie/8002281.htm)
-- [特朗普被发现在格雷厄姆葬礼打瞌睡](http://www.daogukj.com/7860194)
-- [斗地主中，为什么地主只有三张牌的优势就可以一打二了？](http://www.movie.hkepx.cn/movie/8408075.htm)
-- [延安一地发现豹子踪迹？假的](http://www.play.hengshemaoyi.cn/xiju/8943117.htm)
-- [许多网友反馈在泸溪河桃酥里吃出牙冠、牙齿、头发等异物，山姆已将其下架，可能是什么环节的问题？](http://www.play.hengshemaoyi.cn/xiju/6486531.htm)
-- [吉林汪清洪流淹没街道：大量菌包涌入](http://www.play.hengshemaoyi.cn/kongbu/5235529.htm)
-- [为什么黄金几乎在所有文明里都是贵重金属，并且作为了货币？](http://www.movie.hkepx.cn/movie/0595206.htm)
+- [有说法称印度成首个被 AI 做空的国家，真的是这样吗？会对印度经济产生哪些影响？](http://www.movie.hkepx.cn/movie/7491355.htm)
+- [A股“0元购”：000008的魔幻之旅](http://www.movie.hkepx.cn/movie/6352008.htm)
+- [一家三口打赏主播650万后甩锅孩子](http://www.play.hengshemaoyi.cn/kongbu/7644353.htm)
+- [莫氏鸡煲上厨综首轮遭淘汰](http://www.daogukj.com/ywhitats/)
+- [《宗教？P教！》](http://www.movie.hkepx.cn/movie/3484420.htm)
+- [赵心童淘汰丁俊晖晋级上海大师赛八强](http://www.movie.hkepx.cn/movie/9834457.htm)
+- [韩国股市会不会连环暴雷](http://www.daogukj.com/7853746)
+- [许多网友反馈在泸溪河桃酥里吃出牙冠、牙齿、头发等异物，山姆已将其下架，可能是什么环节的问题？](http://www.daogukj.com/fwtacuny/)
+- [周星驰《功夫女足》上映 18 天票房破 20 亿，超过《给阿嬷的情书》跻身年度第二，如何评价这一成绩？](http://www.play.hengshemaoyi.cn/kongbu/1303344.htm)
+- [【第一集】穿越成为GTI干员 不管是现实还是游戏都要好好活下去](http://www.movie.hkepx.cn/movie/9793548.htm)
+- [河北 860 元一晚酒店半夜关空调导致客人被热醒，酒店空调间断关停合法吗？消费者该怎样维权？](http://www.movie.hkepx.cn/xiju/5225700.htm)
+- [【剧情】炸弹妞 第四季（2015）01【玛蒂娜·希尔 / 马克·本杰明·普赫】](http://www.play.hengshemaoyi.cn/xiju/1079547.htm)
+- [粉笔网因炒股巨亏5600万，其前CEO张小龙上月嘲学生考公不如炒股称其靠炒股月赚5300万，如何评价？](http://www.daogukj.com/cppelcpa/)
+- [美联储](http://www.play.hengshemaoyi.cn/xiju/9936698.htm)
+- [赵心童6比2淘汰丁俊晖](http://www.play.hengshemaoyi.cn/xiju/3875070.htm)
+- [莫氏鸡煲首轮遭淘汰](http://www.play.hengshemaoyi.cn/xiju/9037846.htm)
+- [乌克兰约80万件武器弹药流入欧洲黑市](http://www.play.hengshemaoyi.cn/xiju/5500139.htm)
+- [如何看待广西日报特稿《王的猜想》因王虹获菲尔兹奖被炒到65元一份，再现「洛阳纸贵」的现象？](http://www.movie.hkepx.cn/movie/3660898.htm)
+- [修杰楷开庭认罪请求缓刑](http://www.play.hengshemaoyi.cn/xiju/4097066.htm)
+- [小区电梯突然失控从31楼下坠到负2楼](http://www.daogukj.com/3797954)
+- [343斤网红徒步峨眉山晕倒被抬下山](http://www.movie.hkepx.cn/movie/1081634.htm)
+- [广东人饭前烫碗的含金量还在上升](http://www.play.hengshemaoyi.cn/kongbu/6230935.htm)
+- [智驾“小蓝灯”将禁用？官方机构发声](http://www.movie.hkepx.cn/xiju/6125548.htm)
+- [【TF家族】《2026TF家族运动会》Day1（下）](http://www.play.hengshemaoyi.cn/xiju/0444256.htm)
+- [高个子最为薄弱的地方](http://www.play.hengshemaoyi.cn/kongbu/3739402.htm)
+- [和解剖了4000具尸体的法医，一起看了影片中的尸体...](http://www.daogukj.com/4846112)
+- [小区电梯失控从31楼下坠到负2楼](http://www.play.hengshemaoyi.cn/kongbu/6216021.htm)
+- [斯洛伐克总统怀疑中国机器人藏真人](http://www.play.hengshemaoyi.cn/xiju/2439055.htm)
+- [曾经的百亿票房先生黄渤，两部影片接连失利，他为什么突然不再是票房保障了？还有哪些演员扛不动院线票房了？](http://www.movie.hkepx.cn/xiju/9305926.htm)
+- [女子隐私照未打码被医美发朋友圈](http://www.daogukj.com/3174256)
+- [周星驰反客为主采访董宇辉](http://www.movie.hkepx.cn/xiju/7583013.htm)
+- [银行大面积调整营业时间](http://www.daogukj.com/8189876)
+- [2600三角劵！黑海北极星返厂！宝藏图也要解密？宝藏月活动来啦！](http://www.movie.hkepx.cn/xiju/6446029.htm)
+- [两老人求助小伙修手机 一左一右扇风](http://www.movie.hkepx.cn/movie/5734451.htm)
+- [司晓迪反复碰瓷艺人收割流量该管了](http://www.movie.hkepx.cn/movie/8002281.htm)
+- [韩国釜山破122年来最高气温纪录](http://www.daogukj.com/7860194)
+- [媒体曝辅助驾驶的「小蓝灯」将被禁用，背后是出于什么考量？你支持禁装吗？](http://www.movie.hkepx.cn/movie/8408075.htm)
+- [“喀什经开区零地价供地免租金”不实](http://www.play.hengshemaoyi.cn/xiju/8943117.htm)
+- [343 斤吃播博主「良子」在峨眉山徒步途中晕倒，后被担架抬下山，大体重人士适合徒步吗？会有哪些风险？](http://www.play.hengshemaoyi.cn/xiju/6486531.htm)
+- [散户集体抗议 韩国会前摆满吊唁花圈](http://www.play.hengshemaoyi.cn/kongbu/5235529.htm)
+- [八仙到底是什么等级的神仙？](http://www.movie.hkepx.cn/movie/0595206.htm)
 - [江苏 14 岁乒乓选手曹彦灏比赛失利后拳击对手，事件严重程度如何？判禁赛一年合理吗？](http://www.movie.hkepx.cn/movie/8425375.htm)
-- [把地球气候掀翻的居然是个“小男孩”](http://www.daogukj.com/4621288)
-- [《洛克王国：世界》全新玩法「草系徽章试炼」即将开启！](http://www.movie.hkepx.cn/movie/1333265.htm)
-- [赵钰琪14岁的美人胚子](http://www.daogukj.com/4564701)
-- [苏超的热度为什么降温了？](http://www.daogukj.com/zedewqov/)
-- [东野圭吾生前要求改编作品「每处改动需经本人签字同意」，这对编剧来说有多大压力？效果一定好吗？](http://www.daogukj.com/flvtssow/)
-- [重庆失联00后网格员龚宝冬确认遇难](http://www.movie.hkepx.cn/movie/2764293.htm)
-- [韩股崩了](http://www.movie.hkepx.cn/xiju/9847609.htm)
-- [《人民的名义》里，高育良和李达康都没贪钱，为什么一个坐牢一个过关？](http://www.play.hengshemaoyi.cn/kongbu/4804429.htm)
+- [美红通逃犯潜逃中国曾任外教](http://www.daogukj.com/4621288)
+- [【乾乾特工·剧场版】大制作来啦！！！](http://www.movie.hkepx.cn/movie/1333265.htm)
+- [小孩高铁上踢座椅 家长一巴掌解决](http://www.daogukj.com/4564701)
+- [我逮住蕾米埃尔了！](http://www.daogukj.com/zedewqov/)
+- [白鹿也太偶像剧了](http://www.daogukj.com/flvtssow/)
+- [美逃犯潜逃上海 任高校外教颇受欢迎](http://www.movie.hkepx.cn/movie/2764293.htm)
+- [网红私占宁波无人岛直播改造被查处，个人可以开发利用无居民海岛吗？荒岛为何不能随意建房、居住？](http://www.movie.hkepx.cn/xiju/9847609.htm)
+- [【4K高燃】中国最帅街道飘移追走大片儿！！！](http://www.play.hengshemaoyi.cn/kongbu/4804429.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何看待房主任离婚选择净身出户后，现在申请独立户口遭拒一事及其在节目中的表现？](https://www.zhihu.com/question/2059388918152304542)
+- [开车是最容易进入心流状态的活动](https://s.weibo.com/weibo?q=%E5%BC%80%E8%BD%A6%E6%98%AF%E6%9C%80%E5%AE%B9%E6%98%93%E8%BF%9B%E5%85%A5%E5%BF%83%E6%B5%81%E7%8A%B6%E6%80%81%E7%9A%84%E6%B4%BB%E5%8A%A8)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 21c9d4dcb45f4f6493b4 -->
+<!-- content-fingerprint: 70da1fc123a0728b9483 -->
