@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 国铁昆明局因检测列车撞人被罚300万
+# 邓煜在北大读了两年后就转去了MIT，这是什么样的转学政策？
 
-> 来源：百度热搜 · 排名：第 18 位 · 热度：6085971 · 更新：2026-07-30T05:42:43+08:00
+> 来源：知乎热榜 · 排名：第 18 位 · 热度：127 万热度 · 分类：问答 · 更新：2026-07-30T15:40:11+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“国铁昆明局因检测列车撞人被罚300万”位列第 18 位，公开热度指标为 6085971。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“邓煜在北大读了两年后就转去了MIT，这是什么样的转学政策？”位列第 18 位，公开热度指标为 127 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，因检测列车撞人致11死2伤，中国铁路昆明局集团有限公司（简称“国铁昆明局”）对该起重大铁路交通事故负有全部责任，已被成都铁路监督管理局处以罚款300万元的行政处罚。
+来源公开摘要显示：1989年，邓煜出生；其后在深圳市成长。 2007年9月，进入北京大学数学科学学院学习。 2009年6月，结束在北京大学的学习；其后转入麻省理工学院学习数学。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [二次元毛娘因甲醛中毒永久停单](jian-wei-zhi-zhu.md)
-- [17岁哥哥上中科大15岁妹妹上北大](du-ju-hui-yan.md)
-- [雷军称增程市场大有可为且小米做增程不晚，这一观点站得住脚吗？小米为何选择此时布局增程车型？](bie-ju-jiang-xin.md)
-- [荣耀焕新品牌片「敢想，敢不同」](qiao-duo-tian-gong.md)
+- [《非霸凌不可吗》](jian-wei-zhi-zhu.md)
+- [小鹏X9趴窝 给车企上了一课](du-ju-hui-yan.md)
+- [李飞问朱志鑫有什么小名](bie-ju-jiang-xin.md)
+- [记者用两个非常惨烈形容日本震后现场](qiao-duo-tian-gong.md)
 
 ## 站内推荐
 
-- [保安与业主冲突后摔下楼梯身亡](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [日本强震致神社垮塌列车脱轨](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [许多网友反馈在泸溪河桃酥里吃出牙冠、牙齿、头发等异物，山姆已将其下架，可能是什么环节的问题？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [最珍贵的是你们真的玩到了10年后](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [公职人员称遭单位领导私下打探病情](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [不建议大家买深色蛋糕](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [760元刷医保买片仔癀220元卖中介](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [祖父种的百年古树被林业局转赠书院](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [麦、福、教培都被扭曲成骂人的词，如何看待脏话外溢这一现象？脏话以象形和谐音方式出现，可能会有哪些影响？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [国际足联正式对阿根廷足协启动调查，帕雷德斯等3人或面临长期禁赛，如何评价？阿根廷这次麻烦有多大？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [一家三口打赏主播650万后甩锅孩子](http://www.daogukj.com/4857502)
-- [如何看待Tsimerma认为不到两年ai的数学能力就彻底超越人类数学家？](http://www.daogukj.com/fxomsuem/)
-- [从四款出口“爆品”看“中国智造”](http://www.play.hengshemaoyi.cn/xiju/4881423.htm)
-- [周星驰反客为主采访董宇辉](http://www.movie.hkepx.cn/xiju/2224998.htm)
-- [“十五五”开局我国经济运行稳中向好](http://www.daogukj.com/xislksiq/)
-- [张泽禹道歉](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
-- [肖战新剧莫得闲定档](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
-- [【乾乾特工·剧场版】大制作来啦！！！](http://www.movie.hkepx.cn/xiju/3925704.htm)
-- [韩国股市今年以来第九次触发熔断机制，这一轮下跌最终会如何收场？](http://www.daogukj.com/zjqbftsa/)
-- [343斤网红徒步峨眉山晕倒被抬下山](http://www.daogukj.com/odtszjmj/)
-- [十日终焉杀青出现了血月](http://www.movie.hkepx.cn/movie/8285885.htm)
-- [许多网友反馈在泸溪河桃酥里吃出牙冠、牙齿、头发等异物，山姆已将其下架，可能是什么环节的问题？](http://www.movie.hkepx.cn/xiju/1770369.htm)
-- [保安与业主冲突后摔下楼梯身亡](http://www.daogukj.com/8527580)
-- [《霸の意志》](http://www.daogukj.com/9299314)
-- [媒体：金正恩女儿亮相朝鲜纪念日活动](http://www.daogukj.com/5812229)
-- [医院里儿子被夸帅盲人妈妈连追问](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
-- [媒体曝辅助驾驶的「小蓝灯」将被禁用，背后是出于什么考量？你支持禁装吗？](http://www.daogukj.com/5338633)
-- [交易员挪用5000万豪赌海力士亏1.5亿](http://www.movie.hkepx.cn/xiju/7272064.htm)
-- [二次元毛娘因甲醛中毒永久停单](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
-- [公寓酒店月租万元走红](http://www.daogukj.com/3351222)
-- [小孩高铁上踢座椅 家长一巴掌解决](http://www.play.hengshemaoyi.cn/xiju/0501282.htm)
-- [印度两男子涉嫌轮奸被警察当街暴打](http://www.movie.hkepx.cn/movie/7142641.htm)
-- [最珍贵的是你们真的玩到了10年后](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
-- [343 斤吃播博主「良子」在峨眉山徒步途中晕倒，后被担架抬下山，大体重人士适合徒步吗？会有哪些风险？](http://www.movie.hkepx.cn/xiju/5072930.htm)
-- [日本熊本县再次地震 震感强烈](http://www.daogukj.com/mkxvsuhn/)
-- [下班了 年轻人赶着去做副业](http://www.daogukj.com/9044973)
-- [李昊演唱会](http://www.daogukj.com/6197852)
-- [和解剖了4000具尸体的法医，一起看了影片中的尸体...](http://www.daogukj.com/ryrqoiii/)
-- [曾经的百亿票房先生黄渤，两部影片接连失利，他为什么突然不再是票房保障了？还有哪些演员扛不动院线票房了？](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
-- [网友曝胖东来直饮水成免费取水点](http://www.play.hengshemaoyi.cn/kongbu/7063878.htm)
-- [演员修杰楷当庭认罪](http://www.movie.hkepx.cn/movie/2552102.htm)
-- [日本在731这天成立新特高课其心可诛](http://www.movie.hkepx.cn/xiju/2129564.htm)
-- [美逃犯潜逃上海 任高校外教颇受欢迎](http://www.daogukj.com/1731517)
-- [司晓迪反复碰瓷艺人收割流量该管了](http://www.daogukj.com/0178251)
-- [网红私占宁波无人岛直播改造被查处，个人可以开发利用无居民海岛吗？荒岛为何不能随意建房、居住？](http://www.movie.hkepx.cn/movie/2491274.htm)
-- [【TF家族】《2026TF家族运动会》Day1（上）](http://www.daogukj.com/1710555)
-- [罗马尼亚男子遇熊淡定玩手机后逃离](http://www.daogukj.com/iqnxgakx/)
-- [自制八月最强纯爱番](http://www.daogukj.com/evhpdqcv/)
-- [是铁环传递了灵动给她还是她共鸣灵魂于铁环，是功夫带来的丝滑还是丝滑表达了功夫](http://www.movie.hkepx.cn/movie/9669872.htm)
-- [周星驰《功夫女足》上映 18 天票房破 20 亿，超过《给阿嬷的情书》跻身年度第二，如何评价这一成绩？](http://www.play.hengshemaoyi.cn/xiju/7739320.htm)
-- [孔雪儿邓凯一天内二搭变三搭](http://www.movie.hkepx.cn/xiju/6624711.htm)
-- [长鑫存储vs长江存储，一个做内存，一个做闪存，谁更厉害？](http://www.movie.hkepx.cn/movie/0041132.htm)
-- [荣耀焕新品牌片「敢想，敢不同」](http://www.movie.hkepx.cn/xiju/9486629.htm)
-- [欧盟打算同时对抗中美](http://www.movie.hkepx.cn/movie/9796335.htm)
-- [周星驰做客董宇辉直播间](http://www.daogukj.com/0823826)
-- [智驾小蓝灯将被禁用](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
-- [制胜预告片震撼首发](http://www.movie.hkepx.cn/movie/5397309.htm)
-- [“喀什经开区零地价供地”系谣言](http://www.daogukj.com/0899815)
-- [小米澎程系列技术发布会定档 7 月 30 日，有哪些技术亮点和市场竞争力值得关注？](http://www.play.hengshemaoyi.cn/xiju/2828553.htm)
-- [江苏 14 岁乒乓选手曹彦灏比赛失利后拳击对手，事件严重程度如何？判禁赛一年合理吗？](http://www.daogukj.com/cachqmkl/)
+- [OpenAI、Anthropic 等上千员工联名请愿美政府控制 AI 发展速度，反映了什么？有何影响？](http://www.daogukj.com/4857502)
+- [洗衣机上有诡异奶奶](http://www.daogukj.com/fxomsuem/)
+- [新目标：40％的人经常锻炼](http://www.play.hengshemaoyi.cn/xiju/4881423.htm)
+- [王楚钦周启豪1比2林诗栋赵钊彦](http://www.movie.hkepx.cn/xiju/2224998.htm)
+- [我国可再生能源发电量占比首超四成](http://www.daogukj.com/xislksiq/)
+- [吴谨言和前夫哥三搭了](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
+- [男子说不出妻子生产日期请假被拒](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
+- [行于至暗，逐猎微光|《雾影猎人》今日正式发售](http://www.movie.hkepx.cn/xiju/3925704.htm)
+- [多位用户称美团账户凌晨遭异地批量盗刷，客服称已核销无法退款，什么情况？这笔损失该由谁承担？](http://www.daogukj.com/zjqbftsa/)
+- [这私房菜有点太私房了](http://www.daogukj.com/odtszjmj/)
+- [第一次看到母亲的收入](http://www.movie.hkepx.cn/movie/8285885.htm)
+- [祖父种的百年古树被林业局转赠书院](http://www.movie.hkepx.cn/xiju/1770369.htm)
+- [不建议大家买深色蛋糕](http://www.daogukj.com/8527580)
+- [男生被北大录取村民自发敲锣打鼓庆祝](http://www.daogukj.com/9299314)
+- [王的猜想](http://www.daogukj.com/5812229)
+- [刀片风暴](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
+- [为什么ChatGPT已经发布4年了，社会总生产力纹丝不动？](http://www.daogukj.com/5338633)
+- [AI 焚书](http://www.movie.hkepx.cn/xiju/7272064.htm)
+- [《非霸凌不可吗》](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
+- [大额支付将有重要调整](http://www.daogukj.com/3351222)
+- [曾沛慈宝莲组川西之旅合照](http://www.play.hengshemaoyi.cn/xiju/0501282.htm)
+- [燃油二手车 正在价值洗牌中](http://www.movie.hkepx.cn/movie/7142641.htm)
+- [麦、福、教培都被扭曲成骂人的词，如何看待脏话外溢这一现象？脏话以象形和谐音方式出现，可能会有哪些影响？](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
+- [曝多家AI公司大量收购旧书训练模型后销毁，此前先例被法院认定合理，这会成为常态吗？可能带来哪些影响？](http://www.movie.hkepx.cn/xiju/5072930.htm)
+- [今年旅游市场异常冷清，消费力的提升为什么没有达到应有的效果？](http://www.daogukj.com/mkxvsuhn/)
+- [拥有24h内洗澡证明的人才能出门](http://www.daogukj.com/9044973)
+- [台媒曝林志玲被人举报违反铁路法](http://www.daogukj.com/6197852)
+- [【独家】《将夜》第16集 永字八法【4月国创】](http://www.daogukj.com/ryrqoiii/)
+- [国家安全机关提醒打印机的废旧硒鼓可能泄密，这是如何发生的？哪些办公设备也存在类似风险？](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
+- [女生因高考成绩不理想跳河系谣言](http://www.play.hengshemaoyi.cn/kongbu/7063878.htm)
+- [二十届五中全会10月召开](http://www.movie.hkepx.cn/movie/2552102.htm)
+- [男子出差忘关窗 阳台10万元现金发霉](http://www.movie.hkepx.cn/xiju/2129564.htm)
+- [刷医保760元买1粒片仔癀 中介给220元](http://www.daogukj.com/1731517)
+- [我逮住蕾米埃尔了！](http://www.daogukj.com/0178251)
+- [为什么广西日报特稿《王的猜想》能获得这么多认同？](http://www.movie.hkepx.cn/movie/2491274.htm)
+- [菲尔兹奖如何防止高龄数学家将自己的成果偷偷传授给不满 40 岁的年轻数学家以获奖？](http://www.daogukj.com/1710555)
+- [县城老板开百万豪车吃顾客剩菜](http://www.daogukj.com/iqnxgakx/)
+- [30岁小伙负债170万卖饺子翻身](http://www.daogukj.com/evhpdqcv/)
+- [奇怪的玩具工厂 第五章 Part2，结局](http://www.movie.hkepx.cn/movie/9669872.htm)
+- [中际旭创上市破发背后](http://www.play.hengshemaoyi.cn/xiju/7739320.htm)
+- [阳台种植新挑战？！湖北小哥历时三年盆栽种香蕉！【主播说三农】](http://www.movie.hkepx.cn/xiju/6624711.htm)
+- [开封大雨冲走多人？造谣者被罚](http://www.movie.hkepx.cn/movie/0041132.htm)
+- [记者用两个非常惨烈形容日本震后现场](http://www.movie.hkepx.cn/xiju/9486629.htm)
+- [挑战从东北徒步到西藏( 十倍速1小时5分版）](http://www.movie.hkepx.cn/movie/9796335.htm)
+- [媳妇跑了、被孤立7年后，这只企鹅爱上了二次元少女](http://www.daogukj.com/0823826)
+- [山西长治原市长陈向阳被查](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
+- [文化润疆非遗添彩](http://www.movie.hkepx.cn/movie/5397309.htm)
+- [来吧，互相伤害吧](http://www.daogukj.com/0899815)
+- [作者分享《王的猜想》怎么写出来的](http://www.play.hengshemaoyi.cn/xiju/2828553.htm)
+- [高铁穿越长江只要2分钟](http://www.daogukj.com/cachqmkl/)
 
 </details>
 
 ## 原始来源
 
-- [国铁昆明局因检测列车撞人被罚300万](https://www.baidu.com/s?wd=%E5%9B%BD%E9%93%81%E6%98%86%E6%98%8E%E5%B1%80%E5%9B%A0%E6%A3%80%E6%B5%8B%E5%88%97%E8%BD%A6%E6%92%9E%E4%BA%BA%E8%A2%AB%E7%BD%9A300%E4%B8%87&sa=fyb_news&rsv_dl=fyb_news)
+- [邓煜在北大读了两年后就转去了MIT，这是什么样的转学政策？](https://www.zhihu.com/question/2064145782496876151)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: bf1d9851fb2aa4457212 -->
+<!-- content-fingerprint: 65dfc501a736b2f2525f -->
