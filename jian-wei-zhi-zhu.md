@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 媳妇跑了、被孤立7年后，这只企鹅爱上了二次元少女
+# 兰州一高校录取通知书上「身份证」印成「身证份」，为什么会出现这么明显的错误？会影响新生对学校的观感吗？
 
-> 来源：哔哩哔哩热门 · 排名：第 18 位 · 热度：1374573 · 分类：人文历史 · 更新：2026-07-31T05:53:25+08:00
+> 来源：知乎热榜 · 排名：第 18 位 · 热度：171 万热度 · 分类：问答 · 更新：2026-07-31T16:19:03+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“媳妇跑了、被孤立7年后，这只企鹅爱上了二次元少女”位列第 18 位，公开热度指标为 1374573，榜单分类为“人文历史”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“兰州一高校录取通知书上「身份证」印成「身证份」，为什么会出现这么明显的错误？会影响新生对学校的观感吗？”位列第 18 位，公开热度指标为 171 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：2017年，日本埼玉县东武动物公园，一只叫葡萄君的洪堡企鹅，突然开始日复一日地守在一块动漫角色立牌前。 在那之前，它失去了相伴多年的配偶，又被企鹅群体排斥，独自在展区角落里待了七年。 直到“呼噜噜”的立牌出现，它重新有了一个固定的位置、一个固定的方向。每天仰头看着她，发出求爱的叫声，连吃饭都不愿意离开。 六个月后，21岁的葡萄君病重。动物园把立牌一起搬进治疗区，陪它走完了生命最后一程。 没有人知道，一只企鹅是否真的理解爱情。 但葡萄君的故事，最终传遍了三十多个国家。
+来源公开摘要显示：7 月 29 日，有网友在网上发帖，称兰州博文科技学院的录取通知书上，将「身份证」写成了「身证份」。30 日，该校招生就业处工作人员告诉红星新闻记者，当天就发现了错误，只发出很少一部分，不会影响孩子报名。而且，学生报名时可以去换新的录取通知书作为纪念。https://baijiahao.baidu.com/s?id=1872104133574666010&wfr=spider&for=pc
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `人文历史`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [《蜘蛛侠：崭新之日》好看吗](du-ju-hui-yan.md)
-- [日元](bie-ju-jiang-xin.md)
-- [歼15试飞遇险距甲板边缘5米刹停](qiao-duo-tian-gong.md)
-- [如何看待Kimi K3？](gui-fu-shen-gong.md)
+- [比赛现场一片混乱😱你们不都是顶流蓝v吗？再吵我记名字了！](du-ju-hui-yan.md)
+- [意大利传奇球星巴雷西去世](bie-ju-jiang-xin.md)
+- [连云港母女救援责任认定仍在调查](qiao-duo-tian-gong.md)
+- [罗文任河北省委书记](gui-fu-shen-gong.md)
 
 ## 站内推荐
 
-- [SK海力士跌超 17%，创最大跌幅纪录，AI 芯片投资热潮下，芯片巨头海力士股价为啥崩了？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [媒体称三大运营商将于 7 月 31 日前全面取消网络代理渠道，释放了哪些行业信号？对消费者有什么影响？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [和解剖了4000具尸体的法医，一起看了影片中的尸体...](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [这扳机纪律你就学吧](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
-- [当小白体育生第一次跑速耐](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
+- [“牛舔”式高温桑拿天何时退场](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
+- [游客进入青海黑独山禁游区拍照，工作人员称一个脚印十年难恢复，砾石层为何难恢复？景区该如何管住越界打卡？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [为什么许多美剧都发生在缅因州?](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [马斯克预言五年内 AI 将超越全人类、十年后金钱将失去意义，这一预测靠谱吗？AI 真会重塑经济体系吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [日元偷袭，美元盘中跌破100且兑日元急挫超3%，美股SOX指数盘内涨超8%，大宗商品异动，发生了什么？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [杨振宁遗孀翁帆赴新疆喀什看望老兵](http://www.daogukj.com/sqkgthem/)
-- [男明星因出道10年余额仅4800元出圈](http://www.play.hengshemaoyi.cn/xiju/2157274.htm)
-- [陕西公公强奸儿媳案二审维持原判](http://www.daogukj.com/qzvccsto/)
-- [河南南阳楼房被冲进河中系谣言](http://www.daogukj.com/9017409)
-- [你甚至可以看到植物打人](http://www.movie.hkepx.cn/movie/5908744.htm)
-- [《最终幻想 7》重制总监称不愿重制《最终幻想 6》，其重制难点在哪里？](http://www.movie.hkepx.cn/movie/7241164.htm)
-- [尹新月 赵丽颖](http://www.movie.hkepx.cn/xiju/4493313.htm)
-- [读者说抄袭晋江法务就来了](http://www.movie.hkepx.cn/movie/0771662.htm)
-- [豆包究竟见过多少人的糗事](http://www.movie.hkepx.cn/xiju/0992447.htm)
-- [小米澎程N70](http://www.movie.hkepx.cn/movie/0097227.htm)
-- [“河南南阳楼房被冲进河中”不实](http://www.play.hengshemaoyi.cn/xiju/0858406.htm)
-- [泰国部长称不欢迎给他人造成损害的游客](http://www.movie.hkepx.cn/xiju/5889900.htm)
-- [雷军：澎程从北京到上海无需补能](http://www.movie.hkepx.cn/movie/4398357.htm)
-- [如何评价小米澎程 N90 Max 预售价29.99万元、N70 Max 预售价25.99万元？](http://www.play.hengshemaoyi.cn/xiju/3710304.htm)
-- [猫要是一辈子只呆在家里会不会很可悲？](http://www.daogukj.com/1582634)
-- [长江十年行](http://www.movie.hkepx.cn/xiju/7460057.htm)
-- [莲子切开里面有个小娃娃](http://www.daogukj.com/iuhthsij/)
-- [1.55升“哑铃矿泉水”走红 厂家回应](http://www.movie.hkepx.cn/xiju/2237917.htm)
-- [和解剖了4000具尸体的法医，一起看了影片中的尸体...](http://www.movie.hkepx.cn/movie/0845608.htm)
-- [在课堂上搞笑被抓了](http://www.daogukj.com/8581680)
-- [想知道现在iPad加个键盘就可以用作笔记本电脑了，大学生做课堂笔记还需要买笔记本电脑吗？](http://www.movie.hkepx.cn/xiju/4507906.htm)
-- [小米澎程N90价格](http://www.movie.hkepx.cn/xiju/3471686.htm)
-- [男孩骑羊骑出了汗血宝马的感觉](http://www.play.hengshemaoyi.cn/xiju/5571527.htm)
-- [这扳机纪律你就学吧](http://www.play.hengshemaoyi.cn/kongbu/8650783.htm)
-- [孩子们，出了社会可没人惯着你](http://www.daogukj.com/3850284)
-- [南部战区位中国黄岩岛组织战备警巡](http://www.movie.hkepx.cn/xiju/1958046.htm)
-- [化身Superman！摩托老哥解锁新技能](http://www.movie.hkepx.cn/movie/3150925.htm)
-- [日本震后老年人睡地板民众哭喊怕余震](http://www.daogukj.com/twsaunno/)
-- [《非霸凌不可吗》](http://www.play.hengshemaoyi.cn/xiju/2788260.htm)
-- [老师午休散步猝死 家属工亡诉求被驳](http://www.movie.hkepx.cn/movie/8401072.htm)
-- [SK海力士跌超 17%，创最大跌幅纪录，AI 芯片投资热潮下，芯片巨头海力士股价为啥崩了？](http://www.daogukj.com/5256425)
-- [彭水山体崩塌的 00 后网格员龚宝冬遗骸被找到，因组织群众转移未及时撤离遇难，他的行为让你哪些感触？](http://www.play.hengshemaoyi.cn/kongbu/6811189.htm)
-- [当小白体育生第一次跑速耐](http://www.movie.hkepx.cn/movie/7189595.htm)
-- [王虹为什么懂法语，以及王虹的英语（包含口语）是什么时候学的？](http://www.movie.hkepx.cn/xiju/1481443.htm)
-- [【独家】《将夜》第16集 永字八法【4月国创】](http://www.movie.hkepx.cn/movie/5934231.htm)
-- [乐事薯片生产废料被洗白成「毛粉」流向市场，用「毛粉」生产食用淀粉是否合规？是否存在食品安全问题？](http://www.daogukj.com/suhrxest/)
-- [挑战从东北徒步到西藏( 十倍速1小时5分版）](http://www.play.hengshemaoyi.cn/xiju/8374811.htm)
-- [手绘469张！还原EVA主题曲](http://www.movie.hkepx.cn/movie/5917708.htm)
-- [小米澎程像在卖房](http://www.movie.hkepx.cn/movie/2673504.htm)
-- [小米澎程N90 Max预售价29.99万元](http://www.movie.hkepx.cn/xiju/9719392.htm)
-- [日本广岛现新物质 系原子弹爆炸形成](http://www.play.hengshemaoyi.cn/xiju/5111103.htm)
-- [龚宝冬遇难 西南政法大学官网变黑白](http://www.movie.hkepx.cn/xiju/7322023.htm)
-- [别对着陌生人的手机念数字](http://www.daogukj.com/lqwdxuku/)
-- [日元](http://www.movie.hkepx.cn/xiju/8204204.htm)
-- [空调一直开vs忍着不开 谁更健康](http://www.play.hengshemaoyi.cn/kongbu/5762471.htm)
-- [超强台风“白海豚”最新路径来了](http://www.play.hengshemaoyi.cn/xiju/3015624.htm)
-- [21岁小伙60万彩礼娶00后女生，2个月后就被女生杀害，死因竟是小伙太过讨好！](http://www.movie.hkepx.cn/movie/9539562.htm)
-- [洪水中锁死狮子该不该](http://www.daogukj.com/1841885)
-- [如何看待 2026 年 7 月 29 日《蜘蛛侠：崭新之日》预测票房大幅下降至 15.6 亿人民币？](http://www.play.hengshemaoyi.cn/kongbu/3844400.htm)
-- [解放军两次警告日方不能自称海军](http://www.daogukj.com/2839192)
+- [突然发现朋友月薪五万](http://www.daogukj.com/sqkgthem/)
+- [《灰境行者》全新预告丨PC测试定档9月](http://www.play.hengshemaoyi.cn/xiju/2157274.htm)
+- [消防员 劳务派遣](http://www.daogukj.com/qzvccsto/)
+- [不是高温日就不会中暑？不实](http://www.daogukj.com/9017409)
+- [蛋糕配送途中损毁 母女放弃索赔](http://www.movie.hkepx.cn/movie/5908744.htm)
+- [机器狼扛单兵火箭筒冲上滩头](http://www.movie.hkepx.cn/movie/7241164.htm)
+- [数千移民游泳偷渡 西班牙边境崩溃](http://www.movie.hkepx.cn/xiju/4493313.htm)
+- [资产上亿夫妇被羁押后多家企业倒闭](http://www.movie.hkepx.cn/movie/0771662.htm)
+- [卫健委回应原配申请销毁婚外胚胎](http://www.movie.hkepx.cn/xiju/0992447.htm)
+- [小伙被椅子扶手卡头 朋友救助也被卡](http://www.movie.hkepx.cn/movie/0097227.htm)
+- [不是高温天就不会中暑？假的](http://www.play.hengshemaoyi.cn/xiju/0858406.htm)
+- [当地通报“伴漂服务”：停业整顿](http://www.movie.hkepx.cn/xiju/5889900.htm)
+- [唐艺昕张若昀女儿近照](http://www.movie.hkepx.cn/movie/4398357.htm)
+- [曝《流浪地球 3》导演版素材750分钟，公映版125分钟，郭帆称「我也不知道时长」，哪些看点值得期待？](http://www.play.hengshemaoyi.cn/xiju/3710304.htm)
+- [8月房价会迎来实质性反转吗](http://www.daogukj.com/1582634)
+- [读懂好感度攀升背后的中国魅力](http://www.movie.hkepx.cn/xiju/7460057.htm)
+- [“垃圾不够烧”？真相调查来了](http://www.daogukj.com/iuhthsij/)
+- [男子恶意撞死高三学生先后追了3次](http://www.movie.hkepx.cn/xiju/2237917.htm)
+- [为什么许多美剧都发生在缅因州?](http://www.movie.hkepx.cn/movie/0845608.htm)
+- [为什么高校行政人员的脾气普遍不好甚至态度恶劣？](http://www.daogukj.com/8581680)
+- [糖水市场为何不“甜”了](http://www.movie.hkepx.cn/xiju/4507906.htm)
+- [00后姑娘在高考结束后剃了光头](http://www.movie.hkepx.cn/xiju/3471686.htm)
+- [用暑假工工资雇佣了211家教](http://www.play.hengshemaoyi.cn/xiju/5571527.htm)
+- [马斯克预言五年内 AI 将超越全人类、十年后金钱将失去意义，这一预测靠谱吗？AI 真会重塑经济体系吗？](http://www.play.hengshemaoyi.cn/kongbu/8650783.htm)
+- [7 月31 日长鑫科技盘中涨超 13%，总市值突破 4 万亿，还会持续上涨吗？](http://www.daogukj.com/3850284)
+- [于正回应《凤囚凰》争议](http://www.movie.hkepx.cn/xiju/1958046.htm)
+- [争夺蜜瓜的修行【绝区零生日会】](http://www.movie.hkepx.cn/movie/3150925.htm)
+- [电影八仙](http://www.daogukj.com/twsaunno/)
+- [小米澎程N90、N70两款SUV上市后是否会有车企跟进设计？](http://www.play.hengshemaoyi.cn/xiju/2788260.htm)
+- [连云港火灾 消防](http://www.movie.hkepx.cn/movie/8401072.htm)
+- [“牛舔”式高温桑拿天何时退场](http://www.daogukj.com/5256425)
+- [我国电力系统迎来结构性转变](http://www.play.hengshemaoyi.cn/kongbu/6811189.htm)
+- [日元偷袭，美元盘中跌破100且兑日元急挫超3%，美股SOX指数盘内涨超8%，大宗商品异动，发生了什么？](http://www.movie.hkepx.cn/movie/7189595.htm)
+- [054B护卫舰首次亮相黄岩岛](http://www.movie.hkepx.cn/xiju/1481443.htm)
+- [中央宣传部授予王戟同志「时代楷模」称号，他的身上有怎样的故事？哪些精神值得学习？](http://www.movie.hkepx.cn/movie/5934231.htm)
+- [张柏芝现身李昊红馆演唱会](http://www.daogukj.com/suhrxest/)
+- [如何看待王虹在大学期间因为数学难度陡增，「felt a little discouraged」?](http://www.play.hengshemaoyi.cn/xiju/8374811.htm)
+- [入伏以来多名市民赤裸上身去公园「晒背」，为什么晒背会流行？对身体健康有什么好处吗？](http://www.movie.hkepx.cn/movie/5917708.htm)
+- [古罗马离谱习俗——两千年前的古罗马，开放程度与市井智慧，完全颠覆现代人的认知。](http://www.movie.hkepx.cn/movie/2673504.htm)
+- [一直对月薪4千没概念直到换成天](http://www.movie.hkepx.cn/xiju/9719392.htm)
+- [当所有人随机获得英雄联盟的一个技能...【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/5111103.htm)
+- [这大狗叫魔了！](http://www.movie.hkepx.cn/xiju/7322023.htm)
+- [国内极具挑战性的五大玩命景区，你敢来挑战吗？](http://www.daogukj.com/lqwdxuku/)
+- [意大利传奇球星巴雷西去世](http://www.movie.hkepx.cn/xiju/8204204.htm)
+- [清华求真书院预科班部分学生被清退](http://www.play.hengshemaoyi.cn/kongbu/5762471.htm)
+- [手绘469张！还原EVA主题曲](http://www.play.hengshemaoyi.cn/xiju/3015624.htm)
+- [特斯拉否认「剥离或出售中国业务」，中国业务对其有多重要？怎样从商业角度解读？](http://www.movie.hkepx.cn/movie/9539562.htm)
+- [8000米高峰雪崩 10人登山队失联](http://www.daogukj.com/1841885)
+- [昆明边检查获一名外籍偷渡男子](http://www.play.hengshemaoyi.cn/kongbu/3844400.htm)
+- [烤肉师傅因撞脸马斯克走红](http://www.daogukj.com/2839192)
 
 </details>
 
 ## 原始来源
 
-- [媳妇跑了、被孤立7年后，这只企鹅爱上了二次元少女](https://b23.tv/BV1Z43y6QE2b)
+- [兰州一高校录取通知书上「身份证」印成「身证份」，为什么会出现这么明显的错误？会影响新生对学校的观感吗？](https://www.zhihu.com/question/2066163271292249223)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 096241c8deb101c5bb14 -->
+<!-- content-fingerprint: 61e3623eb401b211bd41 -->
