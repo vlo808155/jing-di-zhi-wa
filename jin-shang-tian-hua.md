@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 通俗来讲，什么是辩证法？
+# 祝你们毕业快乐
 
-> 来源：知乎热榜 · 排名：第 19 位 · 热度：109 万热度 · 分类：问答 · 更新：2026-08-03T20:37:57+08:00
+> 来源：哔哩哔哩热门 · 排名：第 19 位 · 热度：1129422 · 分类：美食测评 · 更新：2026-08-04T02:59:08+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“通俗来讲，什么是辩证法？”位列第 19 位，公开热度指标为 109 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“祝你们毕业快乐”位列第 19 位，公开热度指标为 1129422，榜单分类为“美食测评”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：-
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `美食测评`
 
 ## 相关热点
 
-- [王者新平行世界系列皮肤CG《无尽之局：夜半钟鸣》——当午夜的钟声响起，你将以何种身份睁眼？](hua-long-dian-jing.md)
-- [“下班”不该那么难](miao-bi-sheng-hua.md)
-- [李希侃为罗正发声](sheng-dong-huo-po.md)
-- [今天“蒸桑拿”的城市有你家乡吗](xu-xu-ru-sheng.md)
+- [老人迷信山中喊名不能应耽误救援](hua-long-dian-jing.md)
+- [U17国足3-2绝杀阿森纳U17](miao-bi-sheng-hua.md)
+- [为什么好多人不想买新能源汽车？](sheng-dong-huo-po.md)
+- [租几颗上亿元的卫星，能拍到什么？](xu-xu-ru-sheng.md)
 
 ## 站内推荐
 
-- [华人大爷大妈摆摊卖菜占领纽约早市](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [婚外胚胎案妻子称丈夫想最低成本离婚](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [河南重庆湖北等地有大到暴雨](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [3辅警查醉驾以罚代刑致1死 法院判了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [为什么截止目前，小米澎程n70 max全网不开放内饰评测？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [A股4000只股票上涨为何科技股暴跌](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [赛力斯7月新能源汽车销量同比降45%](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [中方黄岩岛“亮剑”释放何信号](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [米莱推出「让阿根廷再次伟大」改革，主动戴上「财政脚镣」，甚至禁止央行为财政融资，对此你怎么看？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [开庭](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [民警帮群众翻遍抽屉夹层找到卖菜钱](http://www.play.hengshemaoyi.cn/xiju/6246916.htm)
-- [在西班牙卖烤肠到底谁想的！](http://www.play.hengshemaoyi.cn/xiju/0196335.htm)
-- [男乒世排前5只剩下王楚钦](http://www.daogukj.com/txhvfhkc/)
-- [开庭](http://www.movie.hkepx.cn/xiju/8357680.htm)
-- [上海申花主帅辞职](http://www.movie.hkepx.cn/xiju/7453143.htm)
-- [“地表最强男人”因雪崩遇难](http://www.daogukj.com/3829236)
-- [巴基斯坦发生雪崩，10人国际登山队全部遇难，中国登山者王钟遗体被冲到千米之下，雪山雪崩究竟有多危险？](http://www.movie.hkepx.cn/movie/7849010.htm)
-- [含糖碳酸饮料大势已去](http://www.movie.hkepx.cn/movie/3810739.htm)
-- [低精力可以去医院查有没有疾病](http://www.daogukj.com/xwtczorl/)
-- [祝你们毕业快乐](http://www.daogukj.com/9411778)
-- [空调24小时不关更省电？电力公司回应](http://www.movie.hkepx.cn/xiju/1018177.htm)
-- [辱骂捐赠日军罪证少年者被警方传唤](http://www.movie.hkepx.cn/movie/7549482.htm)
-- [章泽天比刘亦菲还像刘亦菲妈妈](http://www.movie.hkepx.cn/xiju/3152832.htm)
-- [租几颗上亿元的卫星，能拍到什么？](http://www.movie.hkepx.cn/xiju/6452829.htm)
+- [2026 年手机市场大盘跌 3%华为涨 24%，哪些因素导致「冰火两重天」？](http://www.play.hengshemaoyi.cn/xiju/6246916.htm)
+- [米切尔结婚现场曝光](http://www.play.hengshemaoyi.cn/xiju/0196335.htm)
+- [低精力可以去医院查有没有疾病](http://www.daogukj.com/txhvfhkc/)
+- [美国女子4年不洗头震惊理发师](http://www.movie.hkepx.cn/xiju/8357680.htm)
+- [如何看待蜘蛛侠片方呼吁拒绝屏摄，结果评论区很多人都在发《蜘蛛侠：崭新之日》屏摄？你怎么看屏摄这一行为？](http://www.movie.hkepx.cn/xiju/7453143.htm)
+- [含糖碳酸饮料大势已去](http://www.daogukj.com/3829236)
+- [为什么大家都说 DeepSeek 已经成为大模型的「斩杀线」？](http://www.movie.hkepx.cn/movie/7849010.htm)
+- [DeepSeek 斩杀线](http://www.movie.hkepx.cn/movie/3810739.htm)
+- [邹市明已连续数月零收入](http://www.daogukj.com/xwtczorl/)
+- [放假7天 准备买票](http://www.daogukj.com/9411778)
+- [贵州一景区有游客跌入68级瀑布](http://www.movie.hkepx.cn/xiju/1018177.htm)
+- [怪不得长沙人晚上不睡觉](http://www.movie.hkepx.cn/movie/7549482.htm)
+- [演员孙浩：从翻红至今没有赚一分钱](http://www.movie.hkepx.cn/xiju/3152832.htm)
+- [慢镜头还原程晟涵第97分钟绝杀](http://www.movie.hkepx.cn/xiju/6452829.htm)
 - [老大，你的意思是我们抽烟抽的慢也得死吗？](http://www.play.hengshemaoyi.cn/kongbu/1742289.htm)
-- [空调24小时不关更省电吗](http://www.play.hengshemaoyi.cn/xiju/4134369.htm)
-- [河南重庆湖北等地有大到暴雨](http://www.play.hengshemaoyi.cn/kongbu/8805735.htm)
-- [美国制裁洽洽瓜子思念水饺七匹狼男装](http://www.movie.hkepx.cn/xiju/1005247.htm)
-- [DeepSeek一天消耗了8万亿](http://www.play.hengshemaoyi.cn/xiju/4070224.htm)
-- [米哈游终止与云南昊曦文化传媒合作并将其列入黑名单，游戏厂商和内容创作者之间的合作还有哪些坑需要注意？](http://www.movie.hkepx.cn/movie/8130025.htm)
-- [专家：全球供应链分裂已成趋势](http://www.play.hengshemaoyi.cn/kongbu/7840266.htm)
-- [宋亚轩金发](http://www.daogukj.com/mgvzhkvp/)
-- [“速成车”正在被叫停](http://www.play.hengshemaoyi.cn/kongbu/6692605.htm)
-- [多平台牛蛙抽检抗生素超标，为什么这类成分屡屡超标？吃了对身体有危害吗？购买时有办法辨别牛蛙是否安全吗？](http://www.daogukj.com/0659107)
+- [贵阳“半夜”马路上还大排长龙](http://www.play.hengshemaoyi.cn/xiju/4134369.htm)
+- [中方黄岩岛“亮剑”释放何信号](http://www.play.hengshemaoyi.cn/kongbu/8805735.htm)
+- [研究：每天1-2杯咖啡可降低肝病风险](http://www.movie.hkepx.cn/xiju/1005247.htm)
+- [陈伟霆九门直播哭了](http://www.play.hengshemaoyi.cn/xiju/4070224.htm)
+- [占用应急车道女子要求前车挪车让路](http://www.movie.hkepx.cn/movie/8130025.htm)
+- [媒体：台湾“维持现状”幻想正在破灭](http://www.play.hengshemaoyi.cn/kongbu/7840266.htm)
+- [男子抓泥地里的“黄鳝”被咬](http://www.daogukj.com/mgvzhkvp/)
+- [进口豪车在华卖不动了](http://www.play.hengshemaoyi.cn/kongbu/6692605.htm)
+- [竹知了视频被投诉下架，对品牌来说，这类事情有没有更好的公关办法？你知道哪些可供借鉴的经典案例？](http://www.daogukj.com/0659107)
 - [穿山跨海的“黄金大外环”要来了](http://www.movie.hkepx.cn/movie/2177161.htm)
-- [男子爬太行山寻找消失七天的妹妹](http://www.movie.hkepx.cn/xiju/4629379.htm)
-- [华人大爷大妈摆摊卖菜占领纽约早市](http://www.play.hengshemaoyi.cn/kongbu/8609961.htm)
-- [在云南昆明盘龙区吃烟火气烧烤，感受炭火与肉的滇味暴击，配上灵魂蘸水直接封神#云南美食#昆明美食#烧烤#烤肉](http://www.play.hengshemaoyi.cn/kongbu/2788736.htm)
-- [小米公司向警方报案](http://www.movie.hkepx.cn/movie/9454869.htm)
-- [【最闪暖的一集】闪暖七周年CG首曝 | 8月5日更新](http://www.movie.hkepx.cn/movie/8856381.htm)
-- [住房公积金条例迎重大修订，装修、物业费被明确纳入范围，灵活就业人员可自愿缴存，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/7928531.htm)
-- [李希侃为罗正发声](http://www.play.hengshemaoyi.cn/kongbu/5748891.htm)
-- [四川10家银行获批解散](http://www.movie.hkepx.cn/movie/2928084.htm)
-- [球场“擦地哥”超敬业擦地获全场掌声](http://www.play.hengshemaoyi.cn/xiju/0239872.htm)
-- [英国新首相拯救英国的计划](http://www.daogukj.com/7779634)
+- [美国制裁洽洽瓜子思念水饺七匹狼男装](http://www.movie.hkepx.cn/xiju/4629379.htm)
+- [A股4000只股票上涨为何科技股暴跌](http://www.play.hengshemaoyi.cn/kongbu/8609961.htm)
+- [完全看不懂中国网络梗的日本人，被40位中国人一人一句写出了一首神曲](http://www.play.hengshemaoyi.cn/kongbu/2788736.htm)
+- [福建漳州全面核查抗生素牛蛙](http://www.movie.hkepx.cn/movie/9454869.htm)
+- [过年的鞭炮声太吵，以后看你的时候我带上一束花](http://www.movie.hkepx.cn/movie/8856381.htm)
+- [如何看待7月末至8月初有多家韩国公司发布AI称性能强于DeepSeek？](http://www.movie.hkepx.cn/movie/7928531.htm)
+- [为什么好多人不想买新能源汽车？](http://www.play.hengshemaoyi.cn/kongbu/5748891.htm)
+- [“江西球王”杨志军单场轰101分](http://www.movie.hkepx.cn/movie/2928084.htm)
+- [为什么琴葛蕾在大街上屠杀了那么多平民， 蜘蛛侠还把她放走？](http://www.play.hengshemaoyi.cn/xiju/0239872.htm)
+- [女童独自乘电梯反复进出从14楼坠亡](http://www.daogukj.com/7779634)
 - [几十块入手世界级顶尖好物——居家用品篇](http://www.play.hengshemaoyi.cn/kongbu/8270746.htm)
-- [国家博物馆声明：从未授权馆外扫码](http://www.daogukj.com/7335488)
-- [如何看待雷军在发布会最后说「晚安」被指营销？](http://www.movie.hkepx.cn/xiju/7580266.htm)
-- [陈翔六点半：已知的数字，未知的人](http://www.play.hengshemaoyi.cn/xiju/9936981.htm)
-- [灵活就业人员可自愿缴纳公积金](http://www.movie.hkepx.cn/xiju/0655390.htm)
-- [又一批“大师”退场](http://www.daogukj.com/tyoqvbnt/)
+- [东莞9岁女孩确诊性早熟](http://www.daogukj.com/7335488)
+- [男乒世界排名前5只剩下王楚钦](http://www.movie.hkepx.cn/xiju/7580266.htm)
+- [U17国足开门红 压哨绝杀阿森纳U17](http://www.play.hengshemaoyi.cn/xiju/9936981.htm)
+- [985博士后孕期出轨女生还见亲友](http://www.movie.hkepx.cn/xiju/0655390.htm)
+- [捅死男友女子父母多次给男方父母道歉下跪](http://www.daogukj.com/tyoqvbnt/)
 - [【独家】《记忆管理局》第2集 陀螺，记忆层，管理员们【8月国创】](http://www.movie.hkepx.cn/xiju/8108717.htm)
-- [男乒世界排名前5只剩下王楚钦](http://www.play.hengshemaoyi.cn/xiju/0718869.htm)
-- [罗正 千万存款](http://www.play.hengshemaoyi.cn/kongbu/2897114.htm)
-- [多所高校撤销财政学专业](http://www.play.hengshemaoyi.cn/xiju/2827049.htm)
-- [樊振东逆转张本智和，这场球到底神在哪？](http://www.movie.hkepx.cn/xiju/1312993.htm)
-- [为什么我觉得贵的耳机反倒不如几十块的好用呢？](http://www.daogukj.com/auvxhwep/)
-- [《四驱兄弟》骗了我20年，直到我把真车改成了四驱车](http://www.play.hengshemaoyi.cn/kongbu/9308752.htm)
-- [21.54亿元支持防灾救灾](http://www.daogukj.com/5938049)
-- [过年的鞭炮声太吵，以后看你的时候我带上一束花](http://www.play.hengshemaoyi.cn/xiju/7231318.htm)
+- [青岛火车站好多人拖着铁桶扎啤返乡](http://www.play.hengshemaoyi.cn/xiju/0718869.htm)
+- [婚外胚胎案患癌妻子已报案](http://www.play.hengshemaoyi.cn/kongbu/2897114.htm)
+- [1755枚比特币被偷 价值约7.43亿元](http://www.play.hengshemaoyi.cn/xiju/2827049.htm)
+- [陈翔六点半：已知的数字，未知的人](http://www.movie.hkepx.cn/xiju/1312993.htm)
+- [建设银行多网点试行午休制度，如何看待这一调整？网友反对称未来办业务会更难，你支持银行午休推广吗？](http://www.daogukj.com/auvxhwep/)
+- [【最闪暖的一集】闪暖七周年CG首曝 | 8月5日更新](http://www.play.hengshemaoyi.cn/kongbu/9308752.htm)
+- [没有BGM的导弹测试原声](http://www.daogukj.com/5938049)
+- [美国制裁洽洽瓜子思念水饺 网友调侃](http://www.play.hengshemaoyi.cn/xiju/7231318.htm)
 
 </details>
 
 ## 原始来源
 
-- [通俗来讲，什么是辩证法？](https://www.zhihu.com/question/22014234)
+- [祝你们毕业快乐](https://b23.tv/BV1Do3X6PESo)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: e67a543a197684a5d470 -->
+<!-- content-fingerprint: 8bf75593763b334176ea -->
