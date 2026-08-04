@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 还来！！！！！！！！！！！
+# 真人明星要交出“饭碗”吗
 
-> 来源：哔哩哔哩热门 · 排名：第 20 位 · 热度：1655678 · 分类：单机游戏 · 更新：2026-08-05T00:21:49+08:00
+> 来源：百度热搜 · 排名：第 20 位 · 热度：5886876 · 更新：2026-08-05T04:57:13+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“还来！！！！！！！！！！！”位列第 20 位，公开热度指标为 1655678，榜单分类为“单机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“真人明星要交出“饭碗”吗”位列第 20 位，公开热度指标为 5886876。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：别催了，这不是已经发了吗？（哭哭）
+来源公开摘要显示：AI短剧《被裁掉的女孩》及女主角“方桃子”近期爆火，粉丝逼近40万，引发“真人明星将被取代”的行业恐慌。与此前AI演员追求完美感不同，方桃子保留了瑕疵皮肤、会脱妆的妆容和脆弱人设，这份真实感让观众产生代入与共情，而非抗拒AI脸。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `单机游戏`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [真人明星要交出“饭碗”吗](you-sheng-you-se.md)
-- [一诺在巴黎收集铁塔的昼与夜](yin-ren-ru-sheng.md)
-- [多地出新政“争抢”3.2亿老年人](jing-di-zhi-wa.md)
-- [姆巴佩、哈兰德之后，谁最有希望成为下一代“球王”候选人？](hai-kuo-tian-kong.md)
+- [当十岁的妹妹有了自己的微信](you-sheng-you-se.md)
+- [香港传奇影星葛兰去世](yin-ren-ru-sheng.md)
+- [8月12日地球将失去引力7秒？谣言](jing-di-zhi-wa.md)
+- [玩了《英雄联盟》经典模式发现提莫从远古时代到现在技能组从未变化，他的技能有这么优秀吗？](hai-kuo-tian-kong.md)
 
 ## 站内推荐
 
-- [如何评价赛力斯问界2026年7月销量严重下滑，月销量不足21,000辆？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [美利坚糖门黄油大胃袋VS国产味真族良子板面长老](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [有些善意当时没有声音，但总有一天，你会听到它的回响。](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [你说偷吃零食被发现会死是吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [⚡对 对 子 战 神 9⚡](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [申通快递被立案调查](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [【半佛】小米澎程，让行业睡不着了？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [老大，你的意思是我们抽烟抽的慢也得死吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [还来！！！！！！！！！！！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [多地景区门票收费有新调整](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [四川一50岁女区委书记病逝](http://www.daogukj.com/8005923)
+- [姆巴佩、哈兰德之后，谁最有希望成为下一代“球王”候选人？](http://www.daogukj.com/8005923)
 - [菲律宾一纸海图换来中国“四箭齐发”](http://www.play.hengshemaoyi.cn/xiju/7463191.htm)
-- [OpenCode 发文称 DeepSeek 单日吞下 8 万亿 Token，传递出哪些信号？](http://www.movie.hkepx.cn/movie/4169739.htm)
-- [有些善意当时没有声音，但总有一天，你会听到它的回响。](http://www.play.hengshemaoyi.cn/xiju/5874723.htm)
-- [俄最大物流巨轮遭乌击沉意味什么](http://www.movie.hkepx.cn/movie/3447925.htm)
-- [田曦薇猫咪外貌引韩网热议](http://www.play.hengshemaoyi.cn/kongbu/4576162.htm)
-- [哈啰电车突然落锁致大学生十级伤残，交警多次调取后台数据失败，数据调取为什么这么难？还能如何取证？](http://www.play.hengshemaoyi.cn/xiju/9969388.htm)
-- [学才艺哪家强？](http://www.play.hengshemaoyi.cn/kongbu/2274251.htm)
-- [宜宾地震](http://www.movie.hkepx.cn/xiju/5546881.htm)
-- [谁是联合利刃未来战场主角](http://www.play.hengshemaoyi.cn/kongbu/8488935.htm)
-- [美拟禁新型光模块草案](http://www.play.hengshemaoyi.cn/xiju/5663353.htm)
-- [抖音7月处置色情低俗内容40.3万条](http://www.movie.hkepx.cn/xiju/5950485.htm)
+- [小偷叫3辆货拉拉拖走价值20万摩托车](http://www.movie.hkepx.cn/movie/4169739.htm)
+- [老大，你的意思是我们抽烟抽的慢也得死吗？](http://www.play.hengshemaoyi.cn/xiju/5874723.htm)
+- [多地出新政“争抢”3.2亿老年人](http://www.movie.hkepx.cn/movie/3447925.htm)
+- [内娱新四大名著](http://www.play.hengshemaoyi.cn/kongbu/4576162.htm)
+- [如何评价赛力斯问界2026年7月销量严重下滑，月销量不足21,000辆？](http://www.play.hengshemaoyi.cn/xiju/9969388.htm)
+- [挑战开局零元生存第1期](http://www.play.hengshemaoyi.cn/kongbu/2274251.htm)
+- [心理学上有个词叫螃蟹效应](http://www.movie.hkepx.cn/xiju/5546881.htm)
+- [8月需重点关注哪些极端天气](http://www.play.hengshemaoyi.cn/kongbu/8488935.htm)
+- [中式片假名能不能离开我的生活](http://www.play.hengshemaoyi.cn/xiju/5663353.htm)
+- [44岁爸爸被女儿激将考上985研究生](http://www.movie.hkepx.cn/xiju/5950485.htm)
 - [歼-20 部队将「飞行二大队 20 分钟覆灭耻辱记」永久悬挂，这体现了怎样的军事管理和训练理念？](http://www.movie.hkepx.cn/movie/9193128.htm)
-- [35岁女子1天5瓶可乐喝成60岁脸](http://www.daogukj.com/atarmjde/)
-- [“当你凝视深渊时，深渊也在凝视你”](http://www.play.hengshemaoyi.cn/xiju/9145960.htm)
+- [女教师因备孕与男友起争执捅死对方](http://www.daogukj.com/atarmjde/)
+- [想不通，太逆天，25 位名人整形手术前后的对比：过去与现在](http://www.play.hengshemaoyi.cn/xiju/9145960.htm)
 - [鸿蒙智行回应“竹知了”争议](http://www.movie.hkepx.cn/xiju/2578023.htm)
-- [上海维也纳酒店客房遍布床虱，酒店反问为何不自行检查，卫生监督所称将立案处罚，谁的责任？床虱有哪些风险？](http://www.daogukj.com/5709010)
-- [孙浩自曝被迫假唱社死名场面](http://www.daogukj.com/wpzjvegw/)
+- [我国服务进出口总额37797.5亿元](http://www.daogukj.com/5709010)
+- [上了年纪后的一些无意识行为](http://www.daogukj.com/wpzjvegw/)
 - [歼-16南海上空“训转战”画面公开](http://www.play.hengshemaoyi.cn/xiju/4598532.htm)
-- [【短的发布会】纯平地板？百变空间？全网热议的9系旗舰竟是五菱扬光Pro！](http://www.play.hengshemaoyi.cn/kongbu/0125652.htm)
-- [张凌赫小学证件照](http://www.movie.hkepx.cn/xiju/2411242.htm)
-- [桂林师范学院招聘被指萝卜岗，考生称音乐教师面试仅 5 分钟，学校回应称招聘合规，哪些信息值得关注？](http://www.daogukj.com/6900199)
-- [挑战开局零元生存第1期](http://www.movie.hkepx.cn/xiju/8302101.htm)
-- [鬼 畜 复 兴 摇 一 摇](http://www.daogukj.com/vrviqqsc/)
-- [官方通报卫生巾疑有虫卵](http://www.daogukj.com/5803945)
-- [「精神小伙」一篇《致我十年未见的妈妈》获赞 200 万，看完这篇文章你有哪些感触？](http://www.daogukj.com/pggqhldb/)
+- [完蛋！我被男同学包围了](http://www.play.hengshemaoyi.cn/kongbu/0125652.htm)
+- [光模块](http://www.movie.hkepx.cn/xiju/2411242.htm)
+- [《蜘蛛侠：崭新之日》全球开画票房9.27亿美元，仅次于《复仇者联盟4》居影史第二，如何评价这一成绩？](http://www.daogukj.com/6900199)
+- [几十块入手世界级顶尖好物——居家用品篇](http://www.movie.hkepx.cn/xiju/8302101.htm)
+- [比特币冷钱包被曝漏洞，超 1.1 亿美元资产被盗，看似最安全的「离线存储」为什么也会被偷？](http://www.daogukj.com/vrviqqsc/)
+- [女子被小三后实名举报985博士后](http://www.daogukj.com/5803945)
+- [上海维也纳酒店客房遍布床虱，酒店反问为何不自行检查，卫生监督所称将立案处罚，谁的责任？床虱有哪些风险？](http://www.daogukj.com/pggqhldb/)
 - [道指、标普500指数开盘刷新历史新高](http://www.play.hengshemaoyi.cn/xiju/9613239.htm)
-- [怎么评价女王郑钦文力压现阶段国内女子网球一姐王欣瑜入围2026年比利简金杯赛深圳总决赛的中国队阵容？](http://www.movie.hkepx.cn/xiju/1355542.htm)
-- [男子发现路灯螺丝能点燃香烟后报警](http://www.play.hengshemaoyi.cn/xiju/7010661.htm)
-- [媒体：伪造结婚证开展辅助生殖非私事](http://www.movie.hkepx.cn/xiju/1893259.htm)
+- [⚡️宗 主 连 携 技⚡️](http://www.movie.hkepx.cn/xiju/1355542.htm)
+- [曾沛慈方发声明](http://www.play.hengshemaoyi.cn/xiju/7010661.htm)
+- [邹市明被曝连续数月零收入](http://www.movie.hkepx.cn/xiju/1893259.htm)
 - [哈尔滨中央大街已成中央大河](http://www.daogukj.com/3906187)
-- [现在几千块钱音响的音质，是否能秒杀90年代初十几万的音响？](http://www.daogukj.com/3891201)
+- [外媒称美国拟禁止进口中国新型数据中心设备，此举将对中美科技竞争及全球数据产业带来哪些影响？](http://www.daogukj.com/3891201)
 - [兰蔻在华首家旗舰店已被搬空](http://www.movie.hkepx.cn/movie/0469338.htm)
-- [44岁爸爸被女儿激将考上985研究生](http://www.play.hengshemaoyi.cn/kongbu/9519674.htm)
+- [钓友一晚狂钓几千斤鱼塞满后备箱](http://www.play.hengshemaoyi.cn/kongbu/9519674.htm)
 - [鸿蒙智行回应“竹知了”事件](http://www.daogukj.com/8314048)
-- [光幕落下又升起，就像我们告别再重逢//师徒杯S3主题曲](http://www.play.hengshemaoyi.cn/xiju/8783645.htm)
-- [解放军怎么打航母](http://www.play.hengshemaoyi.cn/kongbu/2446487.htm)
-- [张月遭AI生成兽图涉嫌双重侵权](http://www.movie.hkepx.cn/xiju/1583083.htm)
-- [左耳 忘情牛肉面 右耳 爱情麻辣烫](http://www.movie.hkepx.cn/movie/7949727.htm)
-- [大冰直播时牙冠脱落淡定捡起装回](http://www.movie.hkepx.cn/xiju/7893335.htm)
-- [女教师因备孕与男友起争执捅死对方](http://www.movie.hkepx.cn/movie/6332074.htm)
+- [如何看待松岛辉空近日接受采访时说，只要拿到奥运会冠军，就算21岁，也会立即退役？](http://www.play.hengshemaoyi.cn/xiju/8783645.htm)
+- [蝴蝶振翅小伙2年成功增重30斤](http://www.play.hengshemaoyi.cn/kongbu/2446487.htm)
+- [女孩8岁独居床头放菜刀现考上一本](http://www.movie.hkepx.cn/xiju/1583083.htm)
+- [孙浩自曝被迫假唱社死名场面](http://www.movie.hkepx.cn/movie/7949727.htm)
+- [中国买美国大豆释放何信号](http://www.movie.hkepx.cn/xiju/7893335.htm)
+- [35岁女子1天5瓶可乐喝成60岁脸](http://www.movie.hkepx.cn/movie/6332074.htm)
 - [泰航拒绝20多名中国乘客登机](http://www.movie.hkepx.cn/xiju/9763550.htm)
-- [一诺在巴黎收集铁塔的昼与夜](http://www.movie.hkepx.cn/movie/0911321.htm)
-- [多地出新政“争抢”3.2亿老年人](http://www.movie.hkepx.cn/movie/1570496.htm)
-- [如何评价赛力斯问界2026年7月销量严重下滑，月销量不足21,000辆？](http://www.movie.hkepx.cn/xiju/5460806.htm)
-- [比特币冷钱包被曝漏洞，超 1.1 亿美元资产被盗，看似最安全的「离线存储」为什么也会被偷？](http://www.movie.hkepx.cn/xiju/3915542.htm)
-- [玩了《英雄联盟》经典模式发现提莫从远古时代到现在技能组从未变化，他的技能有这么优秀吗？](http://www.daogukj.com/obnsavya/)
-- [语文好的人有什么特征？](http://www.daogukj.com/thtteqlc/)
+- [香港传奇影星葛兰去世](http://www.movie.hkepx.cn/movie/0911321.htm)
+- [8月12日地球将失去引力7秒？谣言](http://www.movie.hkepx.cn/movie/1570496.htm)
+- [申通快递被立案调查](http://www.movie.hkepx.cn/xiju/5460806.htm)
+- [现在几千块钱音响的音质，是否能秒杀90年代初十几万的音响？](http://www.movie.hkepx.cn/xiju/3915542.htm)
+- [哈啰电车突然落锁致大学生十级伤残，交警多次调取后台数据失败，数据调取为什么这么难？还能如何取证？](http://www.daogukj.com/obnsavya/)
+- [“当你凝视深渊时，深渊也在凝视你”](http://www.daogukj.com/thtteqlc/)
 - [5元2瓶都卖不动 含糖碳酸饮料遇冷](http://www.daogukj.com/6398059)
-- [内娱新四大名著](http://www.daogukj.com/5238190)
+- [死刑改死缓被害人家属十年后才知晓](http://www.daogukj.com/5238190)
 
 </details>
 
 ## 原始来源
 
-- [还来！！！！！！！！！！！](https://b23.tv/BV1xwMQ6GEix)
+- [真人明星要交出“饭碗”吗](https://www.baidu.com/s?wd=%E7%9C%9F%E4%BA%BA%E6%98%8E%E6%98%9F%E8%A6%81%E4%BA%A4%E5%87%BA%E2%80%9C%E9%A5%AD%E7%A2%97%E2%80%9D%E5%90%97&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 575a505fbdc562c54f33 -->
+<!-- content-fingerprint: 10955047642c92d50dad -->

@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 真人明星要交出“饭碗”吗
+# 当十岁的妹妹有了自己的微信
 
-> 来源：百度热搜 · 排名：第 20 位 · 热度：5902808 · 更新：2026-08-05T00:21:49+08:00
+> 来源：微博热搜 · 排名：第 21 位 · 热度：37822 · 分类：情感 · 更新：2026-08-05T04:57:13+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“真人明星要交出“饭碗”吗”位列第 20 位，公开热度指标为 5902808。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“当十岁的妹妹有了自己的微信”位列第 21 位，公开热度指标为 37822，榜单分类为“情感”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：AI短剧《被裁掉的女孩》及女主角“方桃子”近期爆火，粉丝逼近40万，引发“真人明星将被取代”的行业恐慌。与此前AI演员追求完美感不同，方桃子保留了瑕疵皮肤、会脱妆的妆容和脆弱人设，这份真实感让观众产生代入与共情，而非抗拒AI脸。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `情感`
 
 ## 相关热点
 
-- [一诺在巴黎收集铁塔的昼与夜](yin-ren-ru-sheng.md)
-- [多地出新政“争抢”3.2亿老年人](jing-di-zhi-wa.md)
-- [姆巴佩、哈兰德之后，谁最有希望成为下一代“球王”候选人？](hai-kuo-tian-kong.md)
-- [《现在的小孩 vs bro小时候》](gao-zhan-yuan-zhu.md)
+- [香港传奇影星葛兰去世](yin-ren-ru-sheng.md)
+- [8月12日地球将失去引力7秒？谣言](jing-di-zhi-wa.md)
+- [玩了《英雄联盟》经典模式发现提莫从远古时代到现在技能组从未变化，他的技能有这么优秀吗？](hai-kuo-tian-kong.md)
+- [热搜上“仙桃电梯20秒”监控流出，炸出多少毁三观的成年巨婴](gao-zhan-yuan-zhu.md)
 
 ## 站内推荐
 
-- [光幕落下又升起，就像我们告别再重逢//师徒杯S3主题曲](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
+- [如何看待松岛辉空近日接受采访时说，只要拿到奥运会冠军，就算21岁，也会立即退役？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
 - [5元2瓶都卖不动 含糖碳酸饮料遇冷](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
 - [大连湾海底隧道能看到鲨鱼系谣言](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
 - [道指、标普500指数开盘刷新历史新高](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [解放军怎么打航母](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [蝴蝶振翅小伙2年成功增重30斤](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [当我梦到了一段很锈湖的音乐。](http://www.daogukj.com/xpqxgjcv/)
-- [比特币冷钱包被曝漏洞，超 1.1 亿美元资产被盗，看似最安全的「离线存储」为什么也会被偷？](http://www.play.hengshemaoyi.cn/xiju/9504622.htm)
+- [花四个月时间做了个猫咪演唱会场馆](http://www.daogukj.com/xpqxgjcv/)
+- [现在几千块钱音响的音质，是否能秒杀90年代初十几万的音响？](http://www.play.hengshemaoyi.cn/xiju/9504622.htm)
 - [开学三件套涨价 等等看的人失算了](http://www.movie.hkepx.cn/movie/6749947.htm)
-- [学才艺哪家强？](http://www.play.hengshemaoyi.cn/xiju/4948083.htm)
+- [挑战开局零元生存第1期](http://www.play.hengshemaoyi.cn/xiju/4948083.htm)
 - [美日近 30 年来首次联手直接买入日元「围剿」空头，这是否能扭转日元长期贬值趋势？](http://www.movie.hkepx.cn/xiju/7607655.htm)
-- [《现在的小孩 vs bro小时候》](http://www.play.hengshemaoyi.cn/xiju/5325575.htm)
-- [张月遭AI生成兽图涉嫌双重侵权](http://www.play.hengshemaoyi.cn/kongbu/9379279.htm)
+- [热搜上“仙桃电梯20秒”监控流出，炸出多少毁三观的成年巨婴](http://www.play.hengshemaoyi.cn/xiju/5325575.htm)
+- [女孩8岁独居床头放菜刀现考上一本](http://www.play.hengshemaoyi.cn/kongbu/9379279.htm)
 - [王楚钦男单世界排名断层第一，前五仅剩一位中国选手，国乒面临哪些挑战？](http://www.daogukj.com/egbjfccc/)
-- [35岁女子1天5瓶可乐喝成60岁脸](http://www.movie.hkepx.cn/movie/2907268.htm)
-- [田曦薇猫咪外貌引韩网热议](http://www.movie.hkepx.cn/xiju/1786474.htm)
-- [建议大家买行李箱不要太大众](http://www.play.hengshemaoyi.cn/kongbu/3660768.htm)
+- [女教师因备孕与男友起争执捅死对方](http://www.movie.hkepx.cn/movie/2907268.htm)
+- [内娱新四大名著](http://www.movie.hkepx.cn/xiju/1786474.htm)
+- [金鹰奖 提名规则](http://www.play.hengshemaoyi.cn/kongbu/3660768.htm)
 - [道指、标普500指数开盘刷新历史新高](http://www.movie.hkepx.cn/xiju/4183202.htm)
-- [申通快递被立案调查](http://www.play.hengshemaoyi.cn/kongbu/6256469.htm)
-- [俄最大物流巨轮遭乌击沉意味什么](http://www.movie.hkepx.cn/xiju/5108742.htm)
-- [天才女友语文成绩148](http://www.movie.hkepx.cn/xiju/7519171.htm)
+- [天才女友语文成绩148](http://www.play.hengshemaoyi.cn/kongbu/6256469.htm)
+- [多地出新政“争抢”3.2亿老年人](http://www.movie.hkepx.cn/xiju/5108742.htm)
+- [《最讨厌复联の一集》](http://www.movie.hkepx.cn/xiju/7519171.htm)
 - [歼-16南海上空“训转战”画面公开](http://www.movie.hkepx.cn/movie/2577743.htm)
-- [如何看待24岁华尔街AI天才掌管450亿美元、以4倍杠杆极致梭哈AI硬件，最终遭华尔街「围猎」爆仓？](http://www.movie.hkepx.cn/xiju/8256350.htm)
-- [女孩8岁独居床头放菜刀现考上一本](http://www.play.hengshemaoyi.cn/kongbu/3840000.htm)
-- [【短的发布会】纯平地板？百变空间？全网热议的9系旗舰竟是五菱扬光Pro！](http://www.daogukj.com/pggpwtpd/)
+- [如何看待网友用 AI 生成小米车祸视频被行政处罚？ AI 让造谣成本变低，有什么办法能管控吗？](http://www.movie.hkepx.cn/xiju/8256350.htm)
+- [第一批抱冬瓜睡觉受害者已出现](http://www.play.hengshemaoyi.cn/kongbu/3840000.htm)
+- [完蛋！我被男同学包围了](http://www.daogukj.com/pggpwtpd/)
 - [菲律宾一纸海图换来中国“四箭齐发”](http://www.play.hengshemaoyi.cn/xiju/2942368.htm)
-- [媒体：伪造结婚证开展辅助生殖非私事](http://www.movie.hkepx.cn/movie/3592629.htm)
-- [电脑手机小电驴全线涨价，「打工人三件套」同步抬价，如何看待普通人被迫缴纳 AI 税？](http://www.play.hengshemaoyi.cn/xiju/8731518.htm)
-- [一诺在巴黎收集铁塔的昼与夜](http://www.play.hengshemaoyi.cn/xiju/3438881.htm)
-- [解放军怎么打航母](http://www.daogukj.com/rvtjhukc/)
-- [如何评价赛力斯问界2026年7月销量严重下滑，月销量不足21,000辆？](http://www.play.hengshemaoyi.cn/kongbu/3059344.htm)
-- [女教师因备孕与男友起争执捅死对方](http://www.movie.hkepx.cn/movie/8044035.htm)
-- [官方通报卫生巾疑有虫卵](http://www.movie.hkepx.cn/movie/0744393.htm)
+- [邹市明被曝连续数月零收入](http://www.movie.hkepx.cn/movie/3592629.htm)
+- [OpenCode 发文称 DeepSeek 单日吞下 8 万亿 Token，传递出哪些信号？](http://www.play.hengshemaoyi.cn/xiju/8731518.htm)
+- [香港传奇影星葛兰去世](http://www.play.hengshemaoyi.cn/xiju/3438881.htm)
+- [蝴蝶振翅小伙2年成功增重30斤](http://www.daogukj.com/rvtjhukc/)
+- [申通快递被立案调查](http://www.play.hengshemaoyi.cn/kongbu/3059344.htm)
+- [35岁女子1天5瓶可乐喝成60岁脸](http://www.movie.hkepx.cn/movie/8044035.htm)
+- [女子被小三后实名举报985博士后](http://www.movie.hkepx.cn/movie/0744393.htm)
 - [哈尔滨中央大街已成中央大河](http://www.play.hengshemaoyi.cn/xiju/2844176.htm)
 - [八仙](http://www.play.hengshemaoyi.cn/kongbu/4388909.htm)
-- [完蛋！我被男同学包围了](http://www.play.hengshemaoyi.cn/kongbu/7258246.htm)
-- [光模块](http://www.movie.hkepx.cn/movie/3477880.htm)
-- [过年的鞭炮声太吵，以后看你的时候我带上一束花](http://www.daogukj.com/mxxaaoqi/)
-- [猫头鹰为什么算是猛禽？](http://www.movie.hkepx.cn/xiju/0410176.htm)
-- [美利坚糖门黄油大胃袋VS国产味真族良子板面长老](http://www.play.hengshemaoyi.cn/kongbu/4983709.htm)
-- [老大，你的意思是我们抽烟抽的慢也得死吗？](http://www.play.hengshemaoyi.cn/xiju/9262750.htm)
-- [还来！！！！！！！！！！！](http://www.play.hengshemaoyi.cn/kongbu/4671141.htm)
-- [男子发现路灯螺丝能点燃香烟后报警](http://www.movie.hkepx.cn/movie/8349964.htm)
-- [8月12日地球将失去引力7秒？谣言](http://www.daogukj.com/4716922)
+- [过年的鞭炮声太吵，以后看你的时候我带上一束花](http://www.play.hengshemaoyi.cn/kongbu/7258246.htm)
+- [女孩独游南太行失联8天](http://www.movie.hkepx.cn/movie/3477880.htm)
+- [“至此，神性已成！！！”](http://www.daogukj.com/mxxaaoqi/)
+- [世事纷繁，难有一直顺遂，但总有人会递给你一束花。](http://www.movie.hkepx.cn/xiju/0410176.htm)
+- [【半佛】小米澎程，让行业睡不着了？](http://www.play.hengshemaoyi.cn/kongbu/4983709.htm)
+- [猫咖续命计划](http://www.play.hengshemaoyi.cn/xiju/9262750.htm)
+- [真人明星要交出“饭碗”吗](http://www.play.hengshemaoyi.cn/kongbu/4671141.htm)
+- [曾沛慈方发声明](http://www.movie.hkepx.cn/movie/8349964.htm)
+- [桂林师范学院招聘被指萝卜岗，考生称音乐教师面试仅 5 分钟，学校回应称招聘合规，哪些信息值得关注？](http://www.daogukj.com/4716922)
 - [鸿蒙智行回应“竹知了”事件](http://www.movie.hkepx.cn/movie/5393498.htm)
-- [“当你凝视深渊时，深渊也在凝视你”](http://www.movie.hkepx.cn/movie/5460085.htm)
-- [你说偷吃零食被发现会死是吗？](http://www.play.hengshemaoyi.cn/xiju/3011100.htm)
-- [中国版“生物DeepSeek”诞生](http://www.play.hengshemaoyi.cn/xiju/4637538.htm)
-- [上海维也纳酒店客房遍布床虱，酒店反问为何不自行检查，卫生监督所称将立案处罚，谁的责任？床虱有哪些风险？](http://www.movie.hkepx.cn/movie/8940560.htm)
-- [gmm艺人不参加文化交流之夜](http://www.movie.hkepx.cn/movie/0831513.htm)
-- [谁是联合利刃未来战场主角](http://www.daogukj.com/cmhomvpy/)
-- [四川一50岁女区委书记病逝](http://www.play.hengshemaoyi.cn/kongbu/7216702.htm)
-- [光幕落下又升起，就像我们告别再重逢//师徒杯S3主题曲](http://www.play.hengshemaoyi.cn/xiju/1028140.htm)
+- [想不通，太逆天，25 位名人整形手术前后的对比：过去与现在](http://www.movie.hkepx.cn/movie/5460085.htm)
+- [还来！！！！！！！！！！！](http://www.play.hengshemaoyi.cn/xiju/3011100.htm)
+- [“银发离婚潮”席卷全球](http://www.play.hengshemaoyi.cn/xiju/4637538.htm)
+- [我国服务进出口总额37797.5亿元](http://www.movie.hkepx.cn/movie/8940560.htm)
+- [婚外胚胎案妻子称丈夫报警](http://www.movie.hkepx.cn/movie/0831513.htm)
+- [8月需重点关注哪些极端天气](http://www.daogukj.com/cmhomvpy/)
+- [姆巴佩、哈兰德之后，谁最有希望成为下一代“球王”候选人？](http://www.play.hengshemaoyi.cn/kongbu/7216702.htm)
+- [如何看待松岛辉空近日接受采访时说，只要拿到奥运会冠军，就算21岁，也会立即退役？](http://www.play.hengshemaoyi.cn/xiju/1028140.htm)
 - [20多名中国乘客被泰航无理由拒载](http://www.movie.hkepx.cn/movie/1414994.htm)
-- [《最讨厌复联の一集》](http://www.daogukj.com/2345067)
-- [徐艺洋晒与全红婵合照](http://www.movie.hkepx.cn/movie/8392048.htm)
+- [美利坚糖门黄油大胃袋VS国产味真族良子板面长老](http://www.daogukj.com/2345067)
+- [马斯克又悄悄做出一个独角兽](http://www.movie.hkepx.cn/movie/8392048.htm)
 
 </details>
 
 ## 原始来源
 
-- [真人明星要交出“饭碗”吗](https://www.baidu.com/s?wd=%E7%9C%9F%E4%BA%BA%E6%98%8E%E6%98%9F%E8%A6%81%E4%BA%A4%E5%87%BA%E2%80%9C%E9%A5%AD%E7%A2%97%E2%80%9D%E5%90%97&sa=fyb_news&rsv_dl=fyb_news)
+- [当十岁的妹妹有了自己的微信](https://s.weibo.com/weibo?q=%E5%BD%93%E5%8D%81%E5%B2%81%E7%9A%84%E5%A6%B9%E5%A6%B9%E6%9C%89%E4%BA%86%E8%87%AA%E5%B7%B1%E7%9A%84%E5%BE%AE%E4%BF%A1)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 7591bbdac1fbceed949e -->
+<!-- content-fingerprint: 59350bf756c12ddb2935 -->
