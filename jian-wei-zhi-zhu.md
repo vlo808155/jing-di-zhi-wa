@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 钟美美称 38 岁母亲为身份认同求职一年未果，中年女性求职为何困难？劳动对人的自我认同意味着什么？
+# ⚡对 对 子 战 神 9⚡
 
-> 来源：知乎热榜 · 排名：第 18 位 · 热度：96 万热度 · 分类：问答 · 更新：2026-08-04T16:07:14+08:00
+> 来源：哔哩哔哩热门 · 排名：第 18 位 · 热度：1809083 · 分类：鬼畜剧场 · 更新：2026-08-05T00:21:49+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“钟美美称 38 岁母亲为身份认同求职一年未果，中年女性求职为何困难？劳动对人的自我认同意味着什么？”位列第 18 位，公开热度指标为 96 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“⚡对 对 子 战 神 9⚡”位列第 18 位，公开热度指标为 1809083，榜单分类为“鬼畜剧场”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，在《陈鲁豫・慢谈》访谈中，钟美美分享了38岁母亲持续求职一年无果的经历。钟美美称，在外人眼中母亲无需工作、生活无忧，但她并不满足单纯被供养的状态。鲁豫在对话中点出现实职场痛点：35岁是一道坎，35岁以上女性求职格外艰难。钟美美解读，母亲想要工作不是来自经济压力，而是希望通过劳动获得身份认同，填补精神层面的价值空缺。（来源：巨流视频）https://mp.weixin.qq.com/s?__biz=MzU1OTYxOTI3NQ==&mid=2248007644&idx=1&sn=950aa3d2e68a84287b7c17c2ec151e50&chk
+来源公开摘要显示：BGM：UwU Funk 本稿件中出现的部分“玩梗”内容对话，仅为创作层面的娱乐化表达。此类表述可能存在不当性，并非作者所提倡的价值观。该类内容仅用于塑造视频中所需的矛盾冲突，服务于创作效果，不建议任何人模仿，更不可在现实生活、社交场景中使用。请各位理性看待内容。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `鬼畜剧场`
 
 ## 相关热点
 
-- [当伪人全面入侵学校！](du-ju-hui-yan.md)
-- [曾舜晞赢了比赛输了面子](bie-ju-jiang-xin.md)
-- [A股股王大涨超17%](qiao-duo-tian-gong.md)
-- [“江西球王”杨志军单场轰101分](gui-fu-shen-gong.md)
+- [解放军怎么打航母](du-ju-hui-yan.md)
+- [徐艺洋晒与全红婵合照](bie-ju-jiang-xin.md)
+- [8月12日地球将失去引力7秒？谣言](qiao-duo-tian-gong.md)
+- [猫头鹰为什么算是猛禽？](gui-fu-shen-gong.md)
 
 ## 站内推荐
 
-- [OpenCode 发文称 DeepSeek 单日吞下 8 万亿 Token，传递出哪些信号？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [为什么《潜伏》里面说佛龛价值连城，明明佛龛一直在潜伏寸功未立，而且换回来之后基本就是个普通特务了？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [男孩不吃早饭偷吃魔芋爽，妈妈发现后罚他一次性吃完 30 袋，这样做是否太过极端？能有效教育孩子吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [婚外试管案丈夫称「不销毁胚胎」系误会，离婚无赔偿为谣言，妻子称未见丈夫任何实质销毁动作，还有哪些疑点？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
-- [学霸是怎么学习的，学累了都干些什么，怎么恢复精力？作息时间是怎样的？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
+- [鬼 畜 复 兴 摇 一 摇](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
+- [学才艺哪家强？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [“当你凝视深渊时，深渊也在凝视你”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [老大，你的意思是我们抽烟抽的慢也得死吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [还来！！！！！！！！！！！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [创业板指放量大涨5.64%](http://www.daogukj.com/sqkgthem/)
-- [上海飞东京航班险与飞行检查飞机相撞](http://www.play.hengshemaoyi.cn/xiju/2157274.htm)
-- [大冰直播假牙掉了](http://www.daogukj.com/qzvccsto/)
-- [AI仿制通知书诈骗 开学季如何避坑](http://www.daogukj.com/9017409)
-- [少年骑电动车追星 保罗乔治全网寻人](http://www.movie.hkepx.cn/movie/5908744.htm)
-- [妻子患癌被诉离婚丈夫调解付8.8万](http://www.movie.hkepx.cn/movie/7241164.htm)
-- [小学门口“一根杆长椅”走红](http://www.movie.hkepx.cn/xiju/4493313.htm)
-- [谁来管管AI漫剧女主的穿搭](http://www.movie.hkepx.cn/movie/0771662.htm)
-- [为什么冰箱能一直开但空调不能](http://www.movie.hkepx.cn/xiju/0992447.htm)
-- [立秋倒计时 大兴安岭冰柜卖爆](http://www.movie.hkepx.cn/movie/0097227.htm)
-- [认清教育领域新型谣言](http://www.play.hengshemaoyi.cn/xiju/0858406.htm)
-- [A股收盘 创业板指放量大涨5.64%](http://www.movie.hkepx.cn/xiju/5889900.htm)
-- [时代少年团 讨好感](http://www.movie.hkepx.cn/movie/4398357.htm)
-- [如何看待24岁华尔街AI天才掌管450亿美元、以4倍杠杆极致梭哈AI硬件，最终遭华尔街「围猎」爆仓？](http://www.play.hengshemaoyi.cn/xiju/3710304.htm)
-- [美将43家中企拉黑，涵盖食品、医药等民生领域，这是否意味着全面脱钩已深入底层供应链？如何解读美方意图？](http://www.daogukj.com/1582634)
-- [5个案例看我国经济动能向新结构向优](http://www.movie.hkepx.cn/xiju/7460057.htm)
-- [洞洞鞋真的是脚气培养皿吗](http://www.daogukj.com/iuhthsij/)
-- [反内卷？建行员工午休暂停柜面服务](http://www.movie.hkepx.cn/xiju/2237917.htm)
-- [男孩不吃早饭偷吃魔芋爽，妈妈发现后罚他一次性吃完 30 袋，这样做是否太过极端？能有效教育孩子吗？](http://www.movie.hkepx.cn/movie/0845608.htm)
-- [电脑手机小电驴全线涨价，「打工人三件套」同步抬价，如何看待普通人被迫缴纳 AI 税？](http://www.daogukj.com/8581680)
-- [111岁奶奶的长寿秘诀藏在4个习惯里](http://www.movie.hkepx.cn/xiju/4507906.htm)
-- [汕尾地震](http://www.movie.hkepx.cn/xiju/3471686.htm)
-- [律师：用假证骗胚胎 医院有权要求赔偿](http://www.play.hengshemaoyi.cn/xiju/5571527.htm)
-- [婚外试管案丈夫称「不销毁胚胎」系误会，离婚无赔偿为谣言，妻子称未见丈夫任何实质销毁动作，还有哪些疑点？](http://www.play.hengshemaoyi.cn/kongbu/8650783.htm)
-- [《现在的小孩 vs bro小时候》](http://www.daogukj.com/3850284)
-- [儿子去世 母亲起诉继承87个游戏账号](http://www.movie.hkepx.cn/xiju/1958046.htm)
-- [【剧情】昭阳公主（2026）14【孔雪儿/李宏毅】（按姓氏笔画排序）](http://www.movie.hkepx.cn/movie/3150925.htm)
-- [迪丽热巴是闵塔鲨甲方](http://www.daogukj.com/twsaunno/)
-- [外出80年的大爷爷一脉，现在回来要分老家宅基地，我们不想给，按法律该怎么应对？](http://www.play.hengshemaoyi.cn/xiju/2788260.htm)
-- [Angelababy羌族服饰路透](http://www.movie.hkepx.cn/movie/8401072.htm)
-- [OpenCode 发文称 DeepSeek 单日吞下 8 万亿 Token，传递出哪些信号？](http://www.daogukj.com/5256425)
-- [中国物流业景气指数继续保持扩张](http://www.play.hengshemaoyi.cn/kongbu/6811189.htm)
-- [学霸是怎么学习的，学累了都干些什么，怎么恢复精力？作息时间是怎样的？](http://www.movie.hkepx.cn/movie/7189595.htm)
-- [对领导总是“能躲就躲”，电梯里碰到就尴尬，这是社交恐惧还是职业成熟度不够？](http://www.movie.hkepx.cn/xiju/1481443.htm)
-- [【最闪暖的一集】闪暖七周年CG首曝 | 8月5日更新](http://www.movie.hkepx.cn/movie/5934231.htm)
-- [俄方：俄可动用核武保护遭进攻的盟友](http://www.daogukj.com/suhrxest/)
-- [当黑客入侵我家摄像头将看到……](http://www.play.hengshemaoyi.cn/xiju/8374811.htm)
-- [猫咖续命计划](http://www.movie.hkepx.cn/movie/5917708.htm)
-- [还来！！！！！！！！！！！](http://www.movie.hkepx.cn/movie/2673504.htm)
-- [泽连斯基：争取今年秋季结束战争](http://www.movie.hkepx.cn/xiju/9719392.htm)
-- [女孩旅居两个月 离别时一人一马落泪](http://www.play.hengshemaoyi.cn/xiju/5111103.htm)
-- [“不存在能主动使出黑闪的咒术师，除非他是...”](http://www.movie.hkepx.cn/xiju/7322023.htm)
-- [过年的鞭炮声太吵，以后看你的时候我带上一束花](http://www.daogukj.com/lqwdxuku/)
-- [曾舜晞赢了比赛输了面子](http://www.movie.hkepx.cn/xiju/8204204.htm)
-- [A股“股王”涨停](http://www.play.hengshemaoyi.cn/kongbu/5762471.htm)
-- [UFC名将去世年仅34岁 疑因突发心脏病](http://www.play.hengshemaoyi.cn/xiju/3015624.htm)
-- [如何评价中国围棋协会官宣「中国队即将参加2026年LG杯」？](http://www.movie.hkepx.cn/movie/9539562.htm)
-- [4岁男童深夜游走因家里垃圾成山](http://www.daogukj.com/1841885)
-- [伊朗：乌克兰道歉了](http://www.play.hengshemaoyi.cn/kongbu/3844400.htm)
-- [泰国前首富现身给阿嬷的情书泰首映礼](http://www.daogukj.com/2839192)
+- [现在几千块钱音响的音质，是否能秒杀90年代初十几万的音响？](http://www.daogukj.com/sqkgthem/)
+- [美拟禁新型光模块草案](http://www.play.hengshemaoyi.cn/xiju/2157274.htm)
+- [大连湾海底隧道能看到鲨鱼不实](http://www.daogukj.com/qzvccsto/)
+- [时差巴黎铁塔摄影大赛](http://www.daogukj.com/9017409)
+- [我们的少年时代2](http://www.movie.hkepx.cn/movie/5908744.htm)
+- [桂林师范学院招聘被指萝卜岗，考生称音乐教师面试仅 5 分钟，学校回应称招聘合规，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/7241164.htm)
+- [张月遭AI生成兽图涉嫌双重侵权](http://www.movie.hkepx.cn/xiju/4493313.htm)
+- [抖音7月处置色情低俗内容40.3万条](http://www.movie.hkepx.cn/movie/0771662.htm)
+- [泰航拒绝20多名中国乘客登机](http://www.movie.hkepx.cn/xiju/0992447.htm)
+- [光模块](http://www.movie.hkepx.cn/movie/0097227.htm)
+- [王楚钦男单世界排名断层第一，前五仅剩一位中国选手，国乒面临哪些挑战？](http://www.play.hengshemaoyi.cn/xiju/0858406.htm)
+- [人不在工位一定要把豆包关了](http://www.movie.hkepx.cn/xiju/5889900.htm)
+- [马斯克又悄悄做出一个独角兽](http://www.movie.hkepx.cn/movie/4398357.htm)
+- [光幕落下又升起，就像我们告别再重逢//师徒杯S3主题曲](http://www.play.hengshemaoyi.cn/xiju/3710304.htm)
+- [完蛋！我被男同学包围了](http://www.daogukj.com/1582634)
+- [我国服务进出口总额37797.5亿元](http://www.movie.hkepx.cn/xiju/7460057.htm)
+- [鸿蒙智行回应“竹知了”争议](http://www.daogukj.com/iuhthsij/)
+- [OpenCode 发文称 DeepSeek 单日吞下 8 万亿 Token，传递出哪些信号？](http://www.movie.hkepx.cn/xiju/2237917.htm)
+- [“当你凝视深渊时，深渊也在凝视你”](http://www.movie.hkepx.cn/movie/0845608.htm)
+- [你说偷吃零食被发现会死是吗？](http://www.daogukj.com/8581680)
+- [姆巴佩、哈兰德之后，谁最有希望成为下一代“球王”候选人？](http://www.movie.hkepx.cn/xiju/4507906.htm)
+- [中国版“生物DeepSeek”诞生](http://www.movie.hkepx.cn/xiju/3471686.htm)
+- [哈啰电车突然落锁致大学生十级伤残，交警多次调取后台数据失败，数据调取为什么这么难？还能如何取证？](http://www.play.hengshemaoyi.cn/xiju/5571527.htm)
+- [老大，你的意思是我们抽烟抽的慢也得死吗？](http://www.play.hengshemaoyi.cn/kongbu/8650783.htm)
+- [5元2瓶都卖不动 含糖碳酸饮料遇冷](http://www.daogukj.com/3850284)
+- [内娱新四大名著](http://www.movie.hkepx.cn/xiju/1958046.htm)
+- [大连湾海底隧道能看到鲨鱼系谣言](http://www.movie.hkepx.cn/movie/3150925.htm)
+- [歼-16南海上空“训转战”画面公开](http://www.daogukj.com/twsaunno/)
+- [几十块入手世界级顶尖好物——居家用品篇](http://www.play.hengshemaoyi.cn/xiju/2788260.htm)
+- [多地出新政“争抢”3.2亿老年人](http://www.movie.hkepx.cn/movie/8401072.htm)
+- [鬼 畜 复 兴 摇 一 摇](http://www.daogukj.com/5256425)
+- [上海维也纳酒店客房遍布床虱，酒店反问为何不自行检查，卫生监督所称将立案处罚，谁的责任？床虱有哪些风险？](http://www.play.hengshemaoyi.cn/kongbu/6811189.htm)
+- [还来！！！！！！！！！！！](http://www.movie.hkepx.cn/movie/7189595.htm)
+- [【短的发布会】纯平地板？百变空间？全网热议的9系旗舰竟是五菱扬光Pro！](http://www.movie.hkepx.cn/xiju/1481443.htm)
+- [第一批抱冬瓜睡觉受害者已出现](http://www.movie.hkepx.cn/movie/5934231.htm)
+- [歼-20 部队将「飞行二大队 20 分钟覆灭耻辱记」永久悬挂，这体现了怎样的军事管理和训练理念？](http://www.daogukj.com/suhrxest/)
+- [男子发现路灯螺丝能点燃香烟后报警](http://www.play.hengshemaoyi.cn/xiju/8374811.htm)
+- [38岁男演员在线求职万岁山NPC岗位](http://www.movie.hkepx.cn/movie/5917708.htm)
+- [天才女友语文成绩148](http://www.movie.hkepx.cn/movie/2673504.htm)
+- [比特币冷钱包被曝漏洞，超 1.1 亿美元资产被盗，看似最安全的「离线存储」为什么也会被偷？](http://www.movie.hkepx.cn/xiju/9719392.htm)
+- [建议大家买行李箱不要太大众](http://www.play.hengshemaoyi.cn/xiju/5111103.htm)
+- [疑似梁文锋早期微博被扒](http://www.movie.hkepx.cn/xiju/7322023.htm)
+- [道指、标普500指数开盘刷新历史新高](http://www.daogukj.com/lqwdxuku/)
+- [徐艺洋晒与全红婵合照](http://www.movie.hkepx.cn/xiju/8204204.htm)
+- [鸿蒙智行回应“竹知了”事件](http://www.play.hengshemaoyi.cn/kongbu/5762471.htm)
+- [女孩8岁独居床头放菜刀现考上一本](http://www.play.hengshemaoyi.cn/xiju/3015624.htm)
+- [《现在的小孩 vs bro小时候》](http://www.movie.hkepx.cn/movie/9539562.htm)
+- [官方通报卫生巾疑有虫卵](http://www.daogukj.com/1841885)
+- [语文好的人有什么特征？](http://www.play.hengshemaoyi.cn/kongbu/3844400.htm)
+- [如何评价赛力斯问界2026年7月销量严重下滑，月销量不足21,000辆？](http://www.daogukj.com/2839192)
 
 </details>
 
 ## 原始来源
 
-- [钟美美称 38 岁母亲为身份认同求职一年未果，中年女性求职为何困难？劳动对人的自我认同意味着什么？](https://www.zhihu.com/question/2067894962260107908)
+- [⚡对 对 子 战 神 9⚡](https://b23.tv/BV1p4MD6KEaM)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 3e09f7219027014b96d7 -->
+<!-- content-fingerprint: 6e9433433efc6874036c -->
