@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 传销头目出狱办书院打孩子 当地通报
+# 桑拿天什么时候结束
 
-> 来源：百度热搜 · 排名：第 17 位 · 热度：6176909 · 更新：2026-08-06T06:19:23+08:00
+> 来源：今日头条热榜 · 排名：第 18 位 · 热度：1488996 · 分类：热门事件 · 更新：2026-08-06T16:02:18+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“传销头目出狱办书院打孩子 当地通报”位列第 17 位，公开热度指标为 6176909。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“桑拿天什么时候结束”位列第 18 位，公开热度指标为 1488996，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：据报道，传销前科人员如平开办“如是书院”，以国学为名封闭式矫治问题青少年，多名学员称遭其殴打。8月5日浙江新昌发布通报，已组建联合调查组核查，查实违法违规行为将从严处置，后续会公布调查进展。
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
 
 ## 相关热点
 
-- [可杰 top](ming-cha-qiu-hao.md)
-- [余承东称手机将大规模涨价](jian-wei-zhi-zhu.md)
-- [网上为什么对《天道》这部剧评价得像神一样？](du-ju-hui-yan.md)
-- [谁能绷住！特效小哥大战网吧女王！](bie-ju-jiang-xin.md)
+- [余承东发布会上误将24999元念成2499元，客观来看MateBook Fold这个定价合理吗？](ming-cha-qiu-hao.md)
+- [哥哥升入高三后离奇去世，这所无人毕业的高中到底藏了什么？](jian-wei-zhi-zhu.md)
+- [曝《蜘蛛侠》替身“河南弟”造假抢功](du-ju-hui-yan.md)
+- [王俊凯王源易烊千玺未公开合照](bie-ju-jiang-xin.md)
 
 ## 站内推荐
 
-- [四预警齐发！双台风影响多个海域](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [一对俄罗斯双胞胎在上海地铁站跳芭蕾](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [费大厨全国小炒肉大王仅凭视频评出](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [一群富豪的牛津梦 标价108万](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [一枚俄导弹都没击落 泽连斯基发声](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [曝张一鸣下死命令：不依赖AI蒸馏技术](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [张启山抽了窄娘娘的脊梁骨](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [直播自杀日本女网红已身亡](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [曝侯明昊违反交规被约谈](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [申聪回应梅姨真名：正义永不缺席](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [老祖宗怎么可以聪明成这样](http://www.play.hengshemaoyi.cn/kongbu/7686149.htm)
-- [黑龙江菜园惊现生菜界“姚明”](http://www.movie.hkepx.cn/movie/4579405.htm)
-- [公职人员被举报在职校开餐厅超市](http://www.movie.hkepx.cn/xiju/3169477.htm)
-- [成年人的体面是把请客说得很自然](http://www.movie.hkepx.cn/xiju/8635128.htm)
-- [完蛋！我被男同学包围了](http://www.play.hengshemaoyi.cn/kongbu/9338626.htm)
-- [谁能绷住！特效小哥大战网吧女王！](http://www.play.hengshemaoyi.cn/kongbu/1542166.htm)
-- [《最讨厌复联の一集》](http://www.daogukj.com/0287665)
-- [福州煎饼叔叔去世](http://www.movie.hkepx.cn/movie/7272745.htm)
-- [人贩子“梅姨”真实姓名曝光](http://www.play.hengshemaoyi.cn/xiju/6780679.htm)
-- [宝妈回应打疫苗护士被指不专业](http://www.daogukj.com/4477330)
-- [网上为什么对《天道》这部剧评价得像神一样？](http://www.daogukj.com/0861506)
-- [被泰航拒载中国乘客发声](http://www.daogukj.com/9767084)
-- [“中国游”持续带火“中国购”](http://www.movie.hkepx.cn/movie/5257500.htm)
-- [当我被外星人取代](http://www.daogukj.com/gykfwffn/)
-- [华夏出版社标注「书籍内容禁用于 AI 训练」，这种标注实际约束力有多大？能作为维权依据吗？](http://www.play.hengshemaoyi.cn/xiju/5052420.htm)
-- [多国运回存在美国的黄金](http://www.daogukj.com/xdtbrdmh/)
-- [“至此，神性已成！！！”](http://www.daogukj.com/0346242)
-- [四预警齐发！双台风影响多个海域](http://www.movie.hkepx.cn/xiju/3607769.htm)
-- [网友吐槽现在的交响乐团只能靠游戏演奏会维持生计，对此你怎么看？](http://www.play.hengshemaoyi.cn/kongbu/0133104.htm)
-- [你说偷吃零食被发现会死是吗？](http://www.movie.hkepx.cn/xiju/7939480.htm)
-- [沈腾新片《欢迎来龙餐馆》空降，极限定档 8 月 11 日全国上映，战争美食喜剧题材，对此你有何期待？](http://www.movie.hkepx.cn/xiju/0345684.htm)
-- [周杰伦晒打网球图 配文：照打](http://www.movie.hkepx.cn/xiju/4105891.htm)
-- [段永平减持了泡泡玛特，前几天刚说十年内不卖，如何评价他的操作？](http://www.movie.hkepx.cn/xiju/7210722.htm)
-- [22名中国乘客遭拒载 泰国机场致歉](http://www.movie.hkepx.cn/movie/8592737.htm)
-- [李在明：韩国进入国家灾难状态](http://www.play.hengshemaoyi.cn/xiju/5306630.htm)
-- [女子旅游错把丧葬品当纪念品买下](http://www.daogukj.com/1659974)
-- [如何看待李修贤关于周星驰事件的道歉言论？](http://www.movie.hkepx.cn/movie/0941539.htm)
-- [可杰 top](http://www.movie.hkepx.cn/movie/2635515.htm)
-- [一对俄罗斯双胞胎在上海地铁站跳芭蕾](http://www.movie.hkepx.cn/xiju/6515808.htm)
-- [自制短剧《全民围棋：我觉醒了金铲铲业余玩家》第一集](http://www.play.hengshemaoyi.cn/xiju/8816869.htm)
-- [被妻子举报丈夫与情人一审获刑1年](http://www.daogukj.com/dvtugytg/)
-- [余承东：手机可能都要大规模涨价](http://www.movie.hkepx.cn/xiju/6349162.htm)
-- [高温热浪来袭 这些地方需注意](http://www.daogukj.com/uiagrfmg/)
-- [辽宁海城酸菜坑清理致 4 农户死亡，为何会酸菜坑会引发窒息和中毒？应如何做好防护？](http://www.movie.hkepx.cn/xiju/5108394.htm)
-- [女儿考上一本出轨父亲拒付学费](http://www.play.hengshemaoyi.cn/kongbu/2476719.htm)
-- [“新疆喀什8.5级地震”系谣言](http://www.play.hengshemaoyi.cn/kongbu/6062295.htm)
-- [一枚俄导弹都没击落 泽连斯基发声](http://www.play.hengshemaoyi.cn/xiju/4493695.htm)
-- [大家还想看我搬空什么店](http://www.daogukj.com/tnrfqrke/)
-- [马斯克回应一个月亏掉2.45万亿](http://www.movie.hkepx.cn/xiju/4346084.htm)
-- [婚外胚胎案妻子住址遭恶意曝光](http://www.movie.hkepx.cn/movie/7332141.htm)
-- [如何评价文章《那一夜，腾讯因为没有文档文化无法蒸馏》?](http://www.daogukj.com/qwdjcwxs/)
-- [我们从网上买来了一些泡面尝了尝…](http://www.daogukj.com/uqrxqnjs/)
-- [茉莉奶白被茉莉和奶白背刺了](http://www.play.hengshemaoyi.cn/xiju/9086559.htm)
-- [邻车长期压线停车 车主装防护栏](http://www.play.hengshemaoyi.cn/xiju/0582780.htm)
-- [嘲讽周星驰无儿女没朋友 李修贤道歉](http://www.movie.hkepx.cn/xiju/5890662.htm)
-- [女子山姆 40 元披萨吃出 108 元剪刀，可能是哪个环节出了问题？反映了哪些质量管理问题？](http://www.movie.hkepx.cn/movie/9155162.htm)
-- [生活中最阴的概念神实力排行（2）](http://www.movie.hkepx.cn/movie/7891312.htm)
-- [反制美国！中方公布5项措施](http://www.play.hengshemaoyi.cn/xiju/9382187.htm)
-- [一群富豪的牛津梦 标价108万](http://www.play.hengshemaoyi.cn/xiju/1231015.htm)
-- [欢迎来到研究生的世界](http://www.daogukj.com/fpcntxir/)
+- [双休](http://www.play.hengshemaoyi.cn/kongbu/7686149.htm)
+- [河南推出带薪错峰休假新政，鼓励试行「周五半天+周末+年假」短途度假模式，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/4579405.htm)
+- [婚外胚胎案父亲已10个月没见过女儿](http://www.movie.hkepx.cn/xiju/3169477.htm)
+- [美媒称美军已消耗「萨德」近 80% 拦截弹，「爱国者」和「战斧」消耗近一半，实际库存如何？能撑多久？](http://www.movie.hkepx.cn/xiju/8635128.htm)
+- [《原神》奥黛塔角色PV——「柔雪的幻象」](http://www.play.hengshemaoyi.cn/kongbu/9338626.htm)
+- [王俊凯王源易烊千玺未公开合照](http://www.play.hengshemaoyi.cn/kongbu/1542166.htm)
+- [78岁奶奶每天梳头百次发量超年轻人](http://www.daogukj.com/0287665)
+- [武汉辟谣进口药医保不能报销等传言](http://www.movie.hkepx.cn/movie/7272745.htm)
+- [儿科医生漏诊获刑：我认错但不能认罪](http://www.play.hengshemaoyi.cn/xiju/6780679.htm)
+- [祠堂中门大开迎接考上北大女孩拜祖](http://www.daogukj.com/4477330)
+- [曝《蜘蛛侠》替身“河南弟”造假抢功](http://www.daogukj.com/0861506)
+- [被高温高湿暴击的东北人不笑南方人了](http://www.daogukj.com/9767084)
+- [知识产权强国建设驶入“快车道”](http://www.movie.hkepx.cn/movie/5257500.htm)
+- [母子在“天津之眼”海河边游玩时溺亡](http://www.daogukj.com/gykfwffn/)
+- [“这照片是你吗”](http://www.play.hengshemaoyi.cn/xiju/5052420.htm)
+- [母子俩在“天津之眼”附近落水溺亡](http://www.daogukj.com/xdtbrdmh/)
+- [日本地震遇难女子与婚纱一同下葬](http://www.daogukj.com/0346242)
+- [曝张一鸣下死命令：不依赖AI蒸馏技术](http://www.movie.hkepx.cn/xiju/3607769.htm)
+- [《完蛋！我被男同学包围了》为什么会好评如潮，纯粹因为它是高中生玩票制作的搞笑玩梗游戏吗？](http://www.play.hengshemaoyi.cn/kongbu/0133104.htm)
+- [《别接我，我改！》](http://www.movie.hkepx.cn/xiju/7939480.htm)
+- [天津市民有多搞笑?](http://www.movie.hkepx.cn/xiju/0345684.htm)
+- [侯卓成已报案](http://www.movie.hkepx.cn/xiju/4105891.htm)
+- [网传吃20个饺子，等于吃下6到7个馒头，是真的吗？](http://www.movie.hkepx.cn/xiju/7210722.htm)
+- [35 岁女子 1 天 5 瓶可乐喝成 60 岁脸，可乐危害真有这么大吗？高糖饮食为何会加速健康恶化？](http://www.movie.hkepx.cn/movie/8592737.htm)
+- [儿时的玩伴和小学时的同学一个考上985另一个上了大专，以后他们还适合再继续交往做好兄弟吗？](http://www.play.hengshemaoyi.cn/xiju/5306630.htm)
+- [中央考核巡查组当场质问：这么干不行](http://www.daogukj.com/1659974)
+- [你说偷吃零食被发现会死是吗？](http://www.movie.hkepx.cn/movie/0941539.htm)
+- [余承东发布会上误将24999元念成2499元，客观来看MateBook Fold这个定价合理吗？](http://www.movie.hkepx.cn/movie/2635515.htm)
+- [张启山抽了窄娘娘的脊梁骨](http://www.movie.hkepx.cn/xiju/6515808.htm)
+- [车企开始回归静默上市](http://www.play.hengshemaoyi.cn/xiju/8816869.htm)
+- [“梅姨”真名曝光 对话受害者家属](http://www.daogukj.com/dvtugytg/)
+- [田曦薇连续16部铁刘海剧](http://www.movie.hkepx.cn/xiju/6349162.htm)
+- [防大汛防强台风 多省份关键期这样做](http://www.daogukj.com/uiagrfmg/)
+- [拍铃铛四人版~](http://www.movie.hkepx.cn/xiju/5108394.htm)
+- [日本女演员捐款300万日元被骂脏钱](http://www.play.hengshemaoyi.cn/kongbu/2476719.htm)
+- [韩国因极端高温持续进入「国家灾难状态」，目前已致 16 死，今年当地气候算反常吗？哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/6062295.htm)
+- [申聪回应梅姨真名：正义永不缺席](http://www.play.hengshemaoyi.cn/xiju/4493695.htm)
+- [生活中最阴的概念神实力排行（2）](http://www.daogukj.com/tnrfqrke/)
+- [柯洁VS党毅飞（不可能的逆转）](http://www.movie.hkepx.cn/xiju/4346084.htm)
+- [郑国霖回应去景区上班被保安拦下](http://www.movie.hkepx.cn/movie/7332141.htm)
+- [涨价1元的冰红茶 两年少赚了15亿](http://www.daogukj.com/qwdjcwxs/)
+- [美国退回1000亿美元关税](http://www.daogukj.com/uqrxqnjs/)
+- [银行午休1.5小时 留个窗口行不行](http://www.play.hengshemaoyi.cn/xiju/9086559.htm)
+- [抓小三，但超燃上海话](http://www.play.hengshemaoyi.cn/xiju/0582780.htm)
+- [《英雄联盟》中国队正式确认缺席 2026 名古屋亚运会，对此你有什么想说的？](http://www.movie.hkepx.cn/xiju/5890662.htm)
+- [《漫画群星：大集结》首曝PV——「终章」将至，热血重燃。](http://www.movie.hkepx.cn/movie/9155162.htm)
+- [妈妈偷改女儿高考志愿](http://www.movie.hkepx.cn/movie/7891312.htm)
+- [上海 床虱](http://www.play.hengshemaoyi.cn/xiju/9382187.htm)
+- [曝侯明昊违反交规被约谈](http://www.play.hengshemaoyi.cn/xiju/1231015.htm)
+- [饮料旺季不旺 可乐、冰红茶为啥不火了](http://www.daogukj.com/fpcntxir/)
 
 </details>
 
 ## 原始来源
 
-- [传销头目出狱办书院打孩子 当地通报](https://www.baidu.com/s?wd=%E4%BC%A0%E9%94%80%E5%A4%B4%E7%9B%AE%E5%87%BA%E7%8B%B1%E5%8A%9E%E4%B9%A6%E9%99%A2%E6%89%93%E5%AD%A9%E5%AD%90+%E5%BD%93%E5%9C%B0%E9%80%9A%E6%8A%A5&sa=fyb_news&rsv_dl=fyb_news)
+- [桑拿天什么时候结束](https://www.toutiao.com/trending/7669671430032900123/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227669671430032900123%22%2C%22hot_board_impr_id%22%3A%222026080616021730CF177C30D638FBF460%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 656e2ed8dced43ba25ca -->
+<!-- content-fingerprint: 6bb23d796bf3770a3914 -->
