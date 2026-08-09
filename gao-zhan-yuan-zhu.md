@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 曾舜晞唱《清风微微》
+# 150元车上过夜费到底谁被做局了
 
-> 来源：今日头条热榜 · 排名：第 17 位 · 热度：8569689 · 分类：新事件上榜 · 更新：2026-08-09T08:02:02+08:00
+> 来源：百度热搜 · 排名：第 17 位 · 热度：6178704 · 更新：2026-08-09T12:48:10+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“曾舜晞唱《清风微微》”位列第 17 位，公开热度指标为 8569689，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“150元车上过夜费到底谁被做局了”位列第 17 位，公开热度指标为 6178704。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：7月27日，重庆游客王先生一行在新疆伊犁伊美臻选酒店因房源紧张，两名同行女士被迫在车内过夜，离店时被收取150元“车上过夜费”。事件最初被指为酒店宰客，但后续酒店方和官方调查显示，游客一行多人占用酒店设施并主动提出付费，费用实为综合场地使用费。当地监管部门认定收费无依据，已责令退款并赔偿。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `新事件上榜`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [网传DeepSeek V4 Flash完成任务后写了个游戏玩一上午，是真的吗？为什么会出现这样的现象？](xiong-you-cheng-zhu.md)
-- [不要“做”挑战？（第二十一期）](yun-chou-wei-wo.md)
-- [弟弟一句“不丢脸” 听障姐姐泪崩](shen-mou-yuan-lv.md)
-- [AI帮你开发以前要花钱的功能](ming-cha-qiu-hao.md)
+- [苹果官网删除千问使用手册](xiong-you-cheng-zhu.md)
+- [武契奇会见泽连斯基有何意图](yun-chou-wei-wo.md)
+- [2026 上半年国内手机销量 TOP30 出炉，苹果包揽前三华为领跑国产，哪些品牌的表现值得关注？](shen-mou-yuan-lv.md)
+- [奶猫：完辣，是天崩开局！](ming-cha-qiu-hao.md)
 
 ## 站内推荐
 
 - [一周“靓”数](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [台风白海豚实时路径](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [网络谣言的3种典型“伪装套路”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [博主：俄军攻破奥列霍夫两翼](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [《楚门的世界》中，妻子既然不爱楚门为什么反复提及要与楚门生一个孩子？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [台风白海豚到哪了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [梁文锋王兴兴谁更需要谁](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [谢霆锋演唱会隔空祝王菲生日快乐](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [王艺迪2-4不敌张本美和止步4强](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [在贵州按猪遇见羡慕的婚礼](http://www.movie.hkepx.cn/movie/7491355.htm)
-- [台风将至有超市叶菜肉3小时售罄](http://www.movie.hkepx.cn/movie/6352008.htm)
-- [在洛杉矶喝200%糖蜜雪冰城，吃全球最古早麦当劳，有不胖的风险吗](http://www.play.hengshemaoyi.cn/kongbu/7644353.htm)
-- [时停/欧拉！达摩空条承太郎皮肤，三形态白金之星打穿峡谷！自制联动皮肤特效！](http://www.daogukj.com/ywhitats/)
-- [成毅雨中跪下和粉丝合影](http://www.movie.hkepx.cn/movie/3484420.htm)
-- [36岁男演员成景区NPC后人气爆棚](http://www.movie.hkepx.cn/movie/9834457.htm)
-- [《全职猎人》中，贫者的蔷薇算不算机械降神？](http://www.daogukj.com/7853746)
-- [比亚迪纯电 K-car「海獭」Racco 在日本获超 700 辆订单，这对其出海战略意味着什么？](http://www.daogukj.com/fwtacuny/)
-- [经常半夜醒要排查6种疾病](http://www.play.hengshemaoyi.cn/kongbu/1303344.htm)
-- [游客称睡私家车被酒店收150元过夜费，酒店回应费用涉及停车、使用厨具及衣物清洗等，如何看待此事？](http://www.movie.hkepx.cn/movie/9793548.htm)
-- [王菲生日戴了老王帽](http://www.movie.hkepx.cn/xiju/5225700.htm)
-- [怪兽中 出了一个奥特曼的卧底](http://www.play.hengshemaoyi.cn/xiju/1079547.htm)
-- [身体出现这几个信号可能是肝在求救](http://www.daogukj.com/cppelcpa/)
-- [长期穿碳板鞋的受害者出现了](http://www.play.hengshemaoyi.cn/xiju/9936698.htm)
-- [150元车上过夜费到底谁被做局了](http://www.play.hengshemaoyi.cn/xiju/3875070.htm)
-- [台风白海豚到哪了](http://www.play.hengshemaoyi.cn/xiju/9037846.htm)
-- [原北京军区副司令员李永金逝世](http://www.play.hengshemaoyi.cn/xiju/5500139.htm)
-- [T1 官宣上调二队打野 Painter 首战 HLE，Oner 替补，如何评价此次换人？](http://www.movie.hkepx.cn/movie/3660898.htm)
-- [这些燃气使用“偏方”千万别信](http://www.play.hengshemaoyi.cn/xiju/4097066.htm)
-- [“那些只打高端局的神级串烧”](http://www.daogukj.com/3797954)
-- [刘亦菲下沉市场路人缘](http://www.movie.hkepx.cn/movie/1081634.htm)
-- [“玉兔精”李玲玉回应网友模仿](http://www.play.hengshemaoyi.cn/kongbu/6230935.htm)
-- [电影八仙](http://www.movie.hkepx.cn/xiju/6125548.htm)
-- [你心目中最好的十款单机游戏是什么？](http://www.play.hengshemaoyi.cn/xiju/0444256.htm)
-- [好像给麻辣烫店的脸太多了](http://www.play.hengshemaoyi.cn/kongbu/3739402.htm)
-- [以媒称伊朗最高领袖被紧急送医，真实性如何？会怎样影响当前局势？](http://www.daogukj.com/4846112)
-- [台风白海豚](http://www.play.hengshemaoyi.cn/kongbu/6216021.htm)
-- [住宅低频噪音现场溯源-山东4家](http://www.play.hengshemaoyi.cn/xiju/2439055.htm)
-- [男子承认出轨20万赠与第三者追不回](http://www.movie.hkepx.cn/xiju/9305926.htm)
-- [孙子考取上海交大 爷爷感谢亲家母](http://www.daogukj.com/3174256)
-- [白海豚将正面袭击贯穿浙江](http://www.movie.hkepx.cn/xiju/7583013.htm)
-- [在东方明珠玩100人躲猫猫！奖金10万元](http://www.daogukj.com/8189876)
-- [于东来8月5日官宣：2030年后停止所有经营项目发展，转型「学校式企业」，这种打法在商业上站得住吗？](http://www.movie.hkepx.cn/xiju/6446029.htm)
-- [央媒：用Token还是词元事关科技话语权](http://www.movie.hkepx.cn/movie/5734451.htm)
-- [《楚门的世界》中，妻子既然不爱楚门为什么反复提及要与楚门生一个孩子？](http://www.movie.hkepx.cn/movie/8002281.htm)
-- [AI帮你开发以前要花钱的功能](http://www.daogukj.com/7860194)
-- [如何评价超前点映中，由文牧野执导、沈腾领衔主演的电影《欢迎来龙餐馆》？](http://www.movie.hkepx.cn/movie/8408075.htm)
-- [金价猛涨踏空的人哭麻了](http://www.play.hengshemaoyi.cn/xiju/8943117.htm)
-- [于东来称要关闭营业 24 年的生活广场店，每一个项目都是国际一流的品质，达不到的都关了，如何看待此事？](http://www.play.hengshemaoyi.cn/xiju/6486531.htm)
-- [百花奖](http://www.play.hengshemaoyi.cn/kongbu/5235529.htm)
-- [孙子考取上海交大 爷爷高情商答谢](http://www.movie.hkepx.cn/movie/0595206.htm)
-- [陕西省委书记观摩直播同董宇辉交流](http://www.movie.hkepx.cn/movie/8425375.htm)
-- [改画哪有不疯的！（第26期）](http://www.daogukj.com/4621288)
-- [今年前 7 月我国货物贸易进出口总值 30.13 万亿元，同比增长 17.3% ，如何看待这一数据？](http://www.movie.hkepx.cn/movie/1333265.htm)
-- [黄子韬徐艺洋直播互扇巴掌](http://www.daogukj.com/4564701)
-- [伊总统：伊朗要学中国做好自己的事](http://www.daogukj.com/zedewqov/)
-- [你敢坦然穿着几十块钱的普通衣服正常去公司上班吗？](http://www.daogukj.com/flvtssow/)
-- [三警齐发！多地10级以上雷暴大风](http://www.movie.hkepx.cn/movie/2764293.htm)
-- [不要“做”挑战？（第二十一期）](http://www.movie.hkepx.cn/xiju/9847609.htm)
-- [博主：俄军攻破奥列霍夫两翼](http://www.play.hengshemaoyi.cn/kongbu/4804429.htm)
+- [永和豆浆创始人林炳生曾说爱拼才会赢](http://www.movie.hkepx.cn/movie/7491355.htm)
+- [白海豚10级风圈](http://www.movie.hkepx.cn/movie/6352008.htm)
+- [黄子韬徐艺洋直播互扇巴掌](http://www.play.hengshemaoyi.cn/kongbu/7644353.htm)
+- [“热管理”已成AI相关核心技术了吗](http://www.daogukj.com/ywhitats/)
+- [2026 暑期档国产片频繁提档、撤档，进口片档期却基本不变，可能有哪些原因？频繁调整档期的影响有多大？](http://www.movie.hkepx.cn/movie/3484420.htm)
+- [白海豚生命史是普通台风3倍以上](http://www.movie.hkepx.cn/movie/9834457.htm)
+- [全上海都在偶遇赵丽颖](http://www.daogukj.com/7853746)
+- [如何看待日本一医院错把患者脑部当肿瘤切除？](http://www.daogukj.com/fwtacuny/)
+- [在东方明珠玩100人躲猫猫！奖金10万元](http://www.play.hengshemaoyi.cn/kongbu/1303344.htm)
+- [十六人豪宅#mc #我的世界 #建筑 #豪宅 #生存小建筑](http://www.movie.hkepx.cn/movie/9793548.htm)
+- [《天才女友》制片人发文：忍不下去了](http://www.movie.hkepx.cn/xiju/5225700.htm)
+- [【独家】牧神记 第95集 皇帝“驾崩”](http://www.play.hengshemaoyi.cn/xiju/1079547.htm)
+- [这种手机壳可能是医疗垃圾做的](http://www.daogukj.com/cppelcpa/)
+- [白海豚最大可能登陆地点](http://www.play.hengshemaoyi.cn/xiju/9936698.htm)
+- [台风白海豚最大可能在此登陆](http://www.play.hengshemaoyi.cn/xiju/3875070.htm)
+- [天才女友总制片人怎么了](http://www.play.hengshemaoyi.cn/xiju/9037846.htm)
+- [以军士兵把枪口对准中国记者](http://www.play.hengshemaoyi.cn/xiju/5500139.htm)
+- [雪佛兰正式停售中国市场，如何评价这个汽车品牌在华的21年？](http://www.movie.hkepx.cn/movie/3660898.htm)
+- [录取到浙大农学，我应该选择复读还是进大学转专业？](http://www.play.hengshemaoyi.cn/xiju/4097066.htm)
+- [王艺迪2比4张本美和](http://www.daogukj.com/3797954)
+- [在贵州按猪遇见羡慕的婚礼](http://www.movie.hkepx.cn/movie/1081634.htm)
+- [上海暴雨红色预警](http://www.play.hengshemaoyi.cn/kongbu/6230935.htm)
+- [滚筒洗衣机自爆 满筒碎玻璃渣](http://www.movie.hkepx.cn/xiju/6125548.htm)
+- [孕妇生病 硬抗](http://www.play.hengshemaoyi.cn/xiju/0444256.htm)
+- [上半年国内手机销量TOP30出炉](http://www.play.hengshemaoyi.cn/kongbu/3739402.htm)
+- [假如你是小馒头](http://www.daogukj.com/4846112)
+- [披荆斩棘阵容官宣](http://www.play.hengshemaoyi.cn/kongbu/6216021.htm)
+- [经常半夜醒要排查6种疾病](http://www.play.hengshemaoyi.cn/xiju/2439055.htm)
+- [妈妈，你不能单挑大棕熊，坐坦克打枪吧！？！](http://www.movie.hkepx.cn/xiju/9305926.htm)
+- [费大厨小炒肉比赛 没人试吃](http://www.daogukj.com/3174256)
+- [工人上班发病抢救后离世 法院判了](http://www.movie.hkepx.cn/xiju/7583013.htm)
+- [发烧梗](http://www.daogukj.com/8189876)
+- [如何看待华硕将海外用户已付 4607 美元的 5090 订单强行砍单，并随后提价至 5090 美元？](http://www.movie.hkepx.cn/xiju/6446029.htm)
+- [哈哈哈哈哈哈哈！！！](http://www.movie.hkepx.cn/movie/5734451.htm)
+- [王艺迪2-4不敌张本美和止步4强](http://www.movie.hkepx.cn/movie/8002281.htm)
+- [奶猫：完辣，是天崩开局！](http://www.daogukj.com/7860194)
+- [台风白海豚 10 级风圈触及浙江台州部分地区，中央气象台三预警齐发，你那边天气如何？](http://www.movie.hkepx.cn/movie/8408075.htm)
+- [王从天降](http://www.play.hengshemaoyi.cn/xiju/8943117.htm)
+- [如何看待贵州网红金蝉子账号发布讣告，称外号「老表」的打工网红彭仕运在老家游泳时不幸溺水身亡？](http://www.play.hengshemaoyi.cn/xiju/6486531.htm)
+- [你会去电影院看沈腾的主旋律喜剧大片《欢迎来龙餐馆》吗?票房能破50亿吗?](http://www.play.hengshemaoyi.cn/kongbu/5235529.htm)
+- [你心目中最好的十款单机游戏是什么？](http://www.movie.hkepx.cn/movie/0595206.htm)
+- [[我的世界怪物学院] 逗逗小乐魂](http://www.movie.hkepx.cn/movie/8425375.htm)
+- [上海中心城区暴雨预警由橙变红](http://www.daogukj.com/4621288)
+- [跟风评论随意脑补？杜绝二次造谣](http://www.movie.hkepx.cn/movie/1333265.htm)
+- [怪兽中 出了一个奥特曼的卧底](http://www.daogukj.com/4564701)
+- [曹颖儿子首次演长剧](http://www.daogukj.com/zedewqov/)
+- [拜登前列腺癌恶化](http://www.daogukj.com/flvtssow/)
+- [最高级别！台风红色预警](http://www.movie.hkepx.cn/movie/2764293.htm)
+- [武契奇会见泽连斯基有何意图](http://www.movie.hkepx.cn/xiju/9847609.htm)
+- [谢霆锋演唱会隔空祝王菲生日快乐](http://www.play.hengshemaoyi.cn/kongbu/4804429.htm)
 
 </details>
 
 ## 原始来源
 
-- [曾舜晞唱《清风微微》](https://www.toutiao.com/trending/7670871376995237914/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227670871376995237914%22%2C%22hot_board_impr_id%22%3A%2220260809080201E7B2E21873B22A7F757D%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [150元车上过夜费到底谁被做局了](https://www.baidu.com/s?wd=150%E5%85%83%E8%BD%A6%E4%B8%8A%E8%BF%87%E5%A4%9C%E8%B4%B9%E5%88%B0%E5%BA%95%E8%B0%81%E8%A2%AB%E5%81%9A%E5%B1%80%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 17db61c10bc0f045ef7f -->
+<!-- content-fingerprint: a45e97cf22ddae6b3edc -->
