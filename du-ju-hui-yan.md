@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 为什么电视里假扮夫妻的卧底往往会成了真夫妻？
+# 史上最难！只有一块黑曜石该如何通关？
 
-> 来源：知乎热榜 · 排名：第 18 位 · 热度：152 万热度 · 分类：问答 · 更新：2026-08-11T10:49:17+08:00
+> 来源：哔哩哔哩热门 · 排名：第 18 位 · 热度：2416688 · 分类：单机游戏 · 更新：2026-08-11T12:13:42+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“为什么电视里假扮夫妻的卧底往往会成了真夫妻？”位列第 18 位，公开热度指标为 152 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“史上最难！只有一块黑曜石该如何通关？”位列第 18 位，公开热度指标为 2416688，榜单分类为“单机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：鸣谢： @阿玮是人 @巫山云玩家 @肆柒_sIqI @吃年糕的安sir @节操Pro 提供灵感和指导 @无处可去的愚者 @文绪 @野生的矿泉水 @花野大猫猫 @阿怪说不来话 提供素材 ———————————————————————————— 啊啊啊啊啊啊！终于做出来了，从五月底到现在，打磨好久才端上来，希望各位看的满意 另外回答几个问题 1.不会断更，每个系列都会玩到结束，答应各位的圆明园第二期也会做的 2.up即将步入高三，更新将会减少，不会轻易整这么大的活了，但是我会一直活着的
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `单机游戏`
 
 ## 相关热点
 
-- [王健林现在怎么样了? 万达什么情况?](bie-ju-jiang-xin.md)
-- [男子将岳母31万转给前妻之子被判返还](qiao-duo-tian-gong.md)
-- [短剧演员王译磊谈参加百花奖感受](gui-fu-shen-gong.md)
-- [河南平顶山一貌似张雪峰的烧烤哥在网上火了，你有哪些感慨和触动？](jin-shang-tian-hua.md)
+- [这个世界真是个巨大的草台班子](bie-ju-jiang-xin.md)
+- [曝俄最大石化厂被乌克兰无人机击中](qiao-duo-tian-gong.md)
+- [为什么走西口保留了很大一部分晋语，而闯关东却没有保留太多山东话？](gui-fu-shen-gong.md)
+- [2026和平精英刺激之夜完整高清回放](jin-shang-tian-hua.md)
 
 ## 站内推荐
 
-- [因儿子说「大不了送外卖」，爸爸三伏天带他送外卖，竟意外修复父子关系，这一实践式教育怎么样？值得效仿吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [如何看待《哪吒之魔童闹海》斩获第 38 届大众电影百花奖最佳影片，成为百花奖历史上首部动画最佳影片？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [中国网红「雅典娜」确认遇害，被闺蜜骗去菲律宾后被绑架，哪些细节值得关注？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [前有沈腾后有王宝强，都在百花奖挂0票，喜剧演员真的不容易拿主流奖项吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [如何评价《欢迎来龙餐馆》这部电影？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [易烊千玺、卫诗雅分封影帝、影后，《哪吒 2》获最佳影片，如何评价第 38 届大众电影百花奖获奖名单？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
 - [张本兄妹同时包揽 WTT 横滨冠军赛单打冠军，会对国乒的霸主地位有影响吗？国乒到底怎么了？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [不看后悔！海绵宝宝主题汉堡店 这装修下血本了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [黄金](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [伊朗总统称与最高领袖会谈七八个小时](http://www.daogukj.com/7203067)
-- [少年强抱女友跳河自己上岸女友溺亡](http://www.daogukj.com/gowgjlqg/)
-- [哥伦比亚因强震进入国家灾难状态](http://www.daogukj.com/7329084)
-- [“一种开头一个结局，一部动漫一场青春”#02](http://www.daogukj.com/tafakdgo/)
-- [直击哥伦比亚强震现场](http://www.play.hengshemaoyi.cn/kongbu/6822731.htm)
-- [不看后悔！海绵宝宝主题汉堡店 这装修下血本了](http://www.movie.hkepx.cn/movie/9763774.htm)
-- [曝俄最大石化厂被乌克兰无人机击中](http://www.movie.hkepx.cn/movie/5499528.htm)
-- [女子花3万全款购入宝鸡40平米住房](http://www.movie.hkepx.cn/xiju/2091376.htm)
-- [委内瑞拉强震死亡人数上升至6301人](http://www.movie.hkepx.cn/movie/3384485.htm)
-- [豆包回应“推荐酒店抽取12%佣金”](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
-- [优秀影片 导演3票](http://www.daogukj.com/0541072)
-- [凶手父母多次热情招待溺亡女孩父母](http://www.daogukj.com/jyvgfrcg/)
-- [每天通勤骑车 60 公里身体会不会累垮？](http://www.daogukj.com/3891590)
-- [男子将岳母31万转给前妻之子被判返还](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
-- [男子瞒着妻子5年给父母转账50万](http://www.movie.hkepx.cn/xiju/8805715.htm)
-- [王健林现在怎么样了? 万达什么情况?](http://www.daogukj.com/5398424)
-- [印度人为何拼命向外移民](http://www.movie.hkepx.cn/xiju/6277332.htm)
-- [沈腾引爆票房 影视龙头2连板](http://www.movie.hkepx.cn/xiju/7873556.htm)
-- [姜小柔去世](http://www.play.hengshemaoyi.cn/xiju/9370456.htm)
-- [伊朗：若乌不赔偿 伊朗就自己动手了](http://www.daogukj.com/nzepuewx/)
-- [豆包否认推荐酒店抽取 12% 佣金，称仅在订单成交后收取渠道服务费，字节在打哪些商业算盘？](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
-- [童年射击游戏变成这样，真不怕我玩疯啊！](http://www.movie.hkepx.cn/movie/0752879.htm)
-- [如何评价《欢迎来龙餐馆》这部电影？](http://www.movie.hkepx.cn/xiju/3642771.htm)
-- [江浙沪多地特大暴雨破纪录](http://www.daogukj.com/5617601)
-- [于东来回应关闭胖东来生活广场店，因早年租约失误造成租户租金失衡，门店盈利上亿仍闭店，如何看待他的选择？](http://www.daogukj.com/8998145)
-- [新希望⚡鸿蒙游戏崛起：超帧+秒开畅爽拉满！](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
-- [如何看待《哪吒之魔童闹海》斩获第 38 届大众电影百花奖最佳影片，成为百花奖历史上首部动画最佳影片？](http://www.movie.hkepx.cn/xiju/8984384.htm)
-- [iPhone18Pro等7款新品彻底泄密](http://www.movie.hkepx.cn/xiju/1180114.htm)
-- [【2026年8月键盘推荐】有人说，磁轴已死，机械当立？键盘到底是磁轴好还是机械好？多种配列、各种价格全覆盖！SKN/ATK/联想/渴创/ROG/迈从/狼蛛](http://www.movie.hkepx.cn/movie/0847312.htm)
-- [已严肃掌握逛展焚诀！😉](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
-- [女子被拐关地下室被虐8年](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
-- [工业革命的发生是小概率事件吗？](http://www.movie.hkepx.cn/xiju/6763243.htm)
+- [蔡磊留给儿子最酷的告白](http://www.daogukj.com/7203067)
+- [女子被拐关地下室被虐8年](http://www.daogukj.com/gowgjlqg/)
+- [警方介入调查独闯南太行女子死因](http://www.daogukj.com/7329084)
+- [“两广人的家具belike：”【Monody-混响】【两广家具の小曲】](http://www.daogukj.com/tafakdgo/)
+- [解放军特种兵部署台海一线](http://www.play.hengshemaoyi.cn/kongbu/6822731.htm)
+- [黄金](http://www.movie.hkepx.cn/movie/9763774.htm)
+- [如何看待GPT-6 （Astra）？](http://www.movie.hkepx.cn/movie/5499528.htm)
+- [医生问诊27岁女子 妈妈在旁不停打断](http://www.movie.hkepx.cn/xiju/2091376.htm)
+- [伊朗：若乌不赔偿 伊朗就自己动手了](http://www.movie.hkepx.cn/movie/3384485.htm)
+- [这就是摆盘的重要性](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
+- [胖东来发布顾客间侵权行为管理公示](http://www.daogukj.com/0541072)
+- [百妖谱官宣开机](http://www.daogukj.com/jyvgfrcg/)
+- [曾经的钢琴为雅，现在怎么感觉没什么人愿意练钢琴了？](http://www.daogukj.com/3891590)
+- [曝俄最大石化厂被乌克兰无人机击中](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
+- [不满房东涨租 于东来自掏65亿建商场](http://www.movie.hkepx.cn/xiju/8805715.htm)
+- [这个世界真是个巨大的草台班子](http://www.daogukj.com/5398424)
+- [如何评价 Anthropic 宣布将黎曼猜想的已知下界从 41.6% 提高到了 67.2%？](http://www.movie.hkepx.cn/xiju/6277332.htm)
+- [广东省原省长朱森林逝世 享年96岁](http://www.movie.hkepx.cn/xiju/7873556.htm)
+- [睡车里被酒店收150元住宿费事件反转](http://www.play.hengshemaoyi.cn/xiju/9370456.htm)
+- [委内瑞拉强震死亡人数上升至6301人](http://www.daogukj.com/nzepuewx/)
+- [为什么那么多年轻人得了尿毒症？](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
+- [“一种开头一个结局，一部动漫一场青春”#02](http://www.movie.hkepx.cn/movie/0752879.htm)
+- [职场聊天句句以「哈」结尾，有人觉得礼貌，有人觉得敷衍，你怎么看待？为啥会有这种表达习惯？](http://www.movie.hkepx.cn/xiju/3642771.htm)
+- [上海暴雨中男子俯身在水里徒手排涝](http://www.daogukj.com/5617601)
+- [费大厨撤下「全国小炒肉大王」 宣传，上菜口号更换为 「精选黑猪肉、专业大厨炒」，此举带来的影响有多大？](http://www.daogukj.com/8998145)
+- [双马尾入侵《逆战：未来》？](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
+- [如何评价《欢迎来龙餐馆》这部电影？](http://www.movie.hkepx.cn/xiju/8984384.htm)
+- [白海豚突然大拐弯](http://www.movie.hkepx.cn/xiju/1180114.htm)
+- [7款挂烫机横向测评！！超详细测试！！](http://www.movie.hkepx.cn/movie/0847312.htm)
+- [湖北宜昌：全面进入战时状态](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
+- [陈雪凝疑似生孩子了](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
+- [《英文最差の一集》](http://www.movie.hkepx.cn/xiju/6763243.htm)
 - [央视首次曝光 055 遵义舰演习遭潜艇伏击「击沉」，这一操作的意图是什么？算暴露055的短板吗？](http://www.movie.hkepx.cn/xiju/9186695.htm)
-- [白海豚突然大拐弯](http://www.daogukj.com/pxvooxke/)
-- [史上最难！只有一块黑曜石该如何通关？](http://www.movie.hkepx.cn/xiju/1116357.htm)
-- [伊朗称美以是造成中东地区动荡根源](http://www.movie.hkepx.cn/xiju/0923150.htm)
+- [李嘉诚又要套现了](http://www.daogukj.com/pxvooxke/)
+- [你的手机，还好嘛？8月暑期手机散热器推荐，夏天给手机配个专属空调！全品类多价位段，带你找到最适合自己的手机散热器](http://www.movie.hkepx.cn/xiju/1116357.htm)
+- [阿维塔高管称不认为和华为的合作模式是「必要项」，阿维塔具备差异化的能力，如何看待这一表态？](http://www.movie.hkepx.cn/xiju/0923150.htm)
 - [张本兄妹同时包揽 WTT 横滨冠军赛单打冠军，会对国乒的霸主地位有影响吗？国乒到底怎么了？](http://www.daogukj.com/wwpryopq/)
-- [上海偶遇Bin](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
-- [多地公安机关打掉1000多个犯罪团伙](http://www.movie.hkepx.cn/xiju/6581777.htm)
-- [不满房东涨租 于东来自掏65亿建商场](http://www.daogukj.com/ydetypas/)
-- [母子三人想去郴州结果到了彬州](http://www.movie.hkepx.cn/xiju/1440565.htm)
-- [小狗被医院宣布死亡后自己跑回家](http://www.movie.hkepx.cn/movie/0748348.htm)
-- [胖东来发布顾客间侵权行为管理公示](http://www.daogukj.com/7529047)
-- [蔡磊留给儿子最酷的告白](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
-- [《人民の少爷》](http://www.movie.hkepx.cn/movie/9462286.htm)
-- [全屋清洁一步到位选谁？科沃斯、石头旗舰多场景实测对比](http://www.movie.hkepx.cn/xiju/6577988.htm)
-- [夫妻结婚40年都AA制 丈夫在家装监控](http://www.movie.hkepx.cn/movie/1711969.htm)
+- [曾经月销5万的车现在卖不动了](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
+- [小狗被医院宣布死亡后自己跑回家](http://www.movie.hkepx.cn/xiju/6581777.htm)
+- [今年“984.5高校”火了](http://www.daogukj.com/ydetypas/)
+- [马丽夫妇包70场支持沈腾新片](http://www.movie.hkepx.cn/xiju/1440565.htm)
+- [江浙沪多地特大暴雨破纪录](http://www.movie.hkepx.cn/movie/0748348.htm)
+- [王凯百花奖唯一独唱表演](http://www.daogukj.com/7529047)
+- [李嘉诚又要售卖海外资产](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
+- [[营销漫谈] 无效决斗？大疆影石超长预热漫谈](http://www.movie.hkepx.cn/movie/9462286.htm)
+- [《人民の少爷》](http://www.movie.hkepx.cn/xiju/6577988.htm)
+- [易烊千玺回应最年轻双料影帝](http://www.movie.hkepx.cn/movie/1711969.htm)
 - [靠这锅沙子烤玉米，他在印度街头撑起了尊严](http://www.movie.hkepx.cn/movie/1556531.htm)
-- [长江十年行](http://www.play.hengshemaoyi.cn/kongbu/3467795.htm)
-- [陈思诚在家气哭了](http://www.movie.hkepx.cn/movie/2027222.htm)
+- [两部门紧急预拨1.8亿元救灾资金](http://www.play.hengshemaoyi.cn/kongbu/3467795.htm)
+- [外国记者：在中国提前窥见“22世纪”](http://www.movie.hkepx.cn/movie/2027222.htm)
 
 </details>
 
 ## 原始来源
 
-- [为什么电视里假扮夫妻的卧底往往会成了真夫妻？](https://www.zhihu.com/question/653625916)
+- [史上最难！只有一块黑曜石该如何通关？](https://b23.tv/BV1dcuV6HEig)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 43e0b727512bfd756414 -->
+<!-- content-fingerprint: d41a6d3f38c87748ba05 -->
