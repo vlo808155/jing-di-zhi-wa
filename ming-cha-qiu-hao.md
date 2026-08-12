@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 李嘉诚再抛售海外资产，估值最多为 166 亿港元，如何理解这一举动？长江实业为何频繁出售海外资产？
+# 深圳持续高温小心蛇出没
 
-> 来源：知乎热榜 · 排名：第 18 位 · 热度：99 万热度 · 分类：问答 · 更新：2026-08-12T11:12:48+08:00
+> 来源：今日头条热榜 · 排名：第 18 位 · 热度：2771614 · 分类：新事件上榜 · 更新：2026-08-12T13:04:25+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“李嘉诚再抛售海外资产，估值最多为 166 亿港元，如何理解这一举动？长江实业为何频繁出售海外资产？”位列第 18 位，公开热度指标为 99 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“深圳持续高温小心蛇出没”位列第 18 位，公开热度指标为 2771614，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：李嘉诚家族再度启动出售海外资产，这一次是澳洲能源企业EDL Energy。 根据澳洲当地财经媒体消息，李嘉诚家族旗下长江基建（长建）已委托摩根士丹利及巴克莱，启动出售旗下澳洲可持续分布式能源生产商EDL Energy的持股，估值预计介于20亿至30亿澳元，折合约110.8亿至166.6亿港元。 公开资料显示，EDL Energy主要从事洁净及可再生电力、可再生天然气及远程可再生能源业务，主要客户包括嘉能可及力拓等。2025年，EDL Energy管理层调整后收入为6.9亿澳元（约36.6亿港元），税息折旧及摊销前利润（EBITDA）约2.7亿澳元（近15
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`今日头条热榜` `实时热搜` `热点资讯` `新事件上榜`
 
 ## 相关热点
 
-- [这已经不是一般的变态了，必须加大电量](jian-wei-zhi-zhu.md)
-- [马丽 沈腾榜一大姐](du-ju-hui-yan.md)
-- [国行苹果AI支持机型](bie-ju-jiang-xin.md)
-- [印度为何突然对华示好](qiao-duo-tian-gong.md)
+- [如何评价米哈游旗下AI互动陪伴产品《BSide: Olivia Lin》宣告停止运营？](jian-wei-zhi-zhu.md)
+- [Die For You×老牧师乐队](du-ju-hui-yan.md)
+- [“我听交警的”涉事女子道歉赔偿](bie-ju-jiang-xin.md)
+- [岳云鹏说打羽毛球瘦了20斤](qiao-duo-tian-gong.md)
 
 ## 站内推荐
 
-- [高钾晚餐可以让人睡得更香](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [茅台的红丝带原来是这样用的](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [印度一保安强奸女生被捕后求原谅](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [普通人就算有钱，为什么慎重购买别墅？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [《英文最差の一集》](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [男子被炸街吵醒刺死骑行辅警获死刑](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [男子从硅谷回光谷创业一年营收超5亿](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [上海警方处置11起涉台风谣言](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [盲人报警求助称摸到国徽就有安全感](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [今年「984.5 高校」升温了吗？报考这些新型研究型大学的优劣势都有哪些？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [NBA公布26-27赛季常规赛赛程，詹姆斯连续八年打揭幕战，这体现了他在联盟中怎样的地位？](http://www.daogukj.com/4857502)
-- [演员贾冰参加朋友饭局被偷拍，网传视频中有爆粗口、抽烟喝酒等行为，是真的吗？为什么反而被网友力挺？](http://www.daogukj.com/fxomsuem/)
-- [这个时代我们该追什么样的星](http://www.play.hengshemaoyi.cn/xiju/4881423.htm)
-- [“我听交警的”涉事女子道歉赔偿](http://www.movie.hkepx.cn/xiju/2224998.htm)
-- [体验“上新”点亮文旅消费新空间](http://www.daogukj.com/xislksiq/)
-- [暑期档 沈腾效应](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
-- [男子被炸街吵醒刺死骑行辅警](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
-- [东莞招教师将其称作「课时服务人员」，网友质疑老师变为服务者，如何看待这一称呼的转变？会弱化教师身份吗？](http://www.movie.hkepx.cn/xiju/3925704.htm)
-- [为什么国内大学都不愿意改善学生的住宿条件，比如四人间升级为双人间甚至单人间？](http://www.daogukj.com/zjqbftsa/)
-- [业内认为蒋奇明是下一个大演员](http://www.daogukj.com/odtszjmj/)
-- [王宝强 Hello树先生](http://www.movie.hkepx.cn/movie/8285885.htm)
-- [印度一保安强奸女生被捕后求原谅](http://www.movie.hkepx.cn/xiju/1770369.htm)
-- [高钾晚餐可以让人睡得更香](http://www.daogukj.com/8527580)
-- [984.5高校火了](http://www.daogukj.com/9299314)
-- [俄士兵用树枝抽下乌无人机](http://www.daogukj.com/5812229)
-- [忙到晕倒炸鸡店员工已结算工资离职](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
-- [孕妇胎监异常被安排4天后手术结果胎儿死亡，医院40余次篡改病历，法院判医院赔偿 14 万，如何解读？](http://www.daogukj.com/5338633)
-- [iPhone18Pro相机3大升级](http://www.movie.hkepx.cn/xiju/7272064.htm)
-- [这已经不是一般的变态了，必须加大电量](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
-- [河南暴雨红色预警](http://www.daogukj.com/3351222)
-- [步惊云脱口秀 杀猪盘](http://www.play.hengshemaoyi.cn/xiju/0501282.htm)
-- [不要错过今晚的流星雨](http://www.movie.hkepx.cn/movie/7142641.htm)
-- [普通人就算有钱，为什么慎重购买别墅？](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
-- [胖东来公布侵犯员工尊严案例，顾客驾车顶撞员工被行拘、掌掴员工被起诉，员工获上万元赔偿，如何看待此事？](http://www.movie.hkepx.cn/xiju/5072930.htm)
-- [今年百花奖王宝强 0 票，对此你的看法是什么？](http://www.daogukj.com/mkxvsuhn/)
-- [赵一鸣4块牛肉干64元复称仅17元](http://www.daogukj.com/9044973)
-- [徐梦洁参加活动被老同学偶遇了](http://www.daogukj.com/6197852)
-- [2026和平精英刺激之夜完整高清回放](http://www.daogukj.com/ryrqoiii/)
-- [一面日全食一面流星雨](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
+- [陈俊生150万年薪让罗子君买8万的鞋](http://www.daogukj.com/4857502)
+- [31省上半年财政收入出炉](http://www.daogukj.com/fxomsuem/)
+- [新业态激活日常消费市场](http://www.play.hengshemaoyi.cn/xiju/4881423.htm)
+- [台风浪卡生成](http://www.movie.hkepx.cn/xiju/2224998.htm)
+- [如何评价“我听交警的”一案中提起诉讼的小伙胜诉，被告被判公开道歉和赔偿经济损失？](http://www.daogukj.com/xislksiq/)
+- [穿了和搭了的区别](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
+- [多地试点：直升高中](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
+- [靠这锅沙子烤玉米，他在印度街头撑起了尊严](http://www.movie.hkepx.cn/xiju/3925704.htm)
+- [第一印象：毁掉一个人，为什么只需要0.1秒？](http://www.daogukj.com/zjqbftsa/)
+- [男子被炸街吵醒刺死骑行辅警](http://www.daogukj.com/odtszjmj/)
+- [德国两家人持斧头锤子街头混战](http://www.movie.hkepx.cn/movie/8285885.htm)
+- [上海警方处置11起涉台风谣言](http://www.movie.hkepx.cn/xiju/1770369.htm)
+- [男子被炸街吵醒刺死骑行辅警获死刑](http://www.daogukj.com/8527580)
+- [蜜雪冰城星巴克](http://www.daogukj.com/9299314)
+- [时代峰峻防泄露把五代套黑塑料袋](http://www.daogukj.com/5812229)
+- [这已经不是一般的变态了，必须加大电量](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
+- [恶心套路？情绪共振！细节夯爆！观众比男主先爱上女主！《花开锦绣》](http://www.daogukj.com/5338633)
+- [iPhone20Pro爆料](http://www.movie.hkepx.cn/xiju/7272064.htm)
+- [如何评价米哈游旗下AI互动陪伴产品《BSide: Olivia Lin》宣告停止运营？](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
+- [小咕嘎我真得控制一下你了](http://www.daogukj.com/3351222)
+- [乔治娜要求C罗办秘密婚礼](http://www.play.hengshemaoyi.cn/xiju/0501282.htm)
+- [300w粉百大区UP主开什么车？有山先生爱车首曝！](http://www.movie.hkepx.cn/movie/7142641.htm)
+- [盲人报警求助称摸到国徽就有安全感](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
+- [《影之刃零》预购开启，11分钟实机预告公开](http://www.movie.hkepx.cn/xiju/5072930.htm)
+- [7月汽车销量前10仅卡罗拉锐放 1 款燃油车，吉利星愿、零跑A10等持续热销，燃油车还有多大生存空间？](http://www.daogukj.com/mkxvsuhn/)
+- [高钾晚餐可以让人睡得更香](http://www.daogukj.com/9044973)
+- [A股“股王”、第二高价股双双大涨](http://www.daogukj.com/6197852)
+- [演员开始批量生产自己](http://www.daogukj.com/ryrqoiii/)
+- [《影之刃零》正式开启预售，标准版268元，甄子丹出演核心角色，11分钟实机视频全程高能，如何评价？](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
 - [8月12日地球将失重7秒系谣言](http://www.play.hengshemaoyi.cn/kongbu/7063878.htm)
-- [白海豚](http://www.movie.hkepx.cn/movie/2552102.htm)
-- [《原神》角色预告-「奥黛塔：天真的挽歌」](http://www.movie.hkepx.cn/xiju/2129564.htm)
-- [郭兰英逝世 享年97岁](http://www.daogukj.com/1731517)
-- [不看后悔！海绵宝宝主题汉堡店 这装修下血本了](http://www.daogukj.com/0178251)
-- [怎么看 DeepSeek 注册 Harness 公众号并选用黑鲸鱼 logo ？](http://www.movie.hkepx.cn/movie/2491274.htm)
-- [怎么看 Claude 将在新的 Claude 模型的生成文本里加入隐形水印？](http://www.daogukj.com/1710555)
-- [⚡泥 肘⚡](http://www.daogukj.com/iqnxgakx/)
-- [河南许昌：市民非必要不外出](http://www.daogukj.com/evhpdqcv/)
-- [第一印象：毁掉一个人，为什么只需要0.1秒？](http://www.movie.hkepx.cn/movie/9669872.htm)
-- [六公主力挺赵丽颖百花奖](http://www.play.hengshemaoyi.cn/xiju/7739320.htm)
-- [隔壁班来了个围棋酱！](http://www.movie.hkepx.cn/xiju/6624711.htm)
-- [媒体：哪吒票房换不来圈内人一次起立](http://www.movie.hkepx.cn/movie/0041132.htm)
-- [印度为何突然对华示好](http://www.movie.hkepx.cn/xiju/9486629.htm)
-- [百万粉丝网红姜小柔去世，年仅 24 岁，还有哪些信息值得关注？](http://www.movie.hkepx.cn/movie/9796335.htm)
-- [《阴阳师》×Vsinger丨联动限定角色洛天依情报公开](http://www.daogukj.com/0823826)
-- [高考444分考生回应被殡葬专业录取](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
-- [新业态激活日常消费市场](http://www.movie.hkepx.cn/movie/5397309.htm)
-- [靠这锅沙子烤玉米，他在印度街头撑起了尊严](http://www.daogukj.com/0899815)
-- [北京暴雨](http://www.play.hengshemaoyi.cn/xiju/2828553.htm)
-- [如何看待李嘉诚又一次大撤退](http://www.daogukj.com/cachqmkl/)
+- [48条活体蛇从鄂州花湖机场直飞美国](http://www.movie.hkepx.cn/movie/2552102.htm)
+- [C罗结婚5个孩子出席婚礼](http://www.movie.hkepx.cn/xiju/2129564.htm)
+- [河南暴雨](http://www.daogukj.com/1731517)
+- [高中的奢侈只是我的日常罢了...](http://www.daogukj.com/0178251)
+- [【咒术回战IF】高羽史彦:你觉得未来的英雄来救场会搞笑吗？](http://www.movie.hkepx.cn/movie/2491274.htm)
+- [深圳大学拟拿出5.3亿元，买下整栋商品房给学生当宿舍，背后有哪些考量？买商品房当宿舍会成为趋势吗？](http://www.daogukj.com/1710555)
+- [《阿嬷》导演看《龙餐馆》哭了好多次](http://www.daogukj.com/iqnxgakx/)
+- [被刺19岁辅警摩托车噪音达110分贝](http://www.daogukj.com/evhpdqcv/)
+- [中国风热词上新](http://www.movie.hkepx.cn/movie/9669872.htm)
+- [如何看待李嘉诚又一次大撤退](http://www.play.hengshemaoyi.cn/xiju/7739320.htm)
+- [如何看待 C 罗社媒晒婚戒官宣与乔治娜正式完婚，相恋十年低调举办私密婚礼？](http://www.movie.hkepx.cn/xiju/6624711.htm)
+- [男子酒后与女子亲密猝死家属索赔被驳](http://www.movie.hkepx.cn/movie/0041132.htm)
+- [岳云鹏说打羽毛球瘦了20斤](http://www.movie.hkepx.cn/xiju/9486629.htm)
+- [⚡泥 肘⚡](http://www.movie.hkepx.cn/movie/9796335.htm)
+- [李嘉诚再抛售海外资产，估值最多为 166 亿港元，如何理解这一举动？长江实业为何频繁出售海外资产？](http://www.daogukj.com/0823826)
+- [在非洲，我和死亡只隔了一扇车窗……](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
+- [体验“上新”点亮文旅消费新空间](http://www.movie.hkepx.cn/movie/5397309.htm)
+- [《原神》角色预告-「奥黛塔：天真的挽歌」](http://www.daogukj.com/0899815)
+- [郭兰英1994年将演唱版权无偿捐国家](http://www.play.hengshemaoyi.cn/xiju/2828553.htm)
+- [媒体：哪吒票房换不来圈内人一次起立](http://www.daogukj.com/cachqmkl/)
 
 </details>
 
 ## 原始来源
 
-- [李嘉诚再抛售海外资产，估值最多为 166 亿港元，如何理解这一举动？长江实业为何频繁出售海外资产？](https://www.zhihu.com/question/2070444805600047561)
+- [深圳持续高温小心蛇出没](https://www.toutiao.com/trending/7672195242166304777/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227672195242166304777%22%2C%22hot_board_impr_id%22%3A%2220260812130425F671F4F3EE87443F1706%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 5a718d243a9b7174a066 -->
+<!-- content-fingerprint: 600124c950a1c880f37e -->
