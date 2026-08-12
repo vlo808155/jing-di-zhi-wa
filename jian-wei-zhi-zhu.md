@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 男子找邻居哭穷 2个月借走1400万被拘
+# 特朗普挥不动的重拳
 
-> 来源：百度热搜 · 排名：第 18 位 · 热度：6083036 · 更新：2026-08-12T15:57:53+08:00
+> 来源：哔哩哔哩热门 · 排名：第 18 位 · 热度：576830 · 分类：人文历史 · 更新：2026-08-12T17:14:24+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“男子找邻居哭穷 2个月借走1400万被拘”位列第 18 位，公开热度指标为 6083036。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“特朗普挥不动的重拳”位列第 18 位，公开热度指标为 576830，榜单分类为“人文历史”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，上海一名男子以哭穷等名义，向楼下七旬独居老人孙阿姨借钱，两个月内骗取近1400万元，还偷拿前妻房产证用作抵押实施诈骗。老人在家人陪同下报警，警方透露涉案资金已流向多个个人账户，该男子已被拘留。
+来源公开摘要显示：本视频提及事件以及信息来源如下： 《特朗普欲再收紧“出生公民权”，引发新一轮法律与政治争论》来自：环球网，2026-08-08 06:37发布 《再次挑战150多年制度！特朗普继续冲击“出生公民权”，又将引发宪法大战？》来自：上观新闻，2026-08-07 20:03发布 《一法院维持暂停白宫宴会厅改造，特朗普怒批“国家耻辱”，并表示将上诉》来自：光明网，2026-08-08 21:16发布 《特朗普否认弹药短缺：美国拥有海量的军火弹药，将追查并严惩“爆料者”》来自：红星新闻，2026-08-06 16:
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `人文历史`
 
 ## 相关热点
 
-- [胡锡进称抵制AI短剧](du-ju-hui-yan.md)
-- [出现4个信号说明你可能不是普通头痛](bie-ju-jiang-xin.md)
-- [今年「984.5 高校」升温了吗？报考这些新型研究型大学的优劣势都有哪些？](qiao-duo-tian-gong.md)
-- [【原神八国语填翻】荣耀向我俯首 (八神原声演唱版)⚡𝑳𝒂 𝒈𝒍𝒐𝒊𝒓𝒆 𝒂 𝒎𝒆𝒔 𝒈𝒆𝒏𝒐𝒖𝒙⚡](gui-fu-shen-gong.md)
+- [华裔加密货币大亨离奇坠亡](du-ju-hui-yan.md)
+- [开封一2岁女童目睹母亲外婆被杀](bie-ju-jiang-xin.md)
+- [油价即将调整 跌幅继续缩水](qiao-duo-tian-gong.md)
+- [为什么液体可以完全浮在水上面，固体则必须被淹没一部分？](gui-fu-shen-gong.md)
 
 ## 站内推荐
 
-- [河南暴雨](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [男子被炸街吵醒刺死骑行辅警获死刑](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [300w粉百大区UP主开什么车？有山先生爱车首曝！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [乔治娜因帮同事加班半小时与C罗邂逅](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
-- [曝七度空间新卫生巾全是污渍](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
+- [女子调婚姻证明发现和前男友结过婚](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
+- [河南暴雨](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [贾冰：这两天的热搜快给我热馊了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [《癫佬外传》第一季合集](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [【原神八国语填翻】荣耀向我俯首 (八神原声演唱版)⚡𝑳𝒂 𝒈𝒍𝒐𝒊𝒓𝒆 𝒂 𝒎𝒆𝒔 𝒈𝒆𝒏𝒐𝒖𝒙⚡](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [原来姚安娜是艺名](http://www.daogukj.com/sqkgthem/)
+- [邵兵 退赛](http://www.daogukj.com/sqkgthem/)
 - [⚡泥 肘⚡](http://www.play.hengshemaoyi.cn/xiju/2157274.htm)
-- [郭德纲篡改红歌武汉文旅立案](http://www.daogukj.com/qzvccsto/)
-- [互联护苗2026](http://www.daogukj.com/9017409)
-- [社保断缴有哪些影响](http://www.movie.hkepx.cn/movie/5908744.htm)
-- [这已经不是一般的变态了，必须加大电量](http://www.movie.hkepx.cn/movie/7241164.htm)
-- [男子酒后与女子亲密猝死家属索赔被驳](http://www.movie.hkepx.cn/xiju/4493313.htm)
-- [高价洞洞鞋卖不动了](http://www.movie.hkepx.cn/movie/0771662.htm)
-- [C罗宣布结婚](http://www.movie.hkepx.cn/xiju/0992447.htm)
-- [蒯曼7个半小时三战](http://www.movie.hkepx.cn/movie/0097227.htm)
-- [AI科创润童心 网络安全伴成长](http://www.play.hengshemaoyi.cn/xiju/0858406.htm)
-- [汪峰退出与森林北合伙公司](http://www.movie.hkepx.cn/xiju/5889900.htm)
-- [宇树科技科创板 IPO 中签率 0.0181%，对比长鑫科技 0.4714%，差距为什么这么大？](http://www.movie.hkepx.cn/movie/4398357.htm)
+- [互联护苗2026](http://www.daogukj.com/qzvccsto/)
+- [2026和平精英刺激之夜完整高清回放](http://www.daogukj.com/9017409)
+- [国企经理被妻子举报私刻政府机构印章](http://www.movie.hkepx.cn/movie/5908744.htm)
+- [百万粉丝网红姜小柔去世，年仅 24 岁，还有哪些信息值得关注？](http://www.movie.hkepx.cn/movie/7241164.htm)
+- [吴宜泽止步中国公开赛16强](http://www.movie.hkepx.cn/xiju/4493313.htm)
+- [男子找邻居哭穷 2个月借走1400万被拘](http://www.movie.hkepx.cn/movie/0771662.htm)
+- [社保实缴严查中](http://www.movie.hkepx.cn/xiju/0992447.htm)
+- [股民称中签宇树不敢发朋友圈](http://www.movie.hkepx.cn/movie/0097227.htm)
+- [官方最新回应景区多车轮胎被扎](http://www.play.hengshemaoyi.cn/xiju/0858406.htm)
+- [丁禹兮回应脖子前倾](http://www.movie.hkepx.cn/xiju/5889900.htm)
+- [交警回应多人国道上驾轮椅行驶](http://www.movie.hkepx.cn/movie/4398357.htm)
 - [《影之刃零》正式开启预售，标准版268元，甄子丹出演核心角色，11分钟实机视频全程高能，如何评价？](http://www.play.hengshemaoyi.cn/xiju/3710304.htm)
-- [郭兰英走了 “一条大河”还在流淌](http://www.daogukj.com/1582634)
+- [几块钱的手机壳可能在消耗你的健康](http://www.daogukj.com/1582634)
 - [商务部启动应急响应保障灾区物资供应](http://www.movie.hkepx.cn/xiju/7460057.htm)
-- [不要错过今晚的流星雨](http://www.daogukj.com/iuhthsij/)
-- [龙餐馆差评被批文化殖民心态](http://www.movie.hkepx.cn/xiju/2237917.htm)
-- [300w粉百大区UP主开什么车？有山先生爱车首曝！](http://www.movie.hkepx.cn/movie/0845608.htm)
-- [来龙餐馆 好好吃饭](http://www.daogukj.com/8581680)
-- [二阳“微服私访”](http://www.movie.hkepx.cn/xiju/4507906.htm)
-- [你家老小区将迎巨变](http://www.movie.hkepx.cn/xiju/3471686.htm)
-- [高价洞洞鞋为什么卖不动了](http://www.play.hengshemaoyi.cn/xiju/5571527.htm)
-- [乔治娜因帮同事加班半小时与C罗邂逅](http://www.play.hengshemaoyi.cn/kongbu/8650783.htm)
+- [演员开始批量生产自己](http://www.daogukj.com/iuhthsij/)
+- [喜欢穿洞洞鞋的人天塌了](http://www.movie.hkepx.cn/xiju/2237917.htm)
+- [贾冰：这两天的热搜快给我热馊了](http://www.movie.hkepx.cn/movie/0845608.htm)
+- [曾被戏称为「狗剩」的国产龙芯，其 3A6000 出货量突破百万，这对国产 CPU 发展有何意义？](http://www.daogukj.com/8581680)
+- [你认为川菜的麻辣是为了祛湿，还是为了掩盖食材不新鲜味道？](http://www.movie.hkepx.cn/xiju/4507906.htm)
+- [高价洞洞鞋卖不动了](http://www.movie.hkepx.cn/xiju/3471686.htm)
+- [原来姚安娜是艺名](http://www.play.hengshemaoyi.cn/xiju/5571527.htm)
+- [《癫佬外传》第一季合集](http://www.play.hengshemaoyi.cn/kongbu/8650783.htm)
 - [你遇到的自助餐餐厅为了让顾客尽量少吃都采用了哪些措施？](http://www.daogukj.com/3850284)
-- [锻造马赛克爆炸纹大马士革](http://www.movie.hkepx.cn/xiju/1958046.htm)
-- [全程随意发挥挑战，感到尴尬奖励1000](http://www.movie.hkepx.cn/movie/3150925.htm)
-- [百万粉丝网红姜小柔去世，年仅 24 岁，还有哪些信息值得关注？](http://www.daogukj.com/twsaunno/)
-- [沈腾调侃贾冰：最近又聚会了没有](http://www.play.hengshemaoyi.cn/xiju/2788260.htm)
-- [8 月 12 日河南发布暴雨红色预警，多地停课停工，安徽、浙江、河北等地有大暴雨，你那里情况怎么样？](http://www.movie.hkepx.cn/movie/8401072.htm)
-- [河南暴雨](http://www.daogukj.com/5256425)
+- [【咒术回战IF】高羽史彦:你觉得未来的英雄来救场会搞笑吗？](http://www.movie.hkepx.cn/xiju/1958046.htm)
+- [深圳大学拟拿出5.3亿元，买下整栋商品房给学生当宿舍，背后有哪些考量？买商品房当宿舍会成为趋势吗？](http://www.movie.hkepx.cn/movie/3150925.htm)
+- [男子酒后与女子亲密猝死家属索赔被驳](http://www.daogukj.com/twsaunno/)
+- [300w粉百大区UP主开什么车？有山先生爱车首曝！](http://www.play.hengshemaoyi.cn/xiju/2788260.htm)
+- [媒体：中国试射导弹不看谁脸色](http://www.movie.hkepx.cn/movie/8401072.htm)
+- [女子调婚姻证明发现和前男友结过婚](http://www.daogukj.com/5256425)
 - [从消费账单看中国经济新动能](http://www.play.hengshemaoyi.cn/kongbu/6811189.htm)
-- [曝七度空间新卫生巾全是污渍](http://www.movie.hkepx.cn/movie/7189595.htm)
-- [几块钱的手机壳可能在消耗你的健康](http://www.movie.hkepx.cn/xiju/1481443.htm)
-- [曾被戏称为「狗剩」的国产龙芯，其 3A6000 出货量突破百万，这对国产 CPU 发展有何意义？](http://www.movie.hkepx.cn/movie/5934231.htm)
-- [7月汽车销量前10仅卡罗拉锐放 1 款燃油车，吉利星愿、零跑A10等持续热销，燃油车还有多大生存空间？](http://www.daogukj.com/suhrxest/)
-- [如何看待京东上大规模出现「李鬼」笔记本电脑？](http://www.play.hengshemaoyi.cn/xiju/8374811.htm)
-- [如何看待 C 罗社媒晒婚戒官宣与乔治娜正式完婚，相恋十年低调举办私密婚礼？](http://www.movie.hkepx.cn/movie/5917708.htm)
-- [恶心套路？情绪共振！细节夯爆！观众比男主先爱上女主！《花开锦绣》](http://www.movie.hkepx.cn/movie/2673504.htm)
-- [股民称中签宇树不敢发朋友圈](http://www.movie.hkepx.cn/xiju/9719392.htm)
-- [这不是黑历史…是23年 我奋斗的开始…差点gg也得拍视频](http://www.play.hengshemaoyi.cn/xiju/5111103.htm)
-- [被刺19岁辅警摩托车噪音达110分贝](http://www.movie.hkepx.cn/xiju/7322023.htm)
-- [黑尾酱疑似再婚](http://www.daogukj.com/lqwdxuku/)
-- [出现4个信号说明你可能不是普通头痛](http://www.movie.hkepx.cn/xiju/8204204.htm)
-- [新冠病例增加怎么看 怎么办](http://www.play.hengshemaoyi.cn/kongbu/5762471.htm)
-- [在非洲，我和死亡只隔了一扇车窗……](http://www.play.hengshemaoyi.cn/xiju/3015624.htm)
-- [华裔加密货币大亨离奇坠亡](http://www.movie.hkepx.cn/movie/9539562.htm)
-- [上汽大众高管：很多车现在还会生锈](http://www.daogukj.com/1841885)
-- [「妄想天使」全新企划《天使导览》第一期](http://www.play.hengshemaoyi.cn/kongbu/3844400.htm)
-- [媒体：中国试射导弹不看谁脸色](http://www.daogukj.com/2839192)
+- [【原神八国语填翻】荣耀向我俯首 (八神原声演唱版)⚡𝑳𝒂 𝒈𝒍𝒐𝒊𝒓𝒆 𝒂 𝒎𝒆𝒔 𝒈𝒆𝒏𝒐𝒖𝒙⚡](http://www.movie.hkepx.cn/movie/7189595.htm)
+- [郭德纲被指篡改红歌 武汉文旅立案](http://www.movie.hkepx.cn/xiju/1481443.htm)
+- [如何看待京东上大规模出现「李鬼」笔记本电脑？](http://www.movie.hkepx.cn/movie/5934231.htm)
+- [贾冰否认私人饭局爆粗口](http://www.daogukj.com/suhrxest/)
+- [赵一鸣牛肉干 64 元复称仅 17 元，店方称不知道为啥出错，暴露了哪些管理漏洞？消费者如何避免被坑？](http://www.play.hengshemaoyi.cn/xiju/8374811.htm)
+- [家里只有自动挡汽车，却被家人劝着考 C1，「驾照能考全就考全」的观念现在还合理吗？](http://www.movie.hkepx.cn/movie/5917708.htm)
+- [《异环》残虹角色PV丨惑心谲影](http://www.movie.hkepx.cn/movie/2673504.htm)
+- [C罗宣布结婚](http://www.movie.hkepx.cn/xiju/9719392.htm)
+- [《顽童戏老叟》](http://www.play.hengshemaoyi.cn/xiju/5111103.htm)
+- [41国联名吓唬谁？中国试射不看谁脸色](http://www.movie.hkepx.cn/xiju/7322023.htm)
+- [二阳“微服私访”](http://www.daogukj.com/lqwdxuku/)
+- [开封一2岁女童目睹母亲外婆被杀](http://www.movie.hkepx.cn/xiju/8204204.htm)
+- [黄金剪开里面竟是钨芯 警方抓9人](http://www.play.hengshemaoyi.cn/kongbu/5762471.htm)
+- [靠这锅沙子烤玉米，他在印度街头撑起了尊严](http://www.play.hengshemaoyi.cn/xiju/3015624.htm)
+- [这已经不是一般的变态了，必须加大电量](http://www.movie.hkepx.cn/movie/9539562.htm)
+- [全程随意发挥挑战，感到尴尬奖励1000](http://www.daogukj.com/1841885)
+- [沈腾在电影《欢迎来龙餐馆》中从喜剧转型演正剧，如何评价其演技？](http://www.play.hengshemaoyi.cn/kongbu/3844400.htm)
+- [普京指挥太平洋舰队军演释放何信号](http://www.daogukj.com/2839192)
 
 </details>
 
 ## 原始来源
 
-- [男子找邻居哭穷 2个月借走1400万被拘](https://www.baidu.com/s?wd=%E7%94%B7%E5%AD%90%E6%89%BE%E9%82%BB%E5%B1%85%E5%93%AD%E7%A9%B7+2%E4%B8%AA%E6%9C%88%E5%80%9F%E8%B5%B01400%E4%B8%87%E8%A2%AB%E6%8B%98&sa=fyb_news&rsv_dl=fyb_news)
+- [特朗普挥不动的重拳](https://b23.tv/BV13XuB69EdA)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 5491562b34fc6057e13f -->
+<!-- content-fingerprint: 95afc46d3b831df77503 -->
