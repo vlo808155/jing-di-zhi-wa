@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 花开锦绣热度
+# 养了三四年的猫，不想养了，送人没人要，养着又很烦心，该怎么办？
 
-> 来源：微博热搜 · 排名：第 20 位 · 热度：144274 · 分类：剧集 · 更新：2026-08-13T07:35:39+08:00
+> 来源：知乎热榜 · 排名：第 20 位 · 热度：106 万热度 · 分类：问答 · 更新：2026-08-13T08:41:37+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“花开锦绣热度”位列第 20 位，公开热度指标为 144274，榜单分类为“剧集”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“养了三四年的猫，不想养了，送人没人要，养着又很烦心，该怎么办？”位列第 20 位，公开热度指标为 106 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：这只奶牛猫送五个月大接回来的，当时是想养一只三个月的小猫，刚开始接回来不知道五个月，第二天就发情了，立马询问前主人，前主人一口咬定三个月的猫，不确定是不是真的发情了又给医生看了视频就说发情了觉得很奇怪，翻了翻前主人的朋友圈发现已经五个多月了，就说给他退回去，前主人死活不要，告诉我这只猫已经送养好几次了都退回来了，我是它第四任还是第五任领养人了，前主人让我自己处理掉，当时不忍心觉得猫咪可怜留下来了。这简直就是噩梦开始，发情了五个多月一针疫苗没打，每天嗷嗷叫不分昼夜，先打了一针，间隔一个月又去打了一针，发情不断，整整叫了两个月，每天晚上半夜都被它吵醒，它自己
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `剧集`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [贾冰：这两天的热搜快给我热馊了](bie-ju-jiang-xin.md)
-- [LPL2026赛季第三赛段组内赛BLG 1:2 JDG，如何评价这场比赛？](qiao-duo-tian-gong.md)
-- [这些散落在不同作品里的日系旋律，早已不止是耳边流淌的曲调。](gui-fu-shen-gong.md)
-- [母亲乱投资欠下五百万 女儿卖房扛债](jin-shang-tian-hua.md)
+- [大量人员被抓捕！三角洲行动被央视点名](bie-ju-jiang-xin.md)
+- [员工20多年未到岗 单位登返岗通知书](qiao-duo-tian-gong.md)
+- [一公司收到美国2.62亿元关税退税](gui-fu-shen-gong.md)
+- [《阿嬷》导演看《欢迎来龙餐馆》落泪](jin-shang-tian-hua.md)
 
 ## 站内推荐
 
-- [41国所谓涉华声明不过是废纸一张](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [「直到大地变成一颗烂苹果！！」](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [英仙座流星雨](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [微信群聊可以彻底关闭通知了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [世界是草台班子但你的人生不是](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [Deepseek V4Pro正式版发布，相比Claude Fable 5等模型，性能如何？性价比高吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [【原神一条龙全收集】至冬7.0(成就数/冰神瞳/摩拉/影生翼滴/枪械蓝图)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [宇树科技中签股民：计划全款提车](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [越南为何陷入“越输出越难发展”怪圈](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [货拉拉司机中途加价被拒，带货跑 600 公里外，平台介入后仍拒不归还，怎么回事？暴露出平台哪些问题？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [梁文锋财富一年暴涨 3850% ，跻身全球亿万富豪榜，他是如何做到的？](http://www.daogukj.com/7203067)
-- [恶心套路？情绪共振！细节夯爆！观众比男主先爱上女主！《花开锦绣》](http://www.daogukj.com/gowgjlqg/)
-- [为什么有的人天生「精力旺盛」，有的人天生「低精力」？](http://www.daogukj.com/7329084)
-- [《欢迎来龙餐馆》取景地火了](http://www.daogukj.com/tafakdgo/)
-- [李雪健已经完全听不见了](http://www.play.hengshemaoyi.cn/kongbu/6822731.htm)
-- [世界是草台班子但你的人生不是](http://www.movie.hkepx.cn/movie/9763774.htm)
-- [⚡泥 肘⚡](http://www.movie.hkepx.cn/movie/5499528.htm)
-- [升学宴35桌无人上桌](http://www.movie.hkepx.cn/xiju/2091376.htm)
+- [男子出轨销售买千万保险还转账350万](http://www.daogukj.com/7203067)
+- [武大靖出任中国短道速滑队主教练，他有哪些优势？将面临哪些挑战？](http://www.daogukj.com/gowgjlqg/)
+- [如何看待媒体曝沃尔特 120 亿美元出售湖人，创历史记录？](http://www.daogukj.com/7329084)
+- [广东又一个千万级机场来了](http://www.daogukj.com/tafakdgo/)
+- [DeepSeek重磅更新 V4Pro正式版上线](http://www.play.hengshemaoyi.cn/kongbu/6822731.htm)
+- [货拉拉司机中途加价被拒，带货跑 600 公里外，平台介入后仍拒不归还，怎么回事？暴露出平台哪些问题？](http://www.movie.hkepx.cn/movie/9763774.htm)
+- [3孩非亲生当事人自述前妻生活疑点](http://www.movie.hkepx.cn/movie/5499528.htm)
+- [威少拒绝国王奇才报价仍选择退役](http://www.movie.hkepx.cn/xiju/2091376.htm)
 - [《影之刃零》预购开启，11分钟实机预告公开](http://www.movie.hkepx.cn/movie/3384485.htm)
-- [月薪三万多，和老公都太忙，都没时间照顾孩子，老公让我回家照顾孩子几年先，如果是你该怎么选？](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
-- [为纪念逝去的小狗创作的歌曲，却戳中无数人的内心，火了二十多年](http://www.daogukj.com/0541072)
-- [DeepSeek V4 Pro 正式版发布，如何评价该模型？](http://www.daogukj.com/jyvgfrcg/)
-- [这不是黑历史…是23年 我奋斗的开始…差点gg也得拍视频](http://www.daogukj.com/3891590)
-- [LPL2026赛季第三赛段组内赛BLG 1:2 JDG，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
-- [《癫佬外传》第一季合集](http://www.movie.hkepx.cn/xiju/8805715.htm)
-- [贾冰：这两天的热搜快给我热馊了](http://www.daogukj.com/5398424)
-- [微信回应群聊可彻底关闭通知](http://www.movie.hkepx.cn/xiju/6277332.htm)
-- [内蒙古一警车被指擅自更换车标，警方称正在整改，会面临哪些处罚？警车作为执法车辆为何会出现此类违规操作？](http://www.movie.hkepx.cn/xiju/7873556.htm)
+- [微信回应群聊可彻底关闭通知](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
+- [胖东来关一家店为何全民关注](http://www.daogukj.com/0541072)
+- [🐧当你打游戏时父母进你房间蹭空调🐧](http://www.daogukj.com/jyvgfrcg/)
+- [「直到大地变成一颗烂苹果！！」](http://www.daogukj.com/3891590)
+- [员工20多年未到岗 单位登返岗通知书](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
+- [比Lululemon还贵的瑜伽服来中国了](http://www.movie.hkepx.cn/xiju/8805715.htm)
+- [大量人员被抓捕！三角洲行动被央视点名](http://www.daogukj.com/5398424)
+- [伊朗：目前使用武器都是自主研发的](http://www.movie.hkepx.cn/xiju/6277332.htm)
+- [预制奖，名利场，大众电影百花奖，大众不发音。](http://www.movie.hkepx.cn/xiju/7873556.htm)
 - [中共中央 全国人大常委会 国务院 全国政协讣告 朱镕基同志逝世](http://www.play.hengshemaoyi.cn/xiju/9370456.htm)
-- [2026和平精英刺激之夜完整高清回放](http://www.daogukj.com/nzepuewx/)
-- [威少退役](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
-- [武大靖出任中国短道速滑队主教练，他有哪些优势？将面临哪些挑战？](http://www.movie.hkepx.cn/movie/0752879.htm)
-- [🔥全看完的可以封神了！三角洲AI夏日晚会🔥](http://www.movie.hkepx.cn/xiju/3642771.htm)
-- [如何看待京东上大规模出现「李鬼」笔记本电脑？](http://www.daogukj.com/5617601)
-- [百米赛道高难度闯关、只有上过的才知道含金量有多高！](http://www.daogukj.com/8998145)
-- [荣耀Magic9系列手机外观首曝](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
-- [「直到大地变成一颗烂苹果！！」](http://www.movie.hkepx.cn/xiju/8984384.htm)
-- [母亲与怀孕妻子遇害 男子发声](http://www.movie.hkepx.cn/xiju/1180114.htm)
-- [胖东来许昌老店关闭周边商户发声](http://www.movie.hkepx.cn/movie/0847312.htm)
-- [《新闻联播》播发朱镕基逝世](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
-- [深切缅怀！朱总理一路走好！](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
-- [普京说俄罗斯对日本没有诉求](http://www.movie.hkepx.cn/xiju/6763243.htm)
-- [浙江一公司收到美国2.62亿元关税退税](http://www.movie.hkepx.cn/xiju/9186695.htm)
-- [《顽童戏老叟》](http://www.daogukj.com/pxvooxke/)
-- [中印发生新的边境事件？中方回应](http://www.movie.hkepx.cn/xiju/1116357.htm)
-- [比Lululemon还贵的瑜伽服来中国了](http://www.movie.hkepx.cn/xiju/0923150.htm)
-- [微信群聊可以彻底关闭通知了](http://www.daogukj.com/wwpryopq/)
-- [郭兰英1994年将演唱版权无偿捐国家](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
-- [如何看待杨奇回应《黑神话：钟馗》进度「设计阶段会远离 AIGC 工具，诺兰的奥德赛也是古法创作」？](http://www.movie.hkepx.cn/xiju/6581777.htm)
-- [7 月小米 SU7 销量 21,044 辆，连续 4 个月位列 20 万以上轿车销量第一，如何评价？](http://www.daogukj.com/ydetypas/)
-- [龙餐馆](http://www.movie.hkepx.cn/xiju/1440565.htm)
-- [黑洞的引力如此之大，连光都无法逃脱，那它内部的物质最终去了哪里？](http://www.movie.hkepx.cn/movie/0748348.htm)
-- [731原队员证实日军曾在中国埋毒气弹](http://www.daogukj.com/7529047)
-- [如何看待媒体曝沃尔特 120 亿美元出售湖人，创历史记录？](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
-- [胖东来关一家店为何全民关注](http://www.movie.hkepx.cn/movie/9462286.htm)
-- [男子独闯南太行失联 救援人员发声](http://www.movie.hkepx.cn/xiju/6577988.htm)
-- [如何看待大量民办高校出现「零投档」？](http://www.movie.hkepx.cn/movie/1711969.htm)
-- [哥哥去世嫂子改嫁 女子抚养侄子](http://www.movie.hkepx.cn/movie/1556531.htm)
-- [据媒体报道部分手机壳疑似采用废弃针管等医疗垃圾加工而成，真的吗？对健康会有多大危害？消费者该如何辨别？](http://www.play.hengshemaoyi.cn/kongbu/3467795.htm)
-- [《王者荣耀世界》第二赛季无限期延期，官方补偿 6500 玄晶加 10 连抽，玩家会买账吗？](http://www.movie.hkepx.cn/movie/2027222.htm)
+- [第一视角从中国空间站看地球](http://www.daogukj.com/nzepuewx/)
+- [女孩在自家店里完成12部位颠球](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
+- [深切缅怀！朱总理一路走好！](http://www.movie.hkepx.cn/movie/0752879.htm)
+- [百米赛道高难度闯关、只有上过的才知道含金量有多高！](http://www.movie.hkepx.cn/xiju/3642771.htm)
+- [星球的公转和自转速度那么快，为什么没有被摇匀？](http://www.daogukj.com/5617601)
+- [诺兰2.5亿巨制！看懂奥德赛](http://www.daogukj.com/8998145)
+- [麦迪娜姜潮婚礼超多新疆美食](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
+- [【原神一条龙全收集】至冬7.0(成就数/冰神瞳/摩拉/影生翼滴/枪械蓝图)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.movie.hkepx.cn/xiju/8984384.htm)
+- [这些散落在不同作品里的日系旋律，早已不止是耳边流淌的曲调。](http://www.movie.hkepx.cn/xiju/1180114.htm)
+- [威少宣布退役](http://www.movie.hkepx.cn/movie/0847312.htm)
+- [恶心套路？情绪共振！细节夯爆！观众比男主先爱上女主！《花开锦绣》](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
+- [如何看待杨奇回应《黑神话：钟馗》进度「设计阶段会远离 AIGC 工具，诺兰的奥德赛也是古法创作」？](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
+- [甄子丹“饰演”《影之刃零》中的角色“魔渊”，通过动捕+面捕参与游戏制作，使用“饰演”描述是否合适？](http://www.movie.hkepx.cn/xiju/6763243.htm)
+- [胖东来许昌老店关闭周边商户发声](http://www.movie.hkepx.cn/xiju/9186695.htm)
+- [流星雨](http://www.daogukj.com/pxvooxke/)
+- [威少（维斯布鲁克）宣布退役，结束长达 18 年的 NBA 生涯，如何评价他的职业生涯？](http://www.movie.hkepx.cn/xiju/1116357.htm)
+- [虞书欣丁禹兮 我欲乘风](http://www.movie.hkepx.cn/xiju/0923150.htm)
+- [越南为何陷入“越输出越难发展”怪圈](http://www.daogukj.com/wwpryopq/)
+- [梁文锋打新宇树科技有望浮盈超7亿](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
+- [《王者荣耀世界》第二赛季无限期延期，官方补偿 6500 玄晶加 10 连抽，玩家会买账吗？](http://www.movie.hkepx.cn/xiju/6581777.htm)
+- [华人加密投资者叶俊德被曝全裸从 30 楼坠亡，生前曾管理超 24 亿美元资产，哪些信息值得关注？](http://www.daogukj.com/ydetypas/)
+- [宇树科技黄牛收购价涨到410元](http://www.movie.hkepx.cn/xiju/1440565.htm)
+- [7 月小米 SU7 销量 21,044 辆，连续 4 个月位列 20 万以上轿车销量第一，如何评价？](http://www.movie.hkepx.cn/movie/0748348.htm)
+- [王健林现在怎么样了? 万达什么情况?](http://www.daogukj.com/7529047)
+- [姚安娜真名曝光](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
+- [李雪健已经完全听不见了](http://www.movie.hkepx.cn/movie/9462286.htm)
+- [普京：亚太形成新军事政治集团](http://www.movie.hkepx.cn/xiju/6577988.htm)
+- [这不是黑历史…是23年 我奋斗的开始…差点gg也得拍视频](http://www.movie.hkepx.cn/movie/1711969.htm)
+- [浙江一公司收到美国2.62亿元关税退税](http://www.movie.hkepx.cn/movie/1556531.htm)
+- [这视频等了五年！](http://www.play.hengshemaoyi.cn/kongbu/3467795.htm)
+- [原来姚安娜是艺名](http://www.movie.hkepx.cn/movie/2027222.htm)
 
 </details>
 
 ## 原始来源
 
-- [花开锦绣热度](https://s.weibo.com/weibo?q=%E8%8A%B1%E5%BC%80%E9%94%A6%E7%BB%A3%E7%83%AD%E5%BA%A6)
+- [养了三四年的猫，不想养了，送人没人要，养着又很烦心，该怎么办？](https://www.zhihu.com/question/2056772743341815048)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: cc846ae1abf0d9ddb855 -->
+<!-- content-fingerprint: cfbd530e91bf04c43f91 -->
