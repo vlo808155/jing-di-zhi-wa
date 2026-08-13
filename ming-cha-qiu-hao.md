@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# gap一年会失去什么
+# 梁文锋打新宇树科技 1.8 亿获配 120 万股，账面浮盈或超 7.04 亿元，怎样解读他的这一布局？
 
-> 来源：微博热搜 · 排名：第 19 位 · 热度：389443 · 分类：情感 · 更新：2026-08-13T14:47:05+08:00
+> 来源：知乎热榜 · 排名：第 18 位 · 热度：117 万热度 · 分类：问答 · 更新：2026-08-13T16:06:51+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“gap一年会失去什么”位列第 19 位，公开热度指标为 389443，榜单分类为“情感”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“梁文锋打新宇树科技 1.8 亿获配 120 万股，账面浮盈或超 7.04 亿元，怎样解读他的这一布局？”位列第 18 位，公开热度指标为 117 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：8月13日消息，日前A股人形机器人第一股、春晚明星机器人企业宇树科技科创板IPO打新结果出炉，本次打新创下A股打新难度历史新高，网上散户中签率仅约0.0181%，网下机构配售比例也仅0.0334%。 DeepSeek创始人梁文锋通过旗下多家主体重仓布局，累计斥资近1.8亿元拿下近120万股股份。若宇树科技上市后市值突破3000亿元，梁文锋这笔投资的账面浮盈有望突破7.04亿元。 根据宇树科技披露的IPO网下初步配售结果及网上中签结果公告，公司本次科创板IPO发行新股4044.64万股，占发行后总股本的10%。 在网上网下回拨机制启动后，发行份额分为三部分
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `情感`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [梁家辉人民日报撰文](jian-wei-zhi-zhu.md)
-- [媒体曝茶颜悦色入职培训强制收手机、被子叠「豆腐块」，具体什么情况？企业的行为侵犯员工权益了吗？](du-ju-hui-yan.md)
-- [⚡泥 肘⚡](bie-ju-jiang-xin.md)
-- [男子欠31万不还把百万货款转母亲账户](qiao-duo-tian-gong.md)
+- [【毕导】吵翻天了！飞机放在跑步机上，到底能不能起飞？](jian-wei-zhi-zhu.md)
+- [肖战李沁五搭只有狼殿下有吻戏](du-ju-hui-yan.md)
+- [普京称俄日和平条约谈判僵局责任在日方](bie-ju-jiang-xin.md)
+- [如何评价《影之刃零》开启预售之后迅速荣登全球Steam畅销榜第一名？](qiao-duo-tian-gong.md)
 
 ## 站内推荐
 
-- [网友爆料科技圈电商圈的大厂拒收阿里系中高层，是真的吗？反映了什么问题？他们为什么被称为互联网藤壶？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [为什么过去都说鱼翅和鲍鱼是顶级菜肴，而现在却很少人提了？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
 - [因长期在中东服役，多名水兵试图从美国海军「林肯」号跳海，为什么会这样？美国中东长期部署带来哪些问题？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
 - [威少（维斯布鲁克）宣布退役，结束长达 18 年的 NBA 生涯，如何评价他的职业生涯？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [大量人员被抓捕！三角洲行动被央视点名](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [峰哥5000元请邹市明打一场](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [银行能办结婚证了，天津开放首个银行网点婚姻登记处，这事只是「多一个领证地」这么简单吗？银行有什么盘算？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [来云南必吃，见太奶套餐](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [TF四代五公](http://www.daogukj.com/4857502)
-- [高中牲自制蛛丝发射器（一）](http://www.daogukj.com/fxomsuem/)
-- [新能源汽车迎来两个“首次”突破](http://www.play.hengshemaoyi.cn/xiju/4881423.htm)
-- [胖东来许昌老店关闭周边商户发声](http://www.movie.hkepx.cn/xiju/2224998.htm)
-- [会跳舞的画](http://www.daogukj.com/xislksiq/)
-- [普京：必须确保俄所有边境和领土安全](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
-- [大哥坐礁石上被浪打进礁石缝](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
-- [爱吃西红柿的人真的“赚”了](http://www.movie.hkepx.cn/xiju/3925704.htm)
-- [日本“草莓仙人”挑衅中国人](http://www.daogukj.com/zjqbftsa/)
-- [当年为加入 WTO 做出的让步，今天看来到底有多值？](http://www.daogukj.com/odtszjmj/)
-- [唐朝女人头上插那么多金钗步摇，走路不累吗，她们到底图什么？](http://www.movie.hkepx.cn/movie/8285885.htm)
+- [红米新品发布后，小米高管回应网友评论称「内存实在太贵了」，反映了当前手机行业哪些挑战？](http://www.daogukj.com/4857502)
+- [女子花8万做试管被推进简易房手术](http://www.daogukj.com/fxomsuem/)
+- [防汛防台一线筑牢安全堤坝](http://www.play.hengshemaoyi.cn/xiju/4881423.htm)
+- [邹市明计划年底重返拳击赛场](http://www.movie.hkepx.cn/xiju/2224998.htm)
+- [《影之刃零》预购开启，11分钟实机预告公开](http://www.daogukj.com/xislksiq/)
+- [河南郏县一民堤发生溃口](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
+- [胖东来 房租翻倍](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
+- [将个人收款码贴寺庙功德箱上被判刑](http://www.movie.hkepx.cn/xiju/3925704.htm)
+- [美国老师崩溃痛哭：高中生不会读写](http://www.daogukj.com/zjqbftsa/)
+- [拳击生意盯上中国打工人](http://www.daogukj.com/odtszjmj/)
+- [苹果被曝正测试长鑫存储芯片，将用于在中国市场销售的设备，双方最终达成合作的可能性有多大？](http://www.movie.hkepx.cn/movie/8285885.htm)
 - [威少（维斯布鲁克）宣布退役，结束长达 18 年的 NBA 生涯，如何评价他的职业生涯？](http://www.movie.hkepx.cn/xiju/1770369.htm)
-- [网友爆料科技圈电商圈的大厂拒收阿里系中高层，是真的吗？反映了什么问题？他们为什么被称为互联网藤壶？](http://www.daogukj.com/8527580)
-- [6年，你们童年的愿望，我帮你们实现了！](http://www.daogukj.com/9299314)
-- [如何评价 Grok4.6，有哪些亮点？](http://www.daogukj.com/5812229)
-- [女子花8万做试管被推进简易房手术](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
-- [73岁奶奶将成中国首批太空游客](http://www.daogukj.com/5338633)
-- [美国老师崩溃痛哭：高中生不会读写](http://www.movie.hkepx.cn/xiju/7272064.htm)
-- [梁家辉人民日报撰文](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
-- [婚外胚胎案再添新诉讼](http://www.daogukj.com/3351222)
-- [暑期网上冲浪安全提示请收好](http://www.play.hengshemaoyi.cn/xiju/0501282.htm)
-- [如何评价《影之刃零》开启预售之后迅速荣登全球Steam畅销榜第一名？](http://www.movie.hkepx.cn/movie/7142641.htm)
-- [大量人员被抓捕！三角洲行动被央视点名](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
-- [白海豚凭什么浇透小半个中国](http://www.movie.hkepx.cn/xiju/5072930.htm)
-- [孙彩瑛发布手写信离开JYP](http://www.daogukj.com/mkxvsuhn/)
-- [手机价格全线暴涨](http://www.daogukj.com/9044973)
-- [河南百年水位标识铁水牛被洪水淹没](http://www.daogukj.com/6197852)
-- [手机壳 偷拍](http://www.daogukj.com/ryrqoiii/)
-- [百米赛道高难度闯关、只有上过的才知道含金量有多高！](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
-- [清华美院教授将红军画成眯眯眼](http://www.play.hengshemaoyi.cn/kongbu/7063878.htm)
-- [苹果被曝正测试长鑫存储芯片，将用于在中国市场销售的设备，双方最终达成合作的可能性有多大？](http://www.movie.hkepx.cn/movie/2552102.htm)
-- [霍仙姑就是隔世老祖](http://www.movie.hkepx.cn/xiju/2129564.htm)
+- [为什么过去都说鱼翅和鲍鱼是顶级菜肴，而现在却很少人提了？](http://www.daogukj.com/8527580)
+- [台湾新款机器狗被踹倒要7秒起身被嘲](http://www.daogukj.com/9299314)
+- [李雪健已完全听不见](http://www.daogukj.com/5812229)
+- [邹市明45岁重返拳击赛场](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
+- [爱吃西红柿的人真的“赚”了](http://www.daogukj.com/5338633)
+- [上市公司中科软被暂停军采资格](http://www.movie.hkepx.cn/xiju/7272064.htm)
+- [【毕导】吵翻天了！飞机放在跑步机上，到底能不能起飞？](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
+- [关闭年赚1亿的店 胖东来把桌子掀了](http://www.daogukj.com/3351222)
+- [免费领鸡蛋还能抽奖？警惕涉老诈骗](http://www.play.hengshemaoyi.cn/xiju/0501282.htm)
+- [日本“草莓仙人”挑衅中国人](http://www.movie.hkepx.cn/movie/7142641.htm)
+- [银行能办结婚证了，天津开放首个银行网点婚姻登记处，这事只是「多一个领证地」这么简单吗？银行有什么盘算？](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
+- [普京登岛 日本急了](http://www.movie.hkepx.cn/xiju/5072930.htm)
+- [为纪念逝去的小狗创作的歌曲，却戳中无数人的内心，火了二十多年](http://www.daogukj.com/mkxvsuhn/)
+- [“两弹一星”元勋王希季逝世](http://www.daogukj.com/9044973)
+- [李飞 使唤人](http://www.daogukj.com/6197852)
+- [生理性喜欢是很可怕的一件事](http://www.daogukj.com/ryrqoiii/)
+- [河流地貌](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
+- [马天宇被姜潮搞不会了](http://www.play.hengshemaoyi.cn/kongbu/7063878.htm)
+- [中国成功用竹子造出无人机，这对航空材料和制造技术意味着什么？](http://www.movie.hkepx.cn/movie/2552102.htm)
+- [普京登岛后日本急了](http://www.movie.hkepx.cn/xiju/2129564.htm)
 - [朱镕基同志逝世](http://www.daogukj.com/1731517)
-- [银行能办结婚证了](http://www.daogukj.com/0178251)
-- [5年10万亿元消费增量目标怎样实现](http://www.movie.hkepx.cn/movie/2491274.htm)
-- [这视频等了五年！](http://www.daogukj.com/1710555)
-- [重罚台风请假员工公司多年0人参保](http://www.daogukj.com/iqnxgakx/)
-- [银行能办结婚证了，天津开放首个银行网点婚姻登记处，这事只是「多一个领证地」这么简单吗？银行有什么盘算？](http://www.daogukj.com/evhpdqcv/)
-- [我国生态治理迈向新阶段](http://www.movie.hkepx.cn/movie/9669872.htm)
+- [病毒吧吧主 人民的喜羊羊](http://www.daogukj.com/0178251)
+- [新能源汽车迎来两个“首次”突破](http://www.movie.hkepx.cn/movie/2491274.htm)
+- [《癫佬外传》第一季合集](http://www.daogukj.com/1710555)
+- [情侣懒得拍婚纱照交给豆包](http://www.daogukj.com/iqnxgakx/)
+- [普京：必须确保俄所有边境和领土安全](http://www.daogukj.com/evhpdqcv/)
+- [今年以来我国生态环境质量持续向好](http://www.movie.hkepx.cn/movie/9669872.htm)
 - [网传《欢迎来龙餐馆》男主角原定为徐峥，消息靠谱吗？如果是徐峥来演的话你认为效果会比沈腾好吗？](http://www.play.hengshemaoyi.cn/xiju/7739320.htm)
-- [中国印尼首次台岛以东联演有何深意](http://www.movie.hkepx.cn/xiju/6624711.htm)
-- [中国成功用竹子造出无人机，这对航空材料和制造技术意味着什么？](http://www.movie.hkepx.cn/movie/0041132.htm)
-- [男子欠31万不还把百万货款转母亲账户](http://www.movie.hkepx.cn/xiju/9486629.htm)
-- [中国退役军人受邀训练国外安保员工](http://www.movie.hkepx.cn/movie/9796335.htm)
-- [姜潮麦迪娜婚礼的切糕能买乌市一套房](http://www.daogukj.com/0823826)
-- [货车停服务区过夜绑带被割一半](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
-- [货拉拉司机中途加价被拒，带货跑 600 公里外，平台介入后仍拒不归还，怎么回事？暴露出平台哪些问题？](http://www.movie.hkepx.cn/movie/5397309.htm)
-- [暑期网上冲浪 这份安全提示请收好](http://www.daogukj.com/0899815)
+- [这些散落在不同作品里的日系旋律，早已不止是耳边流淌的曲调。](http://www.movie.hkepx.cn/xiju/6624711.htm)
+- [唐朝女人头上插那么多金钗步摇，走路不累吗，她们到底图什么？](http://www.movie.hkepx.cn/movie/0041132.htm)
+- [如何评价《影之刃零》开启预售之后迅速荣登全球Steam畅销榜第一名？](http://www.movie.hkepx.cn/xiju/9486629.htm)
+- [河南北汝河段民堤溃口](http://www.movie.hkepx.cn/movie/9796335.htm)
+- [大量人员被抓捕！三角洲行动被央视点名](http://www.daogukj.com/0823826)
+- [11岁小孩哥为游客拍照情绪价值拉满](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
+- [DeepSeek V4 Pro 正式版发布，如何评价该模型？](http://www.movie.hkepx.cn/movie/5397309.htm)
+- [免费领鸡蛋还能抽奖？警惕](http://www.daogukj.com/0899815)
 - [为什么蚊子没有进化成像猫猫那样特别可爱的样子，让人不忍心拍死？](http://www.play.hengshemaoyi.cn/xiju/2828553.htm)
-- [为纪念逝去的小狗创作的歌曲，却戳中无数人的内心，火了二十多年](http://www.daogukj.com/cachqmkl/)
+- [当年为加入 WTO 做出的让步，今天看来到底有多值？](http://www.daogukj.com/cachqmkl/)
 
 </details>
 
 ## 原始来源
 
-- [gap一年会失去什么](https://s.weibo.com/weibo?q=gap%E4%B8%80%E5%B9%B4%E4%BC%9A%E5%A4%B1%E5%8E%BB%E4%BB%80%E4%B9%88)
+- [梁文锋打新宇树科技 1.8 亿获配 120 万股，账面浮盈或超 7.04 亿元，怎样解读他的这一布局？](https://www.zhihu.com/question/2071189146777773055)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ddfa4c987cecbccd39e4 -->
+<!-- content-fingerprint: f73f43efa52d45198ba4 -->
