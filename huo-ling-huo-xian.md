@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 谢苗称曾在哈尔滨常驻两个月拍戏
+# 如何看待郭德纲演出中即兴篡改经典红歌《弹起我心爱的土琵琶》，因未提前报备，遭武汉文旅立案调查？
 
-> 来源：今日头条热榜 · 排名：第 22 位 · 热度：7040911 · 更新：2026-08-13T08:41:37+08:00
+> 来源：知乎热榜 · 排名：第 21 位 · 热度：124 万热度 · 分类：问答 · 更新：2026-08-13T11:15:46+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“谢苗称曾在哈尔滨常驻两个月拍戏”位列第 22 位，公开热度指标为 7040911。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待郭德纲演出中即兴篡改经典红歌《弹起我心爱的土琵琶》，因未提前报备，遭武汉文旅立案调查？”位列第 21 位，公开热度指标为 124 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：郭德纲篡改红歌后续，改编内容未报备，武汉文旅已立案调查
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [货拉拉司机中途加价被拒，带货跑 600 公里外，平台介入后仍拒不归还，怎么回事？暴露出平台哪些问题？](you-sheng-you-se.md)
-- [预制奖，名利场，大众电影百花奖，大众不发音。](yin-ren-ru-sheng.md)
-- [这不是黑历史…是23年 我奋斗的开始…差点gg也得拍视频](jing-di-zhi-wa.md)
-- [胖东来关一家店为何全民关注](hai-kuo-tian-kong.md)
+- [诺兰2.5亿巨制！看懂奥德赛](you-sheng-you-se.md)
+- [面馆火了却歇业 老板：流量太大避风头](yin-ren-ru-sheng.md)
+- [卢伟冰官宣小米澎湃OS4](jing-di-zhi-wa.md)
+- [机器人手机发布首日官网商城售罄](hai-kuo-tian-kong.md)
 
 ## 站内推荐
 
-- [第一视角从中国空间站看地球](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [7 月小米 SU7 销量 21,044 辆，连续 4 个月位列 20 万以上轿车销量第一，如何评价？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [《王者荣耀世界》第二赛季无限期延期，官方补偿 6500 玄晶加 10 连抽，玩家会买账吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [特朗普挥不动的重拳](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [伊朗：目前使用武器都是自主研发的](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [《影之刃零》预购开启，11分钟实机预告公开](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [男子飞两万公里到南美洲以为到四川](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [Deepseek V4Pro正式版发布，相比Claude Fable 5等模型，性能如何？性价比高吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [梁文锋财富一年暴涨 3850% ，跻身全球亿万富豪榜，他是如何做到的？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [网友爆料科技圈电商圈的大厂拒收阿里系中高层，是真的吗？反映了什么问题？他们为什么被称为互联网藤壶？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [微信回应群聊可彻底关闭通知](http://www.daogukj.com/8005923)
-- [《影之刃零》预购开启，11分钟实机预告公开](http://www.play.hengshemaoyi.cn/xiju/7463191.htm)
+- [姜潮麦迪娜新疆婚礼含金量太高了](http://www.daogukj.com/8005923)
+- [🐧当你打游戏时父母进你房间蹭空调🐧](http://www.play.hengshemaoyi.cn/xiju/7463191.htm)
 - [《顽童戏老叟》](http://www.movie.hkepx.cn/movie/4169739.htm)
-- [《王者荣耀世界》第二赛季无限期延期，官方补偿 6500 玄晶加 10 连抽，玩家会买账吗？](http://www.play.hengshemaoyi.cn/xiju/5874723.htm)
-- [宇树科技黄牛收购价涨到410元](http://www.movie.hkepx.cn/movie/3447925.htm)
-- [胖东来弃租背后房东的“话事权”转移](http://www.play.hengshemaoyi.cn/kongbu/4576162.htm)
-- [介文汲：中国印尼海军联演重击菲律宾](http://www.play.hengshemaoyi.cn/xiju/9969388.htm)
-- [如何看待媒体曝沃尔特 120 亿美元出售湖人，创历史记录？](http://www.play.hengshemaoyi.cn/kongbu/2274251.htm)
-- [李雪健已经完全听不见了](http://www.movie.hkepx.cn/xiju/5546881.htm)
-- [据媒体报道部分手机壳疑似采用废弃针管等医疗垃圾加工而成，真的吗？对健康会有多大危害？消费者该如何辨别？](http://www.play.hengshemaoyi.cn/kongbu/8488935.htm)
-- [深切缅怀！朱总理一路走好！](http://www.play.hengshemaoyi.cn/xiju/5663353.htm)
-- [龙餐馆](http://www.movie.hkepx.cn/xiju/5950485.htm)
-- [武大靖出任中国短道速滑队主教练，他有哪些优势？将面临哪些挑战？](http://www.movie.hkepx.cn/movie/9193128.htm)
-- [哥哥去世嫂子改嫁 女子抚养侄子](http://www.daogukj.com/atarmjde/)
-- [为纪念逝去的小狗创作的歌曲，却戳中无数人的内心，火了二十多年](http://www.play.hengshemaoyi.cn/xiju/9145960.htm)
-- [姚安娜真名曝光](http://www.movie.hkepx.cn/xiju/2578023.htm)
-- [银行能办结婚证了](http://www.daogukj.com/5709010)
-- [雷军称小米成功量产发光材料，成为国内首家实现底层发光材料自研的手机厂商，这意味着什么？会带来什么改变？](http://www.daogukj.com/wpzjvegw/)
+- [Deepseek V4Pro正式版发布，相比Claude Fable 5等模型，性能如何？性价比高吗？](http://www.play.hengshemaoyi.cn/xiju/5874723.htm)
+- [曝曾辉送考人不是韩雨彤了](http://www.movie.hkepx.cn/movie/3447925.htm)
+- [男子装空调坠亡 家属：免费帮朋友](http://www.play.hengshemaoyi.cn/kongbu/4576162.htm)
+- [中国印尼首次台岛以东联演有何深意](http://www.play.hengshemaoyi.cn/xiju/9969388.htm)
+- [7 月小米 SU7 销量 21,044 辆，连续 4 个月位列 20 万以上轿车销量第一，如何评价？](http://www.play.hengshemaoyi.cn/kongbu/2274251.htm)
+- [🔥全看完的可以封神了！三角洲AI夏日晚会🔥](http://www.movie.hkepx.cn/xiju/5546881.htm)
+- [新能源汽车新车销量占比首超60%](http://www.play.hengshemaoyi.cn/kongbu/8488935.htm)
+- [《西游记》中猪八戒和沙和尚到底是真的弱还是在摸鱼？](http://www.play.hengshemaoyi.cn/xiju/5663353.htm)
+- [狄仁杰小李飞刀皮肤曝光](http://www.movie.hkepx.cn/xiju/5950485.htm)
+- [男子装空调坠亡家属称系免费帮朋友](http://www.movie.hkepx.cn/movie/9193128.htm)
+- [大量人员被抓捕！三角洲行动被央视点名](http://www.daogukj.com/atarmjde/)
+- [中国种植的土地那么大，为什么感觉东北大米比较出名又好吃？](http://www.play.hengshemaoyi.cn/xiju/9145960.htm)
+- [媒体曝茶颜悦色入职培训强制收手机、被子叠「豆腐块」，具体什么情况？企业的行为侵犯员工权益了吗？](http://www.movie.hkepx.cn/xiju/2578023.htm)
+- [这视频等了五年！](http://www.daogukj.com/5709010)
+- [《起屁了》红石音乐](http://www.daogukj.com/wpzjvegw/)
 - [员工台风天临时请假被罚近1500元](http://www.play.hengshemaoyi.cn/xiju/4598532.htm)
-- [朱镕基同志遗像发布](http://www.play.hengshemaoyi.cn/kongbu/0125652.htm)
-- [Lululemon劲敌来中国了](http://www.movie.hkepx.cn/xiju/2411242.htm)
-- [【咒术回战IF】高羽史彦:你觉得未来的英雄来救场会搞笑吗？【B萌应援】](http://www.daogukj.com/6900199)
-- [星球的公转和自转速度那么快，为什么没有被摇匀？](http://www.movie.hkepx.cn/xiju/8302101.htm)
-- [DeepSeek重磅更新 V4Pro正式版上线](http://www.daogukj.com/vrviqqsc/)
-- [41国所谓涉华声明不过是废纸一张](http://www.daogukj.com/5803945)
-- [胖东来许昌老店关闭周边商户发声](http://www.daogukj.com/pggqhldb/)
-- [女孩在自家店里完成12部位颠球](http://www.play.hengshemaoyi.cn/xiju/9613239.htm)
-- [3孩非亲生当事人自述前妻生活疑点](http://www.movie.hkepx.cn/xiju/1355542.htm)
-- [中国种植的土地那么大，为什么感觉东北大米比较出名又好吃？](http://www.play.hengshemaoyi.cn/xiju/7010661.htm)
-- [为什么《蜘蛛侠》能拍「交不起房租」，国产大片却总在拍「光鲜亮丽的拯救世界」？](http://www.movie.hkepx.cn/xiju/1893259.htm)
-- [普京观摩舰队演习作战图被打码](http://www.daogukj.com/3906187)
-- [流星雨](http://www.daogukj.com/3891201)
-- [男子看病8天花8万治疗按分钟收费](http://www.movie.hkepx.cn/movie/0469338.htm)
-- [威少拒绝国王奇才报价仍选择退役](http://www.play.hengshemaoyi.cn/kongbu/9519674.htm)
-- [DeepSeek V4 Pro 正式版发布，如何评价该模型？](http://www.daogukj.com/8314048)
-- [60万亿元消费蓝海要来了](http://www.play.hengshemaoyi.cn/xiju/8783645.htm)
-- [养了三四年的猫，不想养了，送人没人要，养着又很烦心，该怎么办？](http://www.play.hengshemaoyi.cn/kongbu/2446487.htm)
-- [胚胎案妻子回应丈夫花百万救命](http://www.movie.hkepx.cn/xiju/1583083.htm)
-- [《阿嬷》导演看《欢迎来龙餐馆》落泪](http://www.movie.hkepx.cn/movie/7949727.htm)
-- [原来姚安娜是艺名](http://www.movie.hkepx.cn/xiju/7893335.htm)
-- [宇树科技中签股民：计划全款提车](http://www.movie.hkepx.cn/movie/6332074.htm)
+- [魏如萱称歌手丑八怪是节目组选的](http://www.play.hengshemaoyi.cn/kongbu/0125652.htm)
+- [蔡少芬自曝曾患绝症 生孩子后才痊愈](http://www.movie.hkepx.cn/xiju/2411242.htm)
+- [黑龙江二龙湖上演鱼跃龙门奇观](http://www.daogukj.com/6900199)
+- [弗洛伊德的理论那么扯淡为什么他又那么出名？](http://www.movie.hkepx.cn/xiju/8302101.htm)
+- [梁家辉在《人民日报》撰文](http://www.daogukj.com/vrviqqsc/)
+- [李雪健已经完全听不见了](http://www.daogukj.com/5803945)
+- [胖东来弃租背后房东的“话事权”转移](http://www.daogukj.com/pggqhldb/)
+- [深切缅怀！朱总理一路走好！](http://www.play.hengshemaoyi.cn/xiju/9613239.htm)
+- [任敏漂亮到不敢认](http://www.movie.hkepx.cn/xiju/1355542.htm)
+- [3万全款买40平房是机会还是坑](http://www.play.hengshemaoyi.cn/xiju/7010661.htm)
+- [说唱冠军新女友是仙女酵母](http://www.movie.hkepx.cn/xiju/1893259.htm)
+- [作家李娟10年没见妈妈了](http://www.daogukj.com/3906187)
+- [《癫佬外传》第一季合集](http://www.daogukj.com/3891201)
+- [高中牲自制蛛丝发射器（一）](http://www.movie.hkepx.cn/movie/0469338.htm)
+- [刘晓庆 女帝和她的将相](http://www.play.hengshemaoyi.cn/kongbu/9519674.htm)
+- [胖东来许昌老店关闭周边商户发声](http://www.daogukj.com/8314048)
+- [第一视角从中国空间站看地球](http://www.play.hengshemaoyi.cn/xiju/8783645.htm)
+- [飞龙在天！](http://www.play.hengshemaoyi.cn/kongbu/2446487.htm)
+- [天然气公司要求热水器满8年必须换](http://www.movie.hkepx.cn/xiju/1583083.htm)
+- [养了三四年的猫，不想养了，送人没人要，养着又很烦心，该怎么办？](http://www.movie.hkepx.cn/movie/7949727.htm)
+- [麦迪娜姜潮婚礼超多新疆美食](http://www.movie.hkepx.cn/xiju/7893335.htm)
+- [这些散落在不同作品里的日系旋律，早已不止是耳边流淌的曲调。](http://www.movie.hkepx.cn/movie/6332074.htm)
 - [中共中央 全国人大常委会 国务院 全国政协讣告 朱镕基同志逝世](http://www.movie.hkepx.cn/xiju/9763550.htm)
-- [预制奖，名利场，大众电影百花奖，大众不发音。](http://www.movie.hkepx.cn/movie/0911321.htm)
-- [这不是黑历史…是23年 我奋斗的开始…差点gg也得拍视频](http://www.movie.hkepx.cn/movie/1570496.htm)
-- [第一视角从中国空间站看地球](http://www.movie.hkepx.cn/xiju/5460806.htm)
-- [电车真的比油车更省钱吗](http://www.movie.hkepx.cn/xiju/3915542.htm)
-- [梁文锋打新宇树科技有望浮盈超7亿](http://www.daogukj.com/obnsavya/)
-- [DeepSeek发布V4Pro正式版](http://www.daogukj.com/thtteqlc/)
-- [🔥全看完的可以封神了！三角洲AI夏日晚会🔥](http://www.daogukj.com/6398059)
-- [普京：亚太形成新军事政治集团](http://www.daogukj.com/5238190)
+- [面馆火了却歇业 老板：流量太大避风头](http://www.movie.hkepx.cn/movie/0911321.htm)
+- [卢伟冰官宣小米澎湃OS4](http://www.movie.hkepx.cn/movie/1570496.htm)
+- [《影之刃零》预购开启，11分钟实机预告公开](http://www.movie.hkepx.cn/xiju/5460806.htm)
+- [金价油价全涨了](http://www.movie.hkepx.cn/xiju/3915542.htm)
+- [威少宣布退役](http://www.daogukj.com/obnsavya/)
+- [男子出轨销售买千万保险还转账350万](http://www.daogukj.com/thtteqlc/)
+- [威少（维斯布鲁克）宣布退役，结束长达 18 年的 NBA 生涯，如何评价他的职业生涯？](http://www.daogukj.com/6398059)
+- [73岁奶奶将成中国首批太空游客](http://www.daogukj.com/5238190)
 
 </details>
 
 ## 原始来源
 
-- [谢苗称曾在哈尔滨常驻两个月拍戏](https://www.toutiao.com/trending/7673104487611547690/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%228%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227673104487611547690%22%2C%22hot_board_impr_id%22%3A%22202608130841361C1E265D7E9211BCDA6E%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [如何看待郭德纲演出中即兴篡改经典红歌《弹起我心爱的土琵琶》，因未提前报备，遭武汉文旅立案调查？](https://www.zhihu.com/question/2070889953198979004)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: e10d174e30f64de7f1ae -->
+<!-- content-fingerprint: ac6f2e420fa62f641072 -->
