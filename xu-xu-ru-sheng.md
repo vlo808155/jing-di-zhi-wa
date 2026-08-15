@@ -1,27 +1,27 @@
 [热点索引](README.md)
 
-# 《欢迎来龙餐馆》票房破7亿
+# 这会不会有点太刺激了？！
 
-> 来源：百度热搜 · 排名：第 20 位 · 热度：5889129 · 更新：2026-08-16T04:40:37+08:00
+> 来源：哔哩哔哩热门 · 排名：第 20 位 · 热度：4878212 · 分类：搞笑 · 更新：2026-08-16T05:00:39+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“《欢迎来龙餐馆》票房破7亿”位列第 20 位，公开热度指标为 5889129。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“这会不会有点太刺激了？！”位列第 20 位，公开热度指标为 4878212，榜单分类为“搞笑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月11日起，由文牧野执导，沈腾、蒋奇明领衔主演的电影《欢迎来龙餐馆》在全国公映。据网络平台数据，截至8月15日18时20分，电影《欢迎来龙餐馆》票房突破7亿元。
+来源公开摘要显示：《最 刺 激 的 一 期 没 有 之 一》 【点赞过5w，再来一期奶糖大冒险！】
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `搞笑`
 
 ## 相关热点
 
-- [如何找到自己的天赋](huo-ling-huo-xian.md)
-- [旺旺为何卖不动了](you-sheng-you-se.md)
-- [特朗普证实部署中东的林肯号航母将被替换，部署近9个月，船员心理崩溃、跳海事件引发质疑，如何看待此事？](yin-ren-ru-sheng.md)
-- [Jennie东京音乐节](jing-di-zhi-wa.md)
+- [《欢迎来龙餐馆》票房破7亿](huo-ling-huo-xian.md)
+- [曹骏中国人会飞具象化](you-sheng-you-se.md)
+- [旺旺为何卖不动了](yin-ren-ru-sheng.md)
+- [张睿危险](jing-di-zhi-wa.md)
 
 ## 站内推荐
 
@@ -37,13 +37,13 @@
 <summary>展开更多相关内容</summary>
 
 - [普京首次登上南千岛群岛视察民生产业，高市早苗激烈抗议，称是日本固有领土，俄方强硬回击，如何看待此事？](http://www.daogukj.com/sqcbcoyd/)
-- [小沈阳回应“铁岭王嘉尔”](http://www.movie.hkepx.cn/movie/3229474.htm)
+- [今年已有多人被蝉鸣“震聋”](http://www.movie.hkepx.cn/movie/3229474.htm)
 - [内娱嘉豪，长剧救星，帅比木村，他敢吹我都不敢听【张凌赫嘉豪名场面】盘点](http://www.daogukj.com/3429973)
 - [纪念江泽民同志诞辰100周年大会将举行](http://www.play.hengshemaoyi.cn/kongbu/2710783.htm)
 - [杜华：王传君坏人不像演的](http://www.movie.hkepx.cn/xiju/6386103.htm)
 - [穿越战锤20年，你却靠实力登上贵族宝座，你的后半生会如何度过？](http://www.daogukj.com/2618773)
 - [大厂员工吐槽现在开会就是互丢AI文档，你有同感吗？很多公司都强调内化AI能力，但真的有提升产出质量吗？](http://www.movie.hkepx.cn/movie/9325911.htm)
-- [他说我不会放弃【rs】](http://www.movie.hkepx.cn/xiju/3640841.htm)
+- [张本智和4比0大勒布伦](http://www.movie.hkepx.cn/xiju/3640841.htm)
 - [赛伯朋克之大圣归来：耗时两年半，精品制作，一口气看完。](http://www.movie.hkepx.cn/xiju/7828843.htm)
 - [年轻人流行起夜间“拼蟹”](http://www.daogukj.com/1443155)
 - [欢天喜地七仙女选角让人笑哭](http://www.play.hengshemaoyi.cn/xiju/5386769.htm)
@@ -53,13 +53,13 @@
 - [关晓彤大长腿溢出屏幕](http://www.play.hengshemaoyi.cn/xiju/3785579.htm)
 - [网传追觅大家电解散](http://www.play.hengshemaoyi.cn/kongbu/5104096.htm)
 - [【TF家族练习生】《突围II破局》EP08：任何方向都是前方（上）](http://www.play.hengshemaoyi.cn/xiju/1113699.htm)
-- [苏州暴雨太湖水倒灌 小区车库被淹](http://www.movie.hkepx.cn/xiju/6249881.htm)
+- [小沈阳回应“铁岭王嘉尔”](http://www.movie.hkepx.cn/xiju/6249881.htm)
 - [汉奸石平参拜靖国神社](http://www.daogukj.com/3232228)
-- [成都“彩虹糖辣椒”单株售价20元](http://www.play.hengshemaoyi.cn/xiju/4957012.htm)
+- [小沈阳 东北樱木花道](http://www.play.hengshemaoyi.cn/xiju/4957012.htm)
 - [【我在现代当幽差】EP01 大哥，你阳寿未尽啊【UP动画】](http://www.movie.hkepx.cn/xiju/7760980.htm)
-- [新乡胖东来搬走前VS搬走后](http://www.daogukj.com/rawnvqja/)
+- [如何找到自己的天赋](http://www.daogukj.com/rawnvqja/)
 - [如果条件允许的话，完全以矿泉水或纯净水作为日常饮用水好不好？](http://www.play.hengshemaoyi.cn/xiju/1510529.htm)
-- [比利时老房翻修翻出价值超7000万黄金](http://www.movie.hkepx.cn/movie/2155535.htm)
+- [独闯南太行56岁男子遗体疑被找到](http://www.movie.hkepx.cn/movie/2155535.htm)
 - [《一饭封神 2》中谢霆锋直言「糖拌西红柿不能拿来比赛」，你认同吗？](http://www.play.hengshemaoyi.cn/xiju/0705872.htm)
 - [日本人战斗分队在乌成立 与俄军作战](http://www.daogukj.com/mreurhye/)
 - [法国最有松弛感的劫案是哪起？【硬核狠人91】](http://www.daogukj.com/qwfixtbt/)
@@ -69,20 +69,20 @@
 - [为什么说马拉多纳的「上帝之手」经典？](http://www.movie.hkepx.cn/xiju/7783555.htm)
 - [我实现了我儿时的梦想](http://www.daogukj.com/yqngchqm/)
 - [如何看待 Dota2TI15，XG 0-2 不敌 TR 淘汰回家？如何评价 XG 战队及其本届表现?](http://www.play.hengshemaoyi.cn/kongbu/1109876.htm)
-- [关灯侧躺刷手机 毁眼睛](http://www.daogukj.com/6926689)
-- [旺旺为何卖不动了](http://www.play.hengshemaoyi.cn/kongbu/4911992.htm)
+- [成都“彩虹糖辣椒”单株售价20元](http://www.daogukj.com/6926689)
+- [曹骏中国人会飞具象化](http://www.play.hengshemaoyi.cn/kongbu/4911992.htm)
 - [用MC还原《神的随波逐流》 【B萌应援】](http://www.daogukj.com/9879629)
-- [无人快递车堵住马路被叉车叉走](http://www.daogukj.com/5934021)
-- [小沈阳 东北樱木花道](http://www.daogukj.com/0462954)
+- [比利时老房翻修翻出价值超7000万黄金](http://www.daogukj.com/5934021)
+- [山东梁山把二手车卖到了110个国家](http://www.daogukj.com/0462954)
 - [国家叫停「速成车」，新国标落地将如何影响消费者购车？](http://www.daogukj.com/nsrsfedm/)
-- [张睿危险](http://www.play.hengshemaoyi.cn/xiju/4318078.htm)
+- [Bin 回归](http://www.play.hengshemaoyi.cn/xiju/4318078.htm)
 - [《一切正常｜異常なし》MV：当所有日本人都说没问题 那问题大了](http://www.play.hengshemaoyi.cn/xiju/1040523.htm)
 - [小沈阳秒了](http://www.play.hengshemaoyi.cn/xiju/8546835.htm)
 - [【独家】时光代理人 第三季 PartOne 第2集 困兽【8月国创】](http://www.play.hengshemaoyi.cn/xiju/0791591.htm)
-- [山东梁山把二手车卖到了110个国家](http://www.play.hengshemaoyi.cn/kongbu/5159078.htm)
+- [7万亿投资砸向“六张网”释放何信号](http://www.play.hengshemaoyi.cn/kongbu/5159078.htm)
 - [曾辉陈若轩 卧龙凤雏](http://www.movie.hkepx.cn/xiju/6783269.htm)
-- [披荆斩棘初舞台排名](http://www.movie.hkepx.cn/movie/1452887.htm)
-- [杜华好好谢谢齐思钧吧](http://www.daogukj.com/vbpouezt/)
+- [卫龙还算辣条公司吗](http://www.movie.hkepx.cn/movie/1452887.htm)
+- [披荆斩棘初舞台排名](http://www.daogukj.com/vbpouezt/)
 - [老王出息了，今天带家人们一起探班龙餐馆的幕后~](http://www.play.hengshemaoyi.cn/kongbu/7923516.htm)
 - [难倒100万人的铁球难题，我终于！解！开！了！](http://www.movie.hkepx.cn/movie/6325229.htm)
 - [准高三生看完《奥本海默》后深感自己平庸，该如何接受与顶尖天才的差距？](http://www.play.hengshemaoyi.cn/xiju/3070885.htm)
@@ -91,8 +91,8 @@
 
 ## 原始来源
 
-- [《欢迎来龙餐馆》票房破7亿](https://www.baidu.com/s?wd=%E3%80%8A%E6%AC%A2%E8%BF%8E%E6%9D%A5%E9%BE%99%E9%A4%90%E9%A6%86%E3%80%8B%E7%A5%A8%E6%88%BF%E7%A0%B47%E4%BA%BF&sa=fyb_news&rsv_dl=fyb_news)
+- [这会不会有点太刺激了？！](https://b23.tv/BV1Ukgp6uErY)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f33acf251340853e7488 -->
+<!-- content-fingerprint: a0126da45afd5d34bc3d -->
