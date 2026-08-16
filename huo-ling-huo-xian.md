@@ -1,35 +1,35 @@
 [热点索引](README.md)
 
-# 任素汐成都演唱会泪洒舞台
+# 曝谷爱凌LV三公子恋情
 
-> 来源：百度热搜 · 排名：第 20 位 · 热度：5887362 · 更新：2026-08-16T12:45:50+08:00
+> 来源：微博热搜 · 排名：第 21 位 · 热度：264227 · 分类：体育 · 更新：2026-08-16T13:13:36+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“任素汐成都演唱会泪洒舞台”位列第 20 位，公开热度指标为 5887362。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“曝谷爱凌LV三公子恋情”位列第 21 位，公开热度指标为 264227，榜单分类为“体育”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月15日，任素汐在成都演唱会上大方展示四川方言，泪洒舞台称“终于来成都了！”据悉，此前任素汐在成都取景拍摄的《故乡，别来无恙》中饰演张沛，与成都结下了不解之缘。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `体育`
 
 ## 相关热点
 
-- [韩国强烈批评日本](you-sheng-you-se.md)
-- [“龙餐馆”从容迎战“奥德赛”](yin-ren-ru-sheng.md)
+- [比利时老房翻修翻出价值超7000万黄金](you-sheng-you-se.md)
+- [不同科室的医生都有什么特别心爱的物品吗？](yin-ren-ru-sheng.md)
 - [准高三生看完《奥本海默》后深感自己平庸，该如何接受与顶尖天才的差距？](jing-di-zhi-wa.md)
-- [口技表演《定海神珍铁》](hai-kuo-tian-kong.md)
+- [法国最有松弛感的劫案是哪起？【硬核狠人91】](hai-kuo-tian-kong.md)
 
 ## 站内推荐
 
-- [越南航空波音787航班慕尼黑紧急返航](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [如何评价《原神》7.0中的“楚古诺夫”？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [一条谣言“诞生”的全流程](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [60岁温碧霞走秀](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [孩子考上985 全家免三年物业费](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [孩子考上985 全家免三年物业费](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [一个先进外星文明拿到地球的一颗完整但孤立的CPU会怎样?](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [财神窦占龙 第1集 家宴【8月国创】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [【驼】只有中国人能拍出的反战片，都是反战，西方在ptsd，中国在让你好好吃饭。 [欢迎来龙餐馆]](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [我们的少年时代2主角设定](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
@@ -38,61 +38,61 @@
 
 - [如果条件允许的话，完全以矿泉水或纯净水作为日常饮用水好不好？](http://www.daogukj.com/8005923)
 - [胖东来将闭门老店28个收银口排长龙](http://www.play.hengshemaoyi.cn/xiju/7463191.htm)
-- [曾辉把炎亚纶炸出来了](http://www.movie.hkepx.cn/movie/4169739.htm)
-- [一条谣言“诞生”的全流程](http://www.play.hengshemaoyi.cn/xiju/5874723.htm)
-- [中国籍男子在靖国神社附近挥舞国旗](http://www.movie.hkepx.cn/movie/3447925.htm)
-- [附近店家流泪称舍不得胖东来老店关闭](http://www.play.hengshemaoyi.cn/kongbu/4576162.htm)
-- [一个先进外星文明拿到地球的一颗完整但孤立的CPU会怎样?](http://www.play.hengshemaoyi.cn/xiju/9969388.htm)
+- [中国博主发布进入靖国神社视频](http://www.movie.hkepx.cn/movie/4169739.htm)
+- [财神窦占龙 第1集 家宴【8月国创】](http://www.play.hengshemaoyi.cn/xiju/5874723.htm)
+- [张睿一看手机天又塌了](http://www.movie.hkepx.cn/movie/3447925.htm)
+- [我们的少年时代2开播热度](http://www.play.hengshemaoyi.cn/kongbu/4576162.htm)
+- [如何评价《原神》7.0中的“楚古诺夫”？](http://www.play.hengshemaoyi.cn/xiju/9969388.htm)
 - [穿越战锤20年，你却靠实力登上贵族宝座，你的后半生会如何度过？](http://www.play.hengshemaoyi.cn/kongbu/2274251.htm)
-- [张彬彬公费追星 和偶像孙楠当室友](http://www.movie.hkepx.cn/xiju/5546881.htm)
+- [低成本恐怖片拯救暑期档](http://www.movie.hkepx.cn/xiju/5546881.htm)
 - [各地多措并举筑牢防汛安全屏障](http://www.play.hengshemaoyi.cn/kongbu/8488935.htm)
-- [赛伯朋克之大圣归来：耗时两年半，精品制作，一口气看完。](http://www.play.hengshemaoyi.cn/xiju/5663353.htm)
-- [航旅纵横接送机订单被层层转包](http://www.movie.hkepx.cn/xiju/5950485.htm)
-- [【原神一条龙全收集】至冬7.0(成就数345/冰神瞳140/摩拉120/影生翼滴58)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.movie.hkepx.cn/movie/9193128.htm)
-- [群演待遇 8小时后1.5倍工资](http://www.daogukj.com/atarmjde/)
-- [山西挖眼案男孩高考全国同专业第一](http://www.play.hengshemaoyi.cn/xiju/9145960.htm)
-- [小米澎程：电池热失控后不起火、爆炸](http://www.movie.hkepx.cn/xiju/2578023.htm)
+- [小米澎程：电池热失控后不起火、爆炸](http://www.play.hengshemaoyi.cn/xiju/5663353.htm)
+- [网逃人员到户籍窗口补办身份证被抓](http://www.movie.hkepx.cn/xiju/5950485.htm)
+- [纯数学研究者未来会被 AI 取代吗？](http://www.movie.hkepx.cn/movie/9193128.htm)
+- [妻子产后抑郁自缢 娘家两度起诉女婿](http://www.daogukj.com/atarmjde/)
+- [三星堆：是谁杀死了他们的神？](http://www.play.hengshemaoyi.cn/xiju/9145960.htm)
+- [雷军晒15年前小米手机发布会](http://www.movie.hkepx.cn/xiju/2578023.htm)
 - [“中国游”圈粉全球](http://www.daogukj.com/5709010)
-- [雷军晒15年前小米手机发布会](http://www.daogukj.com/wpzjvegw/)
-- [河南教师清理双户口后常用户口因「虚假户口」被注销成黑户，警方同意重报但无法恢复，如何从法律角度解读？](http://www.play.hengshemaoyi.cn/xiju/4598532.htm)
-- [台当局查扣首辆张雪机车在怕什么](http://www.play.hengshemaoyi.cn/kongbu/0125652.htm)
-- [82岁老戏骨赵淑珍在哈尔滨演出](http://www.movie.hkepx.cn/xiju/2411242.htm)
-- [看完心跳停止 ，可以纳入影史的一坨史--《牛来》观影吐槽【周余】](http://www.daogukj.com/6900199)
+- [女子展示空翻后上马失败](http://www.daogukj.com/wpzjvegw/)
+- [于东来打卡小饭店消费380硬要付600](http://www.play.hengshemaoyi.cn/xiju/4598532.htm)
+- [榜一大哥打赏女主播超千万求交往，遭拒后起诉其诈骗，如何从法律角度解读？](http://www.play.hengshemaoyi.cn/kongbu/0125652.htm)
+- [日军在南京每晚一千起强奸案](http://www.movie.hkepx.cn/xiju/2411242.htm)
+- [电视剧「蜗居」里的宋思明权力那么大，为什么没把海藻安排进体制内？](http://www.daogukj.com/6900199)
 - [制作糖果的流程—解压](http://www.movie.hkepx.cn/xiju/8302101.htm)
-- [中国博主发布进入靖国神社视频](http://www.daogukj.com/vrviqqsc/)
-- [张柏芝演唱会现场告白青岛](http://www.daogukj.com/5803945)
+- [西安女子 3 万全款拿下宝鸡 40 平老房，你会入手这类「万元老破小」吗？这种低压力买房思路你认同吗？](http://www.daogukj.com/vrviqqsc/)
+- [曾辉把炎亚纶炸出来了](http://www.daogukj.com/5803945)
 - [网友称吃寿司郎遇到邻桌光脚踩水龙头，要求当面消毒，店员则拒绝称需要空置半小时消杀，门店的行为有问题吗？](http://www.daogukj.com/pggqhldb/)
-- [我们的少年时代2青春主场海报](http://www.play.hengshemaoyi.cn/xiju/9613239.htm)
-- [【独家】时光代理人 第三季 PartOne 第2集 困兽【8月国创】](http://www.movie.hkepx.cn/xiju/1355542.htm)
-- [榜一大哥打赏女主播超千万求交往，遭拒后起诉其诈骗，如何从法律角度解读？](http://www.play.hengshemaoyi.cn/xiju/7010661.htm)
-- [电视剧「蜗居」里的宋思明权力那么大，为什么没把海藻安排进体制内？](http://www.movie.hkepx.cn/xiju/1893259.htm)
-- [国家叫停「速成车」，新国标落地将如何影响消费者购车？](http://www.daogukj.com/3906187)
-- [许昌店主称胖东来附近店面会很难抢](http://www.daogukj.com/3891201)
-- [四六级](http://www.movie.hkepx.cn/movie/0469338.htm)
-- [最多落后28分！中国男篮热身赛惨败乌拉圭，赵嘉义17分，李弘权10+7，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/9519674.htm)
-- [男子造谣青岛大学校徽像旭日旗被拘](http://www.daogukj.com/8314048)
-- [2026年WTT瑞典大满贯，张本美和 4-0 轻取陈熠晋级女单四强，怎么评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/8783645.htm)
-- [旺旺晒出无糖低糖新品](http://www.play.hengshemaoyi.cn/kongbu/2446487.htm)
-- [跑完鹤岗半马直达鹤岗小串](http://www.movie.hkepx.cn/xiju/1583083.htm)
-- [沈腾这次让人哭惨了](http://www.movie.hkepx.cn/movie/7949727.htm)
-- [家里六岁男孩，一遇到不顺自己心意的事就哭得很伤心，不完全是撒泼胡闹，该如何帮助引导孩子？](http://www.movie.hkepx.cn/xiju/7893335.htm)
-- [老人闯高速身亡子女索赔13万](http://www.movie.hkepx.cn/movie/6332074.htm)
-- [胖东来将闭门店28个收银口排长龙](http://www.movie.hkepx.cn/xiju/9763550.htm)
-- [“龙餐馆”从容迎战“奥德赛”](http://www.movie.hkepx.cn/movie/0911321.htm)
+- [山西挖眼案男孩高考全国同专业第一](http://www.play.hengshemaoyi.cn/xiju/9613239.htm)
+- [00后女儿和80后妈妈前后脚生娃](http://www.movie.hkepx.cn/xiju/1355542.htm)
+- [赛伯朋克之大圣归来：耗时两年半，精品制作，一口气看完。](http://www.play.hengshemaoyi.cn/xiju/7010661.htm)
+- [男子造谣青岛大学校徽像旭日旗被拘](http://www.movie.hkepx.cn/xiju/1893259.htm)
+- [82岁老戏骨赵淑珍在哈尔滨演出](http://www.daogukj.com/3906187)
+- [越南航空波音787航班慕尼黑紧急返航](http://www.daogukj.com/3891201)
+- [“辣条一哥”不好当](http://www.movie.hkepx.cn/movie/0469338.htm)
+- [专访无偿捐赠日军侵华史料少年](http://www.play.hengshemaoyi.cn/kongbu/9519674.htm)
+- [请3天假连休13天](http://www.daogukj.com/8314048)
+- [如何看待《欢迎到龙餐馆》讲中东故事，却全程国内取景拍摄，手搓一座乱世下的中东城？](http://www.play.hengshemaoyi.cn/xiju/8783645.htm)
+- [专家：下半年股市四条主线已清晰](http://www.play.hengshemaoyi.cn/kongbu/2446487.htm)
+- [群演待遇 8小时后1.5倍工资](http://www.movie.hkepx.cn/xiju/1583083.htm)
+- [手机涨价何时是个头](http://www.movie.hkepx.cn/movie/7949727.htm)
+- [张柏芝演唱会现场告白青岛](http://www.movie.hkepx.cn/xiju/7893335.htm)
+- [村民举报：自费查出致癌物超标](http://www.movie.hkepx.cn/movie/6332074.htm)
+- [你好星期六七夕全员错付](http://www.movie.hkepx.cn/xiju/9763550.htm)
+- [不同科室的医生都有什么特别心爱的物品吗？](http://www.movie.hkepx.cn/movie/0911321.htm)
 - [准高三生看完《奥本海默》后深感自己平庸，该如何接受与顶尖天才的差距？](http://www.movie.hkepx.cn/movie/1570496.htm)
-- [越南航空波音787航班慕尼黑紧急返航](http://www.movie.hkepx.cn/xiju/5460806.htm)
-- [王传君终于原谅爱情公寓了](http://www.movie.hkepx.cn/xiju/3915542.htm)
+- [孩子考上985 全家免三年物业费](http://www.movie.hkepx.cn/xiju/5460806.htm)
+- [台当局查扣首辆张雪机车在怕什么](http://www.movie.hkepx.cn/xiju/3915542.htm)
 - [醉鹅娘涉嫌走私遭起诉，年销3.5亿的网红品牌，为何走到刑事公诉这一步？醉鹅娘可能面临什么？](http://www.daogukj.com/obnsavya/)
-- [法国最有松弛感的劫案是哪起？【硬核狠人91】](http://www.daogukj.com/thtteqlc/)
+- [由上影元授权，第五人格×上海美术电影制片厂《九色鹿》联动PV正式公开！](http://www.daogukj.com/thtteqlc/)
 - [《明日方舟》EP - Summer Calling](http://www.daogukj.com/6398059)
-- [我们的少年时代2主角设定](http://www.daogukj.com/5238190)
+- [突然发现世界真的会奖励善良的人](http://www.daogukj.com/5238190)
 
 </details>
 
 ## 原始来源
 
-- [任素汐成都演唱会泪洒舞台](https://www.baidu.com/s?wd=%E4%BB%BB%E7%B4%A0%E6%B1%90%E6%88%90%E9%83%BD%E6%BC%94%E5%94%B1%E4%BC%9A%E6%B3%AA%E6%B4%92%E8%88%9E%E5%8F%B0&sa=fyb_news&rsv_dl=fyb_news)
+- [曝谷爱凌LV三公子恋情](https://s.weibo.com/weibo?q=%E6%9B%9D%E8%B0%B7%E7%88%B1%E5%87%8CLV%E4%B8%89%E5%85%AC%E5%AD%90%E6%81%8B%E6%83%85)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 8f6caf2ef01ef899abf6 -->
+<!-- content-fingerprint: ec6c1718fef20463add2 -->
