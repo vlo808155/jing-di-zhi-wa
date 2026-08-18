@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 全红婵现身广东省运会跳水赛场观战
+# 章子怡到手了3个亿 不是通过演戏
 
-> 来源：百度热搜 · 排名：第 19 位 · 热度：5989469 · 更新：2026-08-19T02:52:30+08:00
+> 来源：百度热搜 · 排名：第 19 位 · 热度：5998977 · 更新：2026-08-19T03:22:12+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“全红婵现身广东省运会跳水赛场观战”位列第 19 位，公开热度指标为 5989469。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“章子怡到手了3个亿 不是通过演戏”位列第 19 位，公开热度指标为 5998977。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月18日，全红婵现身广东省运会跳水赛场观战，志愿者偶遇她后激动到语无伦次。
+来源公开摘要显示：8月11日，港股上市公司上美股份发布公告，其全资附属公司上海青道将从共青城大脚投资合伙企业处，收购婴童护肤品牌“newpage一页”母公司上海怡页23%的股权。该有限合伙由章子怡出资99%、其父章元孝出资1%设立，章子怡2022年首次持股上海怡页时认缴出资仅290万元，4年时间这笔数百万的投资直接套现超3亿元。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,8 +18,8 @@
 
 ## 相关热点
 
-- [杭州酒局事件嫌疑人会被判多久](miao-bi-sheng-hua.md)
-- [上海公布2026年社保缴费基数上下限](sheng-dong-huo-po.md)
+- [周洛汐演唱会喊话KPOP三大公司](miao-bi-sheng-hua.md)
+- [方程豹钛9官宣成都车展全球首秀](sheng-dong-huo-po.md)
 - [BBA集体大降价，宝马5系跌至28万、奔驰E级优惠超10万，传统豪华车的价格体系是如何走向瓦解的？](xu-xu-ru-sheng.md)
 - [不缩小20倍，我也吃不了这么多呀……#全世界都吃不下，只有我吃到服务器瘫痪](huo-ling-huo-xian.md)
 
@@ -28,8 +28,8 @@
 - [《商务柔道》](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
 - [《影之刃零》专场 State of Play 全程回顾](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
 - [餐馆未打码曝光逃单顾客照片引争议](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [游泳警惕腺病毒 暂无特效药](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [被央视曝光 云南通报调查结果](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [药片切勿随意掰开](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [南极电商卖吊牌卖出了六亿官司](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
@@ -38,61 +38,61 @@
 
 - [榴莲价格大幅回落，多地金枕榴莲售价降至19.9元一斤，为什么会降这么多？你最近买了吗？](http://www.movie.hkepx.cn/movie/8910900.htm)
 - [现在该不该换手机](http://www.play.hengshemaoyi.cn/kongbu/1452959.htm)
-- [何炅因年龄大被密室拒绝](http://www.movie.hkepx.cn/movie/4326545.htm)
+- [做事千万不要有状态洁癖](http://www.movie.hkepx.cn/movie/4326545.htm)
 - [地球毁灭后，人类只剩四条路｜你会把文明带向哪里？](http://www.movie.hkepx.cn/movie/1643509.htm)
 - [餐馆未打码曝光逃单顾客照片引争议](http://www.daogukj.com/3734905)
 - [当你相亲遇到天价嫁妆](http://www.play.hengshemaoyi.cn/kongbu/4707077.htm)
-- [柯洁装弱智赢AI围棋](http://www.play.hengshemaoyi.cn/xiju/9679366.htm)
+- [你的经济属于什么水平](http://www.play.hengshemaoyi.cn/xiju/9679366.htm)
 - [“南京某培训机构失火致人伤亡”不实](http://www.movie.hkepx.cn/movie/8897904.htm)
 - [魅力四射](http://www.play.hengshemaoyi.cn/xiju/8041326.htm)
 - [官方调整住房公积金政策，租房提取公积金取消收入比例门槛，装修自住住房可提取公积金，哪些变化值得关注？](http://www.daogukj.com/8279615)
 - [朱镕基同志生平](http://www.movie.hkepx.cn/xiju/6205852.htm)
-- [外交部直接把靖国神社称作战犯神社](http://www.movie.hkepx.cn/xiju/0712642.htm)
+- [李敏嫁给了李敏 两人同年同地出生](http://www.movie.hkepx.cn/xiju/0712642.htm)
 - [宇树科技发布「超人」，原地跳高 2米、奔跑极限速度每秒 12.66 米，人形机器人距离实用还有多远？](http://www.movie.hkepx.cn/xiju/6035249.htm)
 - [《欢迎来龙餐馆》里，赛夫最后说服了 23 个孩子一起逃跑，在密谋的时候，就不怕这些孩子们向校长告密吗？](http://www.daogukj.com/4744923)
-- [被央视曝光 云南通报调查结果](http://www.movie.hkepx.cn/movie/5089029.htm)
-- [中国小伙去越南见女友家长坠海失踪](http://www.movie.hkepx.cn/movie/2615772.htm)
+- [南极电商卖吊牌卖出了六亿官司](http://www.movie.hkepx.cn/movie/5089029.htm)
+- [女子落水后冷静“躺平”近1小时获救](http://www.movie.hkepx.cn/movie/2615772.htm)
 - [我看看谁错字了！](http://www.play.hengshemaoyi.cn/kongbu/7334127.htm)
 - [童年最大愿望实现啦！100元在各家能买多少汉堡？！](http://www.daogukj.com/ptpekaap/)
-- [Jennie发文道歉](http://www.daogukj.com/7356664)
-- [杭州酒局事件嫌疑人会被判多久](http://www.daogukj.com/ayichqdz/)
-- [美股](http://www.movie.hkepx.cn/xiju/2706147.htm)
-- [全国首例反强拆致死判正当防卫案](http://www.play.hengshemaoyi.cn/xiju/6688215.htm)
-- [评论员：菲律宾必须拖走坐滩军舰](http://www.daogukj.com/cndcdbte/)
+- [中国小伙去越南见女友家长坠海失踪](http://www.daogukj.com/7356664)
+- [周洛汐演唱会喊话KPOP三大公司](http://www.daogukj.com/ayichqdz/)
+- [外卖备注孩子化疗收到100元现金](http://www.movie.hkepx.cn/xiju/2706147.htm)
+- [美股](http://www.play.hengshemaoyi.cn/xiju/6688215.htm)
+- [俄会对土耳其采取报复行动吗](http://www.daogukj.com/cndcdbte/)
 - [公积金新政来了](http://www.daogukj.com/3515388)
 - [【独家】《百日成王》第17集 每一场应援就像一场战斗！【7月国创】](http://www.movie.hkepx.cn/movie/2280366.htm)
-- [男子在景德镇卖树叶10元一片](http://www.movie.hkepx.cn/xiju/9102843.htm)
+- [“无糖”为何尝起来甜](http://www.movie.hkepx.cn/xiju/9102843.htm)
 - [萨特：当所有人都在定义你，你还能怎么做自己？](http://www.movie.hkepx.cn/xiju/6537051.htm)
 - [《鸣潮》共鸣者「清宵」PV | 修行](http://www.daogukj.com/vzsgeebf/)
 - [我们不欢迎这样的客人，也不赚这种米](http://www.play.hengshemaoyi.cn/kongbu/3922698.htm)
-- [75岁王石再创业](http://www.play.hengshemaoyi.cn/kongbu/6040149.htm)
+- [中科院80后博士干出460亿激光器王国](http://www.play.hengshemaoyi.cn/kongbu/6040149.htm)
 - [“泔水喂猪”被正式写入禁令](http://www.daogukj.com/4077362)
 - [Dior全球公关总监去世](http://www.movie.hkepx.cn/movie/8186635.htm)
-- [药片切勿随意掰开](http://www.daogukj.com/hrahgoeh/)
-- [周洛汐演唱会喊话KPOP三大公司](http://www.movie.hkepx.cn/xiju/7623213.htm)
+- [4S店“爆改”大排档健身房](http://www.daogukj.com/hrahgoeh/)
+- [杭州酒局事件嫌疑人会被判多久](http://www.movie.hkepx.cn/xiju/7623213.htm)
 - [杭州酒局事件赵某峰郁某栋被刑拘](http://www.play.hengshemaoyi.cn/kongbu/4814140.htm)
 - [《一切正常｜異常なし》MV：当所有日本人都说没问题 那问题大了](http://www.daogukj.com/3537481)
 - [反抗暴力强拆致死被判无罪当事人发声](http://www.play.hengshemaoyi.cn/kongbu/7154027.htm)
 - [档案袋被长辈不慎拆开，毕业生崩溃大吼，学生的档案袋里都有什么？不小心被拆开后如何补救？](http://www.play.hengshemaoyi.cn/xiju/0242395.htm)
 - [《商务柔道》](http://www.play.hengshemaoyi.cn/xiju/7718342.htm)
 - [某酸奶因宣传「促进消化」被罚，酸奶中含有乳酸菌能帮助消化不是常识吗？](http://www.play.hengshemaoyi.cn/kongbu/7089205.htm)
-- [伊朗称「美军比想象中更弱」，这一判断基于哪些事实，反映出美军的何种现状？](http://www.play.hengshemaoyi.cn/xiju/7227900.htm)
+- [罗斯柴尔德家族真的像《货币战争》中描述的那么厉害吗？](http://www.play.hengshemaoyi.cn/xiju/7227900.htm)
 - [胖东来招聘不包含性侵犯罪人员](http://www.daogukj.com/9191044)
 - [河南钻石把英伟达馋哭了](http://www.daogukj.com/6256754)
 - [蒙古不法分子擅闯中资营地侮辱员工](http://www.play.hengshemaoyi.cn/kongbu/3838323.htm)
-- [公积金制度调整释放了哪些信号](http://www.movie.hkepx.cn/movie/3822357.htm)
+- [吃花生能为我们身体带来哪些好处](http://www.movie.hkepx.cn/movie/3822357.htm)
 - [诺兰在《奥德赛》中批判了木马计，认为诡计会摧毁文明的根基，这种崇尚仁义的战争观在现实中可行吗？](http://www.movie.hkepx.cn/movie/9519234.htm)
-- [打过四价九价HPV疫苗不用再打双价](http://www.play.hengshemaoyi.cn/xiju/4782804.htm)
+- [爱奇艺第二季度收入62.9亿元](http://www.play.hengshemaoyi.cn/xiju/4782804.htm)
 - [忍术回战 26分钟沉浸式观看](http://www.daogukj.com/urxbddis/)
 - [绝境降临！狭小缆车空间怎样熬过危机四伏的一百天！！「缆车惊变100天」](http://www.movie.hkepx.cn/xiju/7315864.htm)
-- [外卖备注孩子化疗收到100元现金](http://www.play.hengshemaoyi.cn/xiju/8904435.htm)
+- [柯洁装弱智赢AI围棋](http://www.play.hengshemaoyi.cn/xiju/8904435.htm)
 
 </details>
 
 ## 原始来源
 
-- [全红婵现身广东省运会跳水赛场观战](https://www.baidu.com/s?wd=%E5%85%A8%E7%BA%A2%E5%A9%B5%E7%8E%B0%E8%BA%AB%E5%B9%BF%E4%B8%9C%E7%9C%81%E8%BF%90%E4%BC%9A%E8%B7%B3%E6%B0%B4%E8%B5%9B%E5%9C%BA%E8%A7%82%E6%88%98&sa=fyb_news&rsv_dl=fyb_news)
+- [章子怡到手了3个亿 不是通过演戏](https://www.baidu.com/s?wd=%E7%AB%A0%E5%AD%90%E6%80%A1%E5%88%B0%E6%89%8B%E4%BA%863%E4%B8%AA%E4%BA%BF+%E4%B8%8D%E6%98%AF%E9%80%9A%E8%BF%87%E6%BC%94%E6%88%8F&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: cd8c9a513d68aae73e27 -->
+<!-- content-fingerprint: 2002604a8131c428cfbf -->
