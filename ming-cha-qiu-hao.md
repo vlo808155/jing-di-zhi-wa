@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 朱雀三号回收成功有何意义
+# 为什么多数猫都不怕蛇，毒蛇也不怕么?
 
-> 来源：今日头条热榜 · 排名：第 18 位 · 热度：7217163 · 分类：热门事件 · 更新：2026-08-19T15:23:45+08:00
+> 来源：知乎热榜 · 排名：第 18 位 · 热度：87 万热度 · 分类：问答 · 更新：2026-08-19T16:00:53+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“朱雀三号回收成功有何意义”位列第 18 位，公开热度指标为 7217163，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“为什么多数猫都不怕蛇，毒蛇也不怕么?”位列第 18 位，公开热度指标为 87 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：[视频]
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [为什么多数猫都不怕蛇，毒蛇也不怕么?](jian-wei-zhi-zhu.md)
-- [音画不同步！为什么视频口型总是怪怪的？](du-ju-hui-yan.md)
-- [女子买猫窝到货后爬出一只猫](bie-ju-jiang-xin.md)
-- [KPL](qiao-duo-tian-gong.md)
+- [韩国从黄金时代到黑铁](jian-wei-zhi-zhu.md)
+- [小米新一代人形机器人剧透](du-ju-hui-yan.md)
+- [中国足协回应不当招待](bie-ju-jiang-xin.md)
+- [75岁王石再创业](qiao-duo-tian-gong.md)
 
 ## 站内推荐
 
-- [孟子义李昀锐白天避嫌晚上营业](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [TOP无畏契约表演赛直播](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [范丞丞怎么瘦了这么多](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [受害者同事听说杭州酒局事件哭了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [胖东来招聘不包含性侵犯罪人员](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [女孩买空座放零食大姐想坐遭拒](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [王兴兴曾用自己积蓄发薪](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [博主造谣赵尚志烈士哥哥冒领抚恤金](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [村民称台湾火箭发射失败差点进村](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [绝境降临！狭小缆车空间怎样熬过危机四伏的一百天！！「缆车惊变100天」](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [蓝盈莹要求工作群消息尽量秒回](http://www.daogukj.com/4857502)
-- [朱雀三号 高速状态下一把停车入库](http://www.daogukj.com/fxomsuem/)
-- [全民医保“十五五”规划来了](http://www.play.hengshemaoyi.cn/xiju/4881423.htm)
-- [“龙餐馆”走红 谁又“破防”了](http://www.movie.hkepx.cn/xiju/2224998.htm)
-- [未来5年，优化医保便民这么干](http://www.daogukj.com/xislksiq/)
-- [A股收盘 创业板指低开低走跌超6%](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
-- [韩国从黄金时代到黑铁](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
-- [互联网大厂开始后悔搞AI了吗？](http://www.movie.hkepx.cn/xiju/3925704.htm)
-- [如何看待胖东来澄清称招聘不包含性侵、严重暴力等犯罪人员？这一回应能打消此前的质疑吗？](http://www.daogukj.com/zjqbftsa/)
-- [窦唯女儿自曝与父亲前20年无联系](http://www.daogukj.com/odtszjmj/)
-- [北电副院长1200万动画票房0](http://www.movie.hkepx.cn/movie/8285885.htm)
-- [范丞丞怎么瘦了这么多](http://www.movie.hkepx.cn/xiju/1770369.htm)
-- [孟子义李昀锐白天避嫌晚上营业](http://www.daogukj.com/8527580)
-- [输球不该把火撒在孩子身上](http://www.daogukj.com/9299314)
-- [章子怡布局科技影视等多条赛道](http://www.daogukj.com/5812229)
-- [免费的deepseek能比得上200美元/月的ChatGPT吗？](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
-- [四川长宁县一升学宴女儿墙倒塌致 5 人死亡，女儿墙是什么？此次事故暴露了哪些安全隐患？](http://www.daogukj.com/5338633)
-- [七夕](http://www.movie.hkepx.cn/xiju/7272064.htm)
-- [为什么多数猫都不怕蛇，毒蛇也不怕么?](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
-- [为什么孙继海搞青训却不敢去比赛呢？](http://www.daogukj.com/3351222)
-- [宇树高开629%后最低跌至882元](http://www.play.hengshemaoyi.cn/xiju/0501282.htm)
-- [为何湖北的经济总量大于安徽?](http://www.movie.hkepx.cn/movie/7142641.htm)
-- [受害者同事听说杭州酒局事件哭了](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
+- [央视七夕晚会节目单来了](http://www.daogukj.com/4857502)
+- [如何评价发售一年后国产单机游戏《明末：渊虚之羽》开始风评反转？](http://www.daogukj.com/fxomsuem/)
+- [未来5年全民医保这样干](http://www.play.hengshemaoyi.cn/xiju/4881423.htm)
+- [中国足协回应工作人员遭韩国性贿赂](http://www.movie.hkepx.cn/xiju/2224998.htm)
+- [如何看待胖东来澄清称招聘不包含性侵、严重暴力等犯罪人员？这一回应能打消此前的质疑吗？](http://www.daogukj.com/xislksiq/)
+- [谢娜杨迪用错杯子去后台吐了](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
+- [医生居家训练一年 高血脂练回正常](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
+- [七夕节老番茄就和自己玩游戏](http://www.movie.hkepx.cn/xiju/3925704.htm)
+- [第一视角看高中生抢饭（夜宵版）](http://www.daogukj.com/zjqbftsa/)
+- [二搭会让内娱爆炸的男女主](http://www.daogukj.com/odtszjmj/)
+- [中国实现火箭陆地回收 外媒反应来了](http://www.movie.hkepx.cn/movie/8285885.htm)
+- [博主造谣赵尚志烈士哥哥冒领抚恤金](http://www.movie.hkepx.cn/xiju/1770369.htm)
+- [女孩买空座放零食大姐想坐遭拒](http://www.daogukj.com/8527580)
+- [TOP无畏契约表演赛直播](http://www.daogukj.com/9299314)
+- [韩国被曝性贿赂3名中国足协人士](http://www.daogukj.com/5812229)
+- [Selina胖了好多](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
+- [《七界梦谭》天上谣三测PV：神仙过招，好戏开场！](http://www.daogukj.com/5338633)
+- [剩菜剩饭直接喂猪违法](http://www.movie.hkepx.cn/xiju/7272064.htm)
+- [韩国从黄金时代到黑铁](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
+- [萨特：当所有人都在定义你，你还能怎么做自己？](http://www.daogukj.com/3351222)
+- [减肥避谶](http://www.play.hengshemaoyi.cn/xiju/0501282.htm)
+- [忍术回战 26分钟沉浸式观看](http://www.movie.hkepx.cn/movie/7142641.htm)
+- [村民称台湾火箭发射失败差点进村](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
 - [朱雀三号成功回收，我国首次实现火箭陆地回收，这一突破对我国航天意味着什么？](http://www.movie.hkepx.cn/xiju/5072930.htm)
-- [女孩买空座放零食大姐想坐遭拒](http://www.daogukj.com/mkxvsuhn/)
-- [王兴兴 90后新首富](http://www.daogukj.com/9044973)
-- [七夕节老番茄就和自己玩游戏](http://www.daogukj.com/6197852)
-- [【独家】《百日成王》第17集 每一场应援就像一场战斗！【7月国创】](http://www.daogukj.com/ryrqoiii/)
-- [王兴兴曾用自己积蓄发薪](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
-- [《鸡来》一个半小时超长电影！！！](http://www.play.hengshemaoyi.cn/kongbu/7063878.htm)
-- [中国足协回应不当招待](http://www.movie.hkepx.cn/movie/2552102.htm)
-- [《商务柔道》](http://www.movie.hkepx.cn/xiju/2129564.htm)
+- [三体人为什么敢光明正大地侵略地球？](http://www.daogukj.com/mkxvsuhn/)
+- [孟子义李昀锐白天避嫌晚上营业](http://www.daogukj.com/9044973)
+- [宇树IPO 王兴兴表情平静得像打工人](http://www.daogukj.com/6197852)
+- [粉笔李梦圆宣布辞职](http://www.daogukj.com/ryrqoiii/)
+- [弟弟举报哥哥冒名上大学案开庭，母亲称弟弟嫌农村人穷，究竟谁在说谎？](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
+- [多所高校发声辟谣](http://www.play.hengshemaoyi.cn/kongbu/7063878.htm)
+- [创业板指跌超6% 全市场逾百股跌停](http://www.movie.hkepx.cn/movie/2552102.htm)
+- [窦唯女儿自曝与父亲前20年无联系](http://www.movie.hkepx.cn/xiju/2129564.htm)
 - [曝韩方性贿赂中国足协人士 足协回应](http://www.daogukj.com/1731517)
-- [三体人为什么敢光明正大地侵略地球？](http://www.daogukj.com/0178251)
-- [宇树科技开盘大涨 629% ，盘中跳水带崩机器人板块，总市值跌超 800 亿，如何评价其市场表现？](http://www.movie.hkepx.cn/movie/2491274.htm)
-- [现在看病已经进化到这种程度了](http://www.daogukj.com/1710555)
-- [我疯了！打造现实版海绵宝宝手套乐园！](http://www.daogukj.com/iqnxgakx/)
-- [《水浒传》这组采访花絮火了](http://www.daogukj.com/evhpdqcv/)
-- [第一视角看高中生抢饭（夜宵版）](http://www.movie.hkepx.cn/movie/9669872.htm)
-- [胖东来 刑期五年以上门槛](http://www.play.hengshemaoyi.cn/xiju/7739320.htm)
-- [石家庄部分坍塌居民楼建于80年代](http://www.movie.hkepx.cn/xiju/6624711.htm)
-- [七夕 冷清](http://www.movie.hkepx.cn/movie/0041132.htm)
-- [KPL](http://www.movie.hkepx.cn/xiju/9486629.htm)
-- [转转回收 RTX5090 仅报 1.3 万元引网友热议，二手平台定价是否合理？](http://www.movie.hkepx.cn/movie/9796335.htm)
-- [大V：宇树敲钟不只是一个人的故事](http://www.daogukj.com/0823826)
-- [25 年来最贵美债横空出世，美联储没加息，市场却完成一轮「被动加息」，有何影响？美债收益率为何飙升？](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
-- [未来5年全民医保这样干](http://www.movie.hkepx.cn/movie/5397309.htm)
-- [申花0-3国安后，一名身穿中国国家队武磊球衣的孩子与其父亲被极端申花球迷围住指责，你如何看待这件事情？](http://www.daogukj.com/0899815)
-- [厨房纸 致癌物](http://www.play.hengshemaoyi.cn/xiju/2828553.htm)
-- [减肥避谶](http://www.daogukj.com/cachqmkl/)
+- [我们不欢迎这样的客人，也不赚这种米](http://www.daogukj.com/0178251)
+- [【萌黄一槽】享受痛觉吧！飞段[晓·三]全技能爆料！](http://www.movie.hkepx.cn/movie/2491274.htm)
+- [为什么你现在不发朋友圈了？](http://www.daogukj.com/1710555)
+- [同济大学 人事改革](http://www.daogukj.com/iqnxgakx/)
+- [李昀锐孟子义七夕物料不像演的](http://www.daogukj.com/evhpdqcv/)
+- [全民医保“十五五”规划来了](http://www.movie.hkepx.cn/movie/9669872.htm)
+- [公积金新政来了](http://www.play.hengshemaoyi.cn/xiju/7739320.htm)
+- [宇树上市后，创始人身家超 1300 亿成90后首富，23 名员工成千万富豪，如何看待宇树的造富神话？](http://www.movie.hkepx.cn/xiju/6624711.htm)
+- [专家：要给宇树科技狂热投资者降降温](http://www.movie.hkepx.cn/movie/0041132.htm)
+- [75岁王石再创业](http://www.movie.hkepx.cn/xiju/9486629.htm)
+- [我疯了！打造现实版海绵宝宝手套乐园！](http://www.movie.hkepx.cn/movie/9796335.htm)
+- [特朗普寻求 11 月与金正恩会晤，并称金正恩已回应「对话」请求，释放了什么信号？](http://www.daogukj.com/0823826)
+- [【原神一条龙全收集】至冬7.0(成就数345/冰神瞳140/摩拉120/影生翼滴58)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
+- [未来5年，优化医保便民这么干](http://www.movie.hkepx.cn/movie/5397309.htm)
+- [《如常运转｜正常運転》MV：全世界都会震惊于日本的灾后重建速度](http://www.daogukj.com/0899815)
+- [机器人在北京“上班”](http://www.play.hengshemaoyi.cn/xiju/2828553.htm)
+- [韩足协曾性贿赂中国裁判？中方调查](http://www.daogukj.com/cachqmkl/)
 
 </details>
 
 ## 原始来源
 
-- [朱雀三号回收成功有何意义](https://www.toutiao.com/trending/7675609360982085174/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2213%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227675609360982085174%22%2C%22hot_board_impr_id%22%3A%2220260819152344CD196D12568D1605524E%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
+- [为什么多数猫都不怕蛇，毒蛇也不怕么?](https://www.zhihu.com/question/1926691252964955460)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 2eb78926248474304f40 -->
+<!-- content-fingerprint: 1cdd8c1ec43c5ee46471 -->
