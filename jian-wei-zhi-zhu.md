@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 宇树科技发布「超人」，原地跳高 2米、奔跑极限速度每秒 12.66 米，人形机器人距离实用还有多远？
+# 外交部直接把靖国神社称作战犯神社
 
-> 来源：知乎热榜 · 排名：第 18 位 · 热度：95 万热度 · 分类：问答 · 更新：2026-08-19T07:59:31+08:00
+> 来源：今日头条热榜 · 排名：第 18 位 · 热度：5760992 · 更新：2026-08-19T09:48:22+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“宇树科技发布「超人」，原地跳高 2米、奔跑极限速度每秒 12.66 米，人形机器人距离实用还有多远？”位列第 18 位，公开热度指标为 95 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“外交部直接把靖国神社称作战犯神社”位列第 18 位，公开热度指标为 5760992。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月17日，宇树科技发布一段“超人”的30秒视频，该人形机器人可原地跳高2米，极限速度12.66m/s(0.85米腿长)，超越全世界全人类原地跳高和奔跑速度纪录。 宇树科技表示，全新整机刚用3个多月研发出来，未来几个月还有很大的完善空间。 值得一提的是，宇树科技即将上市。 宇树科技此前公布科创板IPO发行结果：发行价150.80元/股，对应市值约609.93亿元（约合90亿美元），网上中签率只有0.0181%，成为科创板史上最难中签的新股。上市前夕，宇树科技发布“超人”
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [我把你们对铜的逆天想法都做到了MC里...?!🤣](du-ju-hui-yan.md)
-- [75岁王石开健身房 每小时最高308元](bie-ju-jiang-xin.md)
-- [何炅因年龄大被密室拒绝](qiao-duo-tian-gong.md)
-- [女子落水后冷静“躺平”近1小时获救](gui-fu-shen-gong.md)
+- [小米集团第二季度总收入 1089 亿元，经调整净利润 62 亿元，如何评价其业绩表现？](du-ju-hui-yan.md)
+- [差点被系统误判扣分了，还好机制公平没冤枉我](bie-ju-jiang-xin.md)
+- [男子体验瀑降被困半空 住进精神科](qiao-duo-tian-gong.md)
+- [比野生狗奶还永久的存在出现了](gui-fu-shen-gong.md)
 
 ## 站内推荐
 
-- [如何评价网传消息「3700 均订起点作者因使用 AI 被斩杀」？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [25 年来最贵美债横空出世，美联储没加息，市场却完成一轮「被动加息」，有何影响？美债收益率为何飙升？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [伊朗称「美军比想象中更弱」，这一判断基于哪些事实，反映出美军的何种现状？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [「结婚8年3孩均非亲生」案女方当庭承认出轨，主张男方在婚内已知晓孩子非亲生，这会怎样影响法律判定？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
-- [BBA集体大降价，宝马5系跌至28万、奔驰E级优惠超10万，传统豪华车的价格体系是如何走向瓦解的？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
+- [宇树科技开盘暴涨629.44%](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
+- [人形机器人热身赛飞速过弯撞上电箱](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [博主造谣赵尚志烈士哥哥冒领抚恤金](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [究竟是谁在刻意收窄台海和平窗口](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [如何看待胖东来的“反商业”逻辑](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [杭州酒局事件赵某峰郁某栋被刑拘](http://www.daogukj.com/sqkgthem/)
-- [宇树科技今日上市](http://www.play.hengshemaoyi.cn/xiju/2157274.htm)
-- [女子开门杀反遭关门杀](http://www.daogukj.com/qzvccsto/)
-- [热点事件网络围观必备素养](http://www.daogukj.com/9017409)
-- [男子在景德镇卖树叶10元一片](http://www.movie.hkepx.cn/movie/5908744.htm)
-- [75岁王石再创业](http://www.movie.hkepx.cn/movie/7241164.htm)
-- [“泔水喂猪”被正式写入禁令](http://www.movie.hkepx.cn/xiju/4493313.htm)
-- [做事千万不要有状态洁癖](http://www.movie.hkepx.cn/movie/0771662.htm)
-- [朱镕基同志生平](http://www.movie.hkepx.cn/xiju/0992447.htm)
-- [官方通报杭州酒局事件](http://www.movie.hkepx.cn/movie/0097227.htm)
-- [蒙古不法分子擅闯中资营地侮辱员工](http://www.play.hengshemaoyi.cn/xiju/0858406.htm)
-- [外交部改口：把靖国神社称作战犯神社](http://www.movie.hkepx.cn/xiju/5889900.htm)
-- [穆祉丞像七夕报备的男友](http://www.movie.hkepx.cn/movie/4398357.htm)
-- [萨特：当所有人都在定义你，你还能怎么做自己？](http://www.play.hengshemaoyi.cn/xiju/3710304.htm)
-- [天蚕土豆新书更新8天吸流1100多万，这是成功了吗？](http://www.daogukj.com/1582634)
-- [60万亿元，打开消费增长新空间](http://www.movie.hkepx.cn/xiju/7460057.htm)
-- [胖东来招聘不包含性侵犯罪人员](http://www.daogukj.com/iuhthsij/)
-- [我国首次实现火箭陆地回收](http://www.movie.hkepx.cn/xiju/2237917.htm)
-- [伊朗称「美军比想象中更弱」，这一判断基于哪些事实，反映出美军的何种现状？](http://www.movie.hkepx.cn/movie/0845608.htm)
-- [如何评价网传丘成桐少年班改革方案？](http://www.daogukj.com/8581680)
-- [究竟是谁在刻意收窄台海和平窗口](http://www.movie.hkepx.cn/xiju/4507906.htm)
-- [七夕](http://www.movie.hkepx.cn/xiju/3471686.htm)
-- [公积金新政来了](http://www.play.hengshemaoyi.cn/xiju/5571527.htm)
-- [「结婚8年3孩均非亲生」案女方当庭承认出轨，主张男方在婚内已知晓孩子非亲生，这会怎样影响法律判定？](http://www.play.hengshemaoyi.cn/kongbu/8650783.htm)
-- [忍术回战 26分钟沉浸式观看](http://www.daogukj.com/3850284)
-- [住房公积金大变化](http://www.movie.hkepx.cn/xiju/1958046.htm)
-- [《鸣潮》共鸣者「清宵」PV | 修行](http://www.movie.hkepx.cn/movie/3150925.htm)
-- [美股](http://www.daogukj.com/twsaunno/)
-- [有外卖平台在部分区域落地「红灯停表」，实测发现骑手等灯2分钟，系统可补回，能否缓解骑手们的时效焦虑？](http://www.play.hengshemaoyi.cn/xiju/2788260.htm)
-- [柯洁装弱智赢AI围棋](http://www.movie.hkepx.cn/movie/8401072.htm)
-- [如何评价网传消息「3700 均订起点作者因使用 AI 被斩杀」？](http://www.daogukj.com/5256425)
-- [小熊电器净利暴跌 41%，那些曾风靡一时的网红小家电为何集体「吃灰」？大家的消费选择发生了怎样的变化？](http://www.play.hengshemaoyi.cn/kongbu/6811189.htm)
-- [BBA集体大降价，宝马5系跌至28万、奔驰E级优惠超10万，传统豪华车的价格体系是如何走向瓦解的？](http://www.movie.hkepx.cn/movie/7189595.htm)
-- [档案袋被长辈不慎拆开，毕业生崩溃大吼，学生的档案袋里都有什么？不小心被拆开后如何补救？](http://www.movie.hkepx.cn/xiju/1481443.htm)
-- [【独家】《百日成王》第17集 每一场应援就像一场战斗！【7月国创】](http://www.movie.hkepx.cn/movie/5934231.htm)
-- [“南京某培训机构失火致人伤亡”不实](http://www.daogukj.com/suhrxest/)
-- [地球毁灭后，人类只剩四条路｜你会把文明带向哪里？](http://www.play.hengshemaoyi.cn/xiju/8374811.htm)
-- [我们不欢迎这样的客人，也不赚这种米](http://www.movie.hkepx.cn/movie/5917708.htm)
-- [杭州酒局事件知情人：涉事者未喝多](http://www.movie.hkepx.cn/movie/2673504.htm)
-- [狗妈妈怕幼崽中暑每天叼进室内吹空调](http://www.movie.hkepx.cn/xiju/9719392.htm)
-- [医生：泡面不健康不是因为防腐剂](http://www.play.hengshemaoyi.cn/xiju/5111103.htm)
-- [一期疯了的读评论！](http://www.movie.hkepx.cn/xiju/7322023.htm)
-- [奥特曼中 出了一个怪兽的卧底【AI全民制作人】](http://www.daogukj.com/lqwdxuku/)
-- [75岁王石开健身房 每小时最高308元](http://www.movie.hkepx.cn/xiju/8204204.htm)
-- [朱雀三号](http://www.play.hengshemaoyi.cn/kongbu/5762471.htm)
-- [微信开放520大额红包 限时一天](http://www.play.hengshemaoyi.cn/xiju/3015624.htm)
-- [如何评价小宇宙播客《独树不成林》主播仲树疑似洗稿？](http://www.movie.hkepx.cn/movie/9539562.htm)
-- [章子怡到手3个亿 不是通过演戏](http://www.daogukj.com/1841885)
-- [居民回忆胖东来出钱帮修排水沟](http://www.play.hengshemaoyi.cn/kongbu/3844400.htm)
-- [小米集团第二季度总收入 1089 亿元，经调整净利润 62 亿元，如何评价其业绩表现？](http://www.daogukj.com/2839192)
+- [胖东来招聘不包含性侵犯罪人员](http://www.daogukj.com/sqkgthem/)
+- [萨特：当所有人都在定义你，你还能怎么做自己？](http://www.play.hengshemaoyi.cn/xiju/2157274.htm)
+- [热点事件网络围观必备素养](http://www.daogukj.com/qzvccsto/)
+- [《如常运转｜正常運転》MV：全世界都会震惊于日本的灾后重建速度](http://www.daogukj.com/9017409)
+- [【2026·8月电脑配置推荐】爆肝2万字！自费教你性价比装机，全实拍实测，2千~3万预算21套性价比电脑配置，小白建议收藏](http://www.movie.hkepx.cn/movie/5908744.htm)
+- [AirPods5曝光](http://www.movie.hkepx.cn/movie/7241164.htm)
+- [我们不欢迎这样的客人，也不赚这种米](http://www.movie.hkepx.cn/xiju/4493313.htm)
+- [“一抬头以为梁朝伟给我挑水果”](http://www.movie.hkepx.cn/movie/0771662.htm)
+- [四川一升学宴突发事故5人死亡](http://www.movie.hkepx.cn/xiju/0992447.htm)
+- [魅力四射](http://www.movie.hkepx.cn/movie/0097227.htm)
+- [反诈老陈宣布停更7天挣生活费](http://www.play.hengshemaoyi.cn/xiju/0858406.htm)
+- [一期疯了的读评论！](http://www.movie.hkepx.cn/xiju/5889900.htm)
+- [官方通报杭州酒局事件](http://www.movie.hkepx.cn/movie/4398357.htm)
+- [小熊电器净利暴跌 41%，那些曾风靡一时的网红小家电为何集体「吃灰」？大家的消费选择发生了怎样的变化？](http://www.play.hengshemaoyi.cn/xiju/3710304.htm)
+- [大疆和深圳是如何错过宇树科技的](http://www.daogukj.com/1582634)
+- [公积金用途又多了](http://www.movie.hkepx.cn/xiju/7460057.htm)
+- [朱雀三号遥一失败原因披露](http://www.daogukj.com/iuhthsij/)
+- [七夕](http://www.movie.hkepx.cn/xiju/2237917.htm)
+- [博主造谣赵尚志烈士哥哥冒领抚恤金](http://www.movie.hkepx.cn/movie/0845608.htm)
+- [专家谈深圳二手房价五连涨](http://www.daogukj.com/8581680)
+- [李现回沙溪古镇了](http://www.movie.hkepx.cn/xiju/4507906.htm)
+- [金枕榴莲也进入9.9元时代了](http://www.movie.hkepx.cn/xiju/3471686.htm)
+- [七夕文案](http://www.play.hengshemaoyi.cn/xiju/5571527.htm)
+- [究竟是谁在刻意收窄台海和平窗口](http://www.play.hengshemaoyi.cn/kongbu/8650783.htm)
+- [格力创办技工学校，首届招收三百名初中毕业生，毕业后可优先进入格力就业，这种培养模式前景如何？](http://www.daogukj.com/3850284)
+- [忍术回战 26分钟沉浸式观看](http://www.movie.hkepx.cn/xiju/1958046.htm)
+- [日本正式实施高端机床出口管制新规，这意味着什么？](http://www.movie.hkepx.cn/movie/3150925.htm)
+- [杭州酒局事件嫌疑人会被判多久](http://www.daogukj.com/twsaunno/)
+- [博主：全球商业卫星大量积压在仓库](http://www.play.hengshemaoyi.cn/xiju/2788260.htm)
+- [美官员：特朗普寻求今秋与金正恩会晤](http://www.movie.hkepx.cn/movie/8401072.htm)
+- [宇树科技开盘暴涨629.44%](http://www.daogukj.com/5256425)
+- [60万亿元，打开消费增长新空间](http://www.play.hengshemaoyi.cn/kongbu/6811189.htm)
+- [如何看待胖东来的“反商业”逻辑](http://www.movie.hkepx.cn/movie/7189595.htm)
+- [县城长得越来越像](http://www.movie.hkepx.cn/xiju/1481443.htm)
+- [胖东来胜诉经济学家宋清辉侵犯名誉权，法院判赔30万元并登报致歉，这对公众人物的商业评论有何影响？](http://www.movie.hkepx.cn/movie/5934231.htm)
+- [武磊官博发文寻人](http://www.daogukj.com/suhrxest/)
+- [档案袋被长辈不慎拆开，毕业生崩溃大吼，学生的档案袋里都有什么？不小心被拆开后如何补救？](http://www.play.hengshemaoyi.cn/xiju/8374811.htm)
+- [25 年来最贵美债横空出世，美联储没加息，市场却完成一轮「被动加息」，有何影响？美债收益率为何飙升？](http://www.movie.hkepx.cn/movie/5917708.htm)
+- [《商务柔道》](http://www.movie.hkepx.cn/movie/2673504.htm)
+- [库迪 免单](http://www.movie.hkepx.cn/xiju/9719392.htm)
+- [第一视角看高中生抢饭（夜宵版）](http://www.play.hengshemaoyi.cn/xiju/5111103.htm)
+- [为什么老一辈厌恶游戏?](http://www.movie.hkepx.cn/xiju/7322023.htm)
+- [弟弟举报哥哥冒名上大学案开庭，母亲称弟弟嫌农村人穷，究竟谁在说谎？](http://www.daogukj.com/lqwdxuku/)
+- [差点被系统误判扣分了，还好机制公平没冤枉我](http://www.movie.hkepx.cn/xiju/8204204.htm)
+- [宇树科技高开629% 总市值达4449亿](http://www.play.hengshemaoyi.cn/kongbu/5762471.htm)
+- [【独家】《百日成王》第17集 每一场应援就像一场战斗！【7月国创】](http://www.play.hengshemaoyi.cn/xiju/3015624.htm)
+- [如何看待美军万吨战舰瘫痪](http://www.movie.hkepx.cn/movie/9539562.htm)
+- [绝境降临！狭小缆车空间怎样熬过危机四伏的一百天！！「缆车惊变100天」](http://www.daogukj.com/1841885)
+- [迪丽热巴克拉恋人剧本照进现实](http://www.play.hengshemaoyi.cn/kongbu/3844400.htm)
+- [朱雀三号成功回收](http://www.daogukj.com/2839192)
 
 </details>
 
 ## 原始来源
 
-- [宇树科技发布「超人」，原地跳高 2米、奔跑极限速度每秒 12.66 米，人形机器人距离实用还有多远？](https://www.zhihu.com/question/2072710686380238015)
+- [外交部直接把靖国神社称作战犯神社](https://www.toutiao.com/trending/7675173070823718939/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%221%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227675173070823718939%22%2C%22hot_board_impr_id%22%3A%22202608190948212EFB7C0AAE85E5D24F17%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d7ad4bb0e0da14235383 -->
+<!-- content-fingerprint: 3f67b5c778f6c46fbe5c -->
