@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 住破房穿20块衣服男子20年攒下789万
+# 抽离 难听
 
-> 来源：微博热搜 · 排名：第 20 位 · 热度：44015 · 分类：民生新闻 · 更新：2026-08-23T03:58:31+08:00
+> 来源：微博热搜 · 排名：第 20 位 · 热度：48253 · 分类：综艺 · 更新：2026-08-23T04:27:18+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“住破房穿20块衣服男子20年攒下789万”位列第 20 位，公开热度指标为 44015，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“抽离 难听”位列第 20 位，公开热度指标为 48253，榜单分类为“综艺”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,11 +14,11 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `民生新闻`
+`微博热搜` `实时热搜` `热点资讯` `综艺`
 
 ## 相关热点
 
-- [机器人和丁宁切磋球技](xu-xu-ru-sheng.md)
+- [以色列土耳其会爆发冲突吗](xu-xu-ru-sheng.md)
 - [新赛季第一战，曼联 0-2 赫尔城，如何评价本场比赛？](huo-ling-huo-xian.md)
 - [商家绝不会告诉你的真相！历经394天，我们终于揭开了防晒喷雾行业的漏洞！](you-sheng-you-se.md)
 - [曝欢子进的医院是美容院](yin-ren-ru-sheng.md)
@@ -27,9 +27,9 @@
 
 - [住破房穿20块衣服男子20年攒789万](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
 - [曾被狼群抚养12年的西班牙狼孩去世](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [机器人跳拉丁有多惊艳](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [追觅造车梦遇挫 员工被裁工位闲置](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
 - [刘畊宏被灯光打没了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [男孩被民警掌掴近1个月未能正常上学](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [披荆斩棘排名](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
@@ -38,61 +38,61 @@
 
 - [人民日报谈火车零食占座](http://www.play.hengshemaoyi.cn/xiju/2367459.htm)
 - [机器人秀释小龙旋风踢 给自己干趴下](http://www.daogukj.com/whykihfw/)
-- [那英演唱会 肖战](http://www.daogukj.com/1896871)
+- [郭晓东张睿 越看越心酸](http://www.daogukj.com/1896871)
 - [宇树机器人100米预赛小组垫底](http://www.movie.hkepx.cn/movie/7726331.htm)
 - [我这一生最大的罪，是把人写成了妖……](http://www.play.hengshemaoyi.cn/kongbu/7591988.htm)
 - [人民日报：处置甲醛白菜必须从速从严](http://www.movie.hkepx.cn/movie/9833785.htm)
 - [《情歌王》，但如果全是原唱来唱会是什么感觉？](http://www.movie.hkepx.cn/movie/5639163.htm)
 - [披荆斩棘淘汰](http://www.daogukj.com/2186746)
-- [零食占座当事人母亲发声](http://www.play.hengshemaoyi.cn/kongbu/2268018.htm)
-- [女孩求职被拒发现自己竟是“精神病”](http://www.play.hengshemaoyi.cn/kongbu/6473132.htm)
+- [男子错过服务区找了个“野生”充电桩](http://www.play.hengshemaoyi.cn/kongbu/2268018.htm)
+- [55元捡漏1.41万项链女子获5元补偿](http://www.play.hengshemaoyi.cn/kongbu/6473132.htm)
 - [《下一个是谁》第七季（3）](http://www.daogukj.com/1106243)
-- [实探追觅造车办公地：工位大片闲置](http://www.play.hengshemaoyi.cn/xiju/5943556.htm)
-- [男子患癌在车间自缢 公司赔20余万](http://www.daogukj.com/9530499)
-- [三张银行卡，初始金额人民币1亿，1万，1元，日利息分别是0.01%，1%，10%，怎么选择呢？](http://www.movie.hkepx.cn/xiju/0808829.htm)
+- [零食占座当事人母亲发声](http://www.play.hengshemaoyi.cn/xiju/5943556.htm)
+- [宇树预赛小组垫底 回应缩减参赛项目](http://www.daogukj.com/9530499)
+- [如何看待高校录取通知书回归「一页纸」后，清华大学推出立体二校门版「入学纪念证书」？](http://www.movie.hkepx.cn/xiju/0808829.htm)
 - [亚朵卖枕头被子收入快赶上酒店主业](http://www.play.hengshemaoyi.cn/kongbu/8834808.htm)
 - [上海一餐厅订餐须用国外软件？不实](http://www.movie.hkepx.cn/xiju/0940758.htm)
-- [《走马》夯爆了](http://www.movie.hkepx.cn/movie/9022890.htm)
+- [韩国明年2月开始禁止吃狗肉](http://www.movie.hkepx.cn/movie/9022890.htm)
 - [《黑神话：钟馗》15分钟实机演示](http://www.play.hengshemaoyi.cn/kongbu/2216390.htm)
 - [机器人田径100米赛跑终点撞墙](http://www.play.hengshemaoyi.cn/xiju/1375823.htm)
 - [王传君说的是乔任梁吗](http://www.daogukj.com/goeqgpai/)
-- [孙楠跳舞像老实人豁出去了](http://www.play.hengshemaoyi.cn/kongbu/1757591.htm)
-- [你会花20多万买vala pro吗](http://www.play.hengshemaoyi.cn/kongbu/9879555.htm)
+- [男孩被民警掌掴近1个月未能正常上学](http://www.play.hengshemaoyi.cn/kongbu/1757591.htm)
+- [实探追觅造车办公地：工位大片闲置](http://www.play.hengshemaoyi.cn/kongbu/9879555.htm)
 - [住破房穿20块衣服男子20年攒789万](http://www.play.hengshemaoyi.cn/xiju/7503553.htm)
 - [女主播被控诈骗2500万元](http://www.movie.hkepx.cn/xiju/5861166.htm)
 - [顺直大改造-反畸形审美，棒打高街帝少萝cp！](http://www.play.hengshemaoyi.cn/xiju/5549607.htm)
 - [【独家】《凡人修仙传之慕兰之战》第12集【总第188集】](http://www.play.hengshemaoyi.cn/kongbu/6769731.htm)
-- [曹云金在演出中用郭德纲「砸现挂」，此举对相声界传统和师徒关系有何影响？](http://www.play.hengshemaoyi.cn/xiju/8003531.htm)
+- [年轻人开始流行「养砖头」，这种看似无意义的爱好为什么会戳中年轻人的心？「养砖头」要注意什么？](http://www.play.hengshemaoyi.cn/xiju/8003531.htm)
 - [本关最优解：放70个窝瓜僵尸 【bilibilionly同人扶持计划】](http://www.movie.hkepx.cn/xiju/9172364.htm)
 - [您好 没有为您拼命的义务 #乐意效劳](http://www.movie.hkepx.cn/movie/6262590.htm)
-- [王传君的雷霆野人妆是自己设计的](http://www.play.hengshemaoyi.cn/kongbu/5906748.htm)
-- [披荆斩棘排名](http://www.daogukj.com/goynbzba/)
+- [《走马》夯爆了](http://www.play.hengshemaoyi.cn/kongbu/5906748.htm)
+- [机器人跑出9秒32打破人类百米纪录](http://www.daogukj.com/goynbzba/)
 - [名嘴：高市明年或被小泉进次郎接替](http://www.daogukj.com/oqkhnwnb/)
-- [专家：座位是给人坐的不是来放零食的](http://www.movie.hkepx.cn/xiju/8878997.htm)
-- [《晒足一百ber天3.0》](http://www.daogukj.com/frbhpamg/)
-- [女孩试衣时被人掀开门帘 警方介入](http://www.daogukj.com/8218296)
+- [机器人和丁宁切磋球技](http://www.movie.hkepx.cn/xiju/8878997.htm)
+- [9秒39！中国机器人打破博尔特百米成绩](http://www.daogukj.com/frbhpamg/)
+- [孙楠跳舞像老实人豁出去了](http://www.daogukj.com/8218296)
 - [SuperJunior出场太帅了](http://www.movie.hkepx.cn/xiju/3382411.htm)
 - [商家绝不会告诉你的真相！历经394天，我们终于揭开了防晒喷雾行业的漏洞！](http://www.play.hengshemaoyi.cn/kongbu/3195197.htm)
-- [旅客买票占座放零食引争议，购票是否拥有座位全部使用权？](http://www.movie.hkepx.cn/xiju/8373508.htm)
+- [怎么看彭博社发布的「美国 AI 优势正在被中国迅速缩小」？](http://www.movie.hkepx.cn/xiju/8373508.htm)
 - [曾被狼群抚养12年的西班牙狼孩去世](http://www.daogukj.com/uamigzyj/)
-- [以色列土耳其会爆发冲突吗](http://www.daogukj.com/uevljbcs/)
+- [骗子嘲讽受害者：你是我最大的客户](http://www.daogukj.com/uevljbcs/)
 - [那英边唱边哭](http://www.play.hengshemaoyi.cn/xiju/4322946.htm)
-- [男孩被民警掌掴近1个月未能正常上学](http://www.movie.hkepx.cn/movie/3471289.htm)
-- [宇树预赛小组垫底 回应缩减参赛项目](http://www.movie.hkepx.cn/movie/3873340.htm)
-- [男子错过服务区找了个“野生”充电桩](http://www.daogukj.com/0908523)
-- [网友发现18岁黑龙江速滑运动员王新睿被冰刀割伤左腿截肢，具体是怎么回事？若如网传是他人撞伤，能赔偿吗？](http://www.daogukj.com/7782066)
+- [披荆斩棘排名](http://www.movie.hkepx.cn/movie/3471289.htm)
+- [白血病不再是不治之症](http://www.movie.hkepx.cn/movie/3873340.htm)
+- [亚朵“枕头被子”收入逼近主业](http://www.daogukj.com/0908523)
+- [2026羽毛球世锦赛，中国男单选手全部止步 16 强‌，创历史最差成绩。对此你怎么看呢？](http://www.daogukj.com/7782066)
 - [曝欢子进的医院是美容院](http://www.play.hengshemaoyi.cn/kongbu/3377780.htm)
 - [零食占座当事人母亲否认故意占座，称儿童票捆绑成人票销售，退成人票后儿童会被要求下车，哪些问题值得关注？](http://www.play.hengshemaoyi.cn/xiju/9852587.htm)
 - [没打HPV疫苗不能入学系谣言](http://www.daogukj.com/njwfupeo/)
-- [55元捡漏1.41万项链女子获5元补偿](http://www.play.hengshemaoyi.cn/kongbu/1527267.htm)
+- [女孩求职被拒发现自己竟是“精神病”](http://www.play.hengshemaoyi.cn/kongbu/1527267.htm)
 - [起猛了，在7月新番看到短剧了...... 【泛式】](http://www.play.hengshemaoyi.cn/xiju/3775329.htm)
 
 </details>
 
 ## 原始来源
 
-- [住破房穿20块衣服男子20年攒下789万](https://s.weibo.com/weibo?q=%E4%BD%8F%E7%A0%B4%E6%88%BF%E7%A9%BF20%E5%9D%97%E8%A1%A3%E6%9C%8D%E7%94%B7%E5%AD%9020%E5%B9%B4%E6%94%92%E4%B8%8B789%E4%B8%87)
+- [抽离 难听](https://s.weibo.com/weibo?q=%E6%8A%BD%E7%A6%BB%20%E9%9A%BE%E5%90%AC)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ee23baea5d3a2bb8afaf -->
+<!-- content-fingerprint: 737e39d5e4a71e4e605b -->
