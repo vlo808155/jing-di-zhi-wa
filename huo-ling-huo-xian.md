@@ -2,7 +2,7 @@
 
 # 如何看待中国传媒大学拟新增「游戏科学与技术」和「电子竞技」两个游戏类专业？对考生报考有何建议？
 
-> 来源：知乎热榜 · 排名：第 20 位 · 热度：59 万热度 · 分类：问答 · 更新：2026-08-23T07:00:13+08:00
+> 来源：知乎热榜 · 排名：第 20 位 · 热度：59 万热度 · 分类：问答 · 更新：2026-08-23T07:30:40+08:00
 
 ## 热点正文
 
@@ -19,71 +19,71 @@
 ## 相关热点
 
 - [吃蜘蛛眼就可以飞去末地外岛？！这个bug简直是艺术品！](you-sheng-you-se.md)
-- [曝欢子进的医院是美容院](yin-ren-ru-sheng.md)
-- [披荆斩棘排名](jing-di-zhi-wa.md)
-- [男子患癌在车间自缢 公司赔20余万](hai-kuo-tian-kong.md)
+- [加拿大将对美国商品征收报复性关税](yin-ren-ru-sheng.md)
+- [肖战完全王子](jing-di-zhi-wa.md)
+- [亚朵“枕头被子”收入逼近主业](hai-kuo-tian-kong.md)
 
 ## 站内推荐
 
-- [约1000家兰州拉面店完成门头更换](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [男子自驾3500公里送儿子去新疆上学](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [白血病不再是不治之症](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [机器人跑出9秒32打破人类百米纪录](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [英雄联盟的"连招"概念为什么消失了？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [专家：座位是给人坐的不是来放零食的](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [女孩求职被拒发现自己竟是“精神病”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [男子错过服务区找了个“野生”充电桩](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [上千台中国机器人向国旗行注目礼](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [从心理学上怎样理解「一个人被及时满足是永远不可能长大的」？怎么克服这种不被及时满足的不舒服感？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [那英边唱边哭](http://www.daogukj.com/8005923)
-- [专家：座位是给人坐的不是来放零食的](http://www.play.hengshemaoyi.cn/xiju/7463191.htm)
-- [韩国狗肉馆迎来最后一批食客](http://www.movie.hkepx.cn/movie/4169739.htm)
-- [白血病不再是不治之症](http://www.play.hengshemaoyi.cn/xiju/5874723.htm)
-- [宇树机器人100米预赛小组垫底](http://www.movie.hkepx.cn/movie/3447925.htm)
-- [9秒39！中国机器人打破博尔特百米成绩](http://www.play.hengshemaoyi.cn/kongbu/4576162.htm)
-- [桃酥是没有一滴水的](http://www.play.hengshemaoyi.cn/xiju/9969388.htm)
-- [55元捡漏1.41万项链女子获5元补偿](http://www.play.hengshemaoyi.cn/kongbu/2274251.htm)
+- [桃酥是没有一滴水的](http://www.daogukj.com/8005923)
+- [蘸了甲醛的白菜怎样辨认](http://www.play.hengshemaoyi.cn/xiju/7463191.htm)
+- [肖战假装要走这段](http://www.movie.hkepx.cn/movie/4169739.htm)
+- [男子错过服务区找了个“野生”充电桩](http://www.play.hengshemaoyi.cn/xiju/5874723.htm)
+- [处暑撞上出伏 这几件事记得做](http://www.movie.hkepx.cn/movie/3447925.htm)
+- [吃完享福去了](http://www.play.hengshemaoyi.cn/kongbu/4576162.htm)
+- [王源一句话让几万人低头看手机](http://www.play.hengshemaoyi.cn/xiju/9969388.htm)
+- [伊朗称美国为以色列无视其他盟友利益](http://www.play.hengshemaoyi.cn/kongbu/2274251.htm)
 - [人族少女混入兽人国，还引发了一场猫猫二当家和黄狗侠客的绝世大战](http://www.movie.hkepx.cn/xiju/5546881.htm)
 - [具身智能机器人正加速迈向应用](http://www.play.hengshemaoyi.cn/kongbu/8488935.htm)
 - [我收容了100位粉丝到我的一辈子存档里！](http://www.play.hengshemaoyi.cn/xiju/5663353.htm)
 - [女主播被控诈骗2500万元](http://www.movie.hkepx.cn/xiju/5950485.htm)
-- [曾被狼群抚养12年狼孩去世](http://www.movie.hkepx.cn/movie/9193128.htm)
+- [郭敬明剧组减肥方法](http://www.movie.hkepx.cn/movie/9193128.htm)
 - [零食占座当事人母亲否认故意占座，称儿童票捆绑成人票销售，退成人票后儿童会被要求下车，哪些问题值得关注？](http://www.daogukj.com/atarmjde/)
-- [零食占座当事人母亲发声](http://www.play.hengshemaoyi.cn/xiju/9145960.htm)
-- [机器人秀释小龙旋风踢 给自己干趴下](http://www.movie.hkepx.cn/xiju/2578023.htm)
+- [那英演唱会嘉宾是肖战](http://www.play.hengshemaoyi.cn/xiju/9145960.htm)
+- [曾被狼群抚养12年的西班牙狼孩去世](http://www.movie.hkepx.cn/xiju/2578023.htm)
 - [暑期旅游市场迸发新活力](http://www.daogukj.com/5709010)
 - [《 黑 神 话 咕 嘎 》终极典藏版](http://www.daogukj.com/wpzjvegw/)
-- [男子调包订婚五金典当套现208万](http://www.play.hengshemaoyi.cn/xiju/4598532.htm)
-- [女孩求职被拒发现自己竟是“精神病”](http://www.play.hengshemaoyi.cn/kongbu/0125652.htm)
+- [今日处暑](http://www.play.hengshemaoyi.cn/xiju/4598532.htm)
+- [机器人坐机器马闪亮登场开幕式](http://www.play.hengshemaoyi.cn/kongbu/0125652.htm)
 - [您好 没有为您拼命的义务 #乐意效劳](http://www.movie.hkepx.cn/xiju/2411242.htm)
-- [你会花20多万买vala pro吗](http://www.daogukj.com/6900199)
-- [邵永灵：联合国秘书长争夺战杀出黑马](http://www.movie.hkepx.cn/xiju/8302101.htm)
+- [机器人跑出9秒32打破人类百米纪录](http://www.daogukj.com/6900199)
+- [广西发布洪水红色预警](http://www.movie.hkepx.cn/xiju/8302101.htm)
 - [男子20年省吃俭用攒789万6天被骗光](http://www.daogukj.com/vrviqqsc/)
 - [⚡️很恐怖游戏，使我大叫⚡️](http://www.daogukj.com/5803945)
 - [林肯号危机「吹哨人」遭清算，因曝光林肯号糟糕处境，美国军报总编辑、发行人、记者均被解雇，如何看待此事？](http://www.daogukj.com/pggqhldb/)
 - [奢侈品牌 LV 全国多地门店关闭，西南门店腰斩过半，为何收缩线下渠道？对中国奢侈品市场意味着什么？](http://www.play.hengshemaoyi.cn/xiju/9613239.htm)
-- [亚朵“枕头被子”收入逼近主业](http://www.movie.hkepx.cn/xiju/1355542.htm)
+- [55元捡漏1.41万项链女子获5元补偿](http://www.movie.hkepx.cn/xiju/1355542.htm)
 - [什么操作会对电脑造成永久性伤害？](http://www.play.hengshemaoyi.cn/xiju/7010661.htm)
-- [37岁失业建筑师转行养老护理员](http://www.movie.hkepx.cn/xiju/1893259.htm)
+- [9秒39！中国机器人打破博尔特百米成绩](http://www.movie.hkepx.cn/xiju/1893259.htm)
 - [小沈阳投诉《披荆斩棘》导演组](http://www.daogukj.com/3906187)
-- [披荆斩棘淘汰](http://www.daogukj.com/3891201)
-- [曹云金在演出中用郭德纲「砸现挂」，此举对相声界传统和师徒关系有何影响？](http://www.movie.hkepx.cn/movie/0469338.htm)
+- [必须从速从严处置甲醛白菜](http://www.daogukj.com/3891201)
+- [年轻人开始流行「养砖头」，这种看似无意义的爱好为什么会戳中年轻人的心？「养砖头」要注意什么？](http://www.movie.hkepx.cn/movie/0469338.htm)
 - [中国男篮时隔12年再进U18亚洲杯决赛](http://www.play.hengshemaoyi.cn/kongbu/9519674.htm)
 - [住破房穿20块衣服男子20年攒789万](http://www.daogukj.com/8314048)
 - [怎么看 DeepSeek 8 月22 日再调整定价，周末全天统一按低谷价收费？](http://www.play.hengshemaoyi.cn/xiju/8783645.htm)
 - [上学都被没收过哪些东西？](http://www.play.hengshemaoyi.cn/kongbu/2446487.htm)
 - [商家绝不会告诉你的真相！历经394天，我们终于揭开了防晒喷雾行业的漏洞！](http://www.movie.hkepx.cn/xiju/1583083.htm)
 - [退休后，把全国的县城都逛一遍这主意怎么样？](http://www.movie.hkepx.cn/movie/7949727.htm)
-- [韩国明年2月开始禁止吃狗肉](http://www.movie.hkepx.cn/xiju/7893335.htm)
-- [年轻人开始流行「养砖头」，这种看似无意义的爱好为什么会戳中年轻人的心？「养砖头」要注意什么？](http://www.movie.hkepx.cn/movie/6332074.htm)
+- [日本本州岛5.8级地震](http://www.movie.hkepx.cn/xiju/7893335.htm)
+- [曹云金在演出中用郭德纲「砸现挂」，此举对相声界传统和师徒关系有何影响？](http://www.movie.hkepx.cn/movie/6332074.htm)
 - [人民日报谈火车零食占座](http://www.movie.hkepx.cn/xiju/9763550.htm)
-- [曝欢子进的医院是美容院](http://www.movie.hkepx.cn/movie/0911321.htm)
-- [披荆斩棘排名](http://www.movie.hkepx.cn/movie/1570496.htm)
-- [约1000家兰州拉面店完成门头更换](http://www.movie.hkepx.cn/xiju/5460806.htm)
-- [王源一句话让几万人低头看手机](http://www.movie.hkepx.cn/xiju/3915542.htm)
-- [欢子淘汰 压根没来](http://www.daogukj.com/obnsavya/)
-- [机器人和丁宁切磋球技](http://www.daogukj.com/thtteqlc/)
+- [加拿大将对美国商品征收报复性关税](http://www.movie.hkepx.cn/movie/0911321.htm)
+- [肖战完全王子](http://www.movie.hkepx.cn/movie/1570496.htm)
+- [专家：座位是给人坐的不是来放零食的](http://www.movie.hkepx.cn/xiju/5460806.htm)
+- [韩国狗肉馆迎来最后一批食客](http://www.movie.hkepx.cn/xiju/3915542.htm)
+- [住破房穿20块衣服男子20年攒下789万](http://www.daogukj.com/obnsavya/)
+- [白血病不再是不治之症](http://www.daogukj.com/thtteqlc/)
 - [如何看待现在好多小学初中生身高一米八？](http://www.daogukj.com/6398059)
 - [《下一个是谁》第七季（3）](http://www.daogukj.com/5238190)
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: b87d043177e41fdd6da5 -->
+<!-- content-fingerprint: ea593ba8a76a8d34dc28 -->
