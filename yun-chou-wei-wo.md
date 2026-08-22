@@ -2,11 +2,11 @@
 
 # 《你咋开的车》
 
-> 来源：哔哩哔哩热门 · 排名：第 17 位 · 热度：3495655 · 分类：搞笑 · 更新：2026-08-22T13:44:21+08:00
+> 来源：哔哩哔哩热门 · 排名：第 17 位 · 热度：3525994 · 分类：搞笑 · 更新：2026-08-22T14:01:37+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“《你咋开的车》”位列第 17 位，公开热度指标为 3495655，榜单分类为“搞笑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“《你咋开的车》”位列第 17 位，公开热度指标为 3525994，榜单分类为“搞笑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：-
 
@@ -18,9 +18,9 @@
 
 ## 相关热点
 
-- [手机出现这行字 存款正被转走](shen-mou-yuan-lv.md)
-- [Angelababy民族服饰变装太绝了](ming-cha-qiu-hao.md)
-- [王毅当众点名美国 韩外长抿嘴点头](jian-wei-zhi-zhu.md)
+- [这个电饭煲价值100000元](shen-mou-yuan-lv.md)
+- [外国网友怀疑中国农村是AI](ming-cha-qiu-hao.md)
+- [菲方拉拢域外国家在南海“巡航”](jian-wei-zhi-zhu.md)
 - [陈柏霖等台湾艺人因逃避兵役首度被传唤出庭，当庭认罪，哪些信息值得关注？为什么这么多台艺人要冒这个风险？](du-ju-hui-yan.md)
 
 ## 站内推荐
@@ -36,56 +36,56 @@
 <details>
 <summary>展开更多相关内容</summary>
 
-- [如何看待拆解输入的「张雪机车」遭台湾当局查扣？此举是出于产业保护还是政治考量？](http://www.daogukj.com/ujmpetju/)
-- [因为一部手机 印度一家三口坠崖身亡](http://www.movie.hkepx.cn/xiju/2326006.htm)
-- [Angelababy民族服饰变装太绝了](http://www.daogukj.com/fklrdyry/)
+- [西安一影城推出午休服务，每月 39.9 元还有免费充电、咖啡，这一服务怎么样？你愿意花钱去影院午休吗？](http://www.daogukj.com/ujmpetju/)
+- [生肖不合就裁员？民生人寿回应](http://www.movie.hkepx.cn/xiju/2326006.htm)
+- [外国网友怀疑中国农村是AI](http://www.daogukj.com/fklrdyry/)
 - [《下一个是谁》第七季（3）](http://www.daogukj.com/fcqoynal/)
 - [退休后，把全国的县城都逛一遍这主意怎么样？](http://www.movie.hkepx.cn/movie/7286781.htm)
-- [这个电饭煲价值100000元](http://www.movie.hkepx.cn/xiju/5270399.htm)
+- [13个县的消费赶超一线城市](http://www.movie.hkepx.cn/xiju/5270399.htm)
 - [辟谣周榜｜温州一建筑被吹塌系谣言](http://www.play.hengshemaoyi.cn/xiju/5019563.htm)
-- [外国网友怀疑中国农村是AI](http://www.play.hengshemaoyi.cn/xiju/6772680.htm)
-- [国产叉车 全球爆单](http://www.play.hengshemaoyi.cn/kongbu/4064427.htm)
-- [张家口回应白菜蘸甲醛保鲜](http://www.play.hengshemaoyi.cn/kongbu/8483720.htm)
+- [猥亵骑马游客的教练已离岗](http://www.play.hengshemaoyi.cn/xiju/6772680.htm)
+- [泡泡玛特跌掉一个泡泡玛特](http://www.play.hengshemaoyi.cn/kongbu/4064427.htm)
+- [董璇让粉丝不要总是给小酒窝买盲盒了](http://www.play.hengshemaoyi.cn/kongbu/8483720.htm)
 - [网友发现18岁黑龙江速滑运动员王新睿被冰刀割伤左腿截肢，具体是怎么回事？若如网传是他人撞伤，能赔偿吗？](http://www.play.hengshemaoyi.cn/kongbu/8579970.htm)
-- [《GTA6》遭大规模泄露：两段实机视频、一张完整地图，R星紧急发起DMCA投诉。你怎么看？](http://www.movie.hkepx.cn/xiju/0134223.htm)
-- [黄大炜离世两月再起遗产风波](http://www.play.hengshemaoyi.cn/kongbu/4502768.htm)
+- [长江存储 IPO 审核状态变更为「已受理」，其 IPO 前景如何？](http://www.movie.hkepx.cn/xiju/0134223.htm)
+- [让于东来狠心关店的房东真是恶人吗](http://www.play.hengshemaoyi.cn/kongbu/4502768.htm)
 - [这两个强国 真到了战争的边缘](http://www.movie.hkepx.cn/movie/9639468.htm)
-- [内娱终于放过甄嬛传了](http://www.daogukj.com/eugwmshe/)
-- [群内54人 53个是骗子](http://www.daogukj.com/1626617)
+- [癌症疫苗](http://www.daogukj.com/eugwmshe/)
+- [因为一部手机 印度一家三口坠崖身亡](http://www.daogukj.com/1626617)
 - [【二维动画】画二渲三，但是渲出来一堆BUG](http://www.movie.hkepx.cn/movie/2260283.htm)
 - [如何看待宇树科技上市 3 天回撤近 40%？](http://www.movie.hkepx.cn/xiju/0424593.htm)
-- [大妈骑车戴“三级头”震惊辅警](http://www.play.hengshemaoyi.cn/xiju/5090288.htm)
-- [女孩追星把老爸摇来买车](http://www.daogukj.com/3625115)
-- [王毅当众点名美国 韩外长抿嘴点头](http://www.daogukj.com/jieawbfe/)
+- [LV将彻底退出贵州市场](http://www.play.hengshemaoyi.cn/xiju/5090288.htm)
+- [财政部：坚决不搞税收政策的“洼地”](http://www.daogukj.com/3625115)
+- [菲方拉拢域外国家在南海“巡航”](http://www.daogukj.com/jieawbfe/)
 - [烧烤店推出9.9元一只清蒸梭子蟹走红](http://www.play.hengshemaoyi.cn/xiju/1843269.htm)
-- [韦东奕主编的练习册销量1天破万](http://www.movie.hkepx.cn/movie/9978600.htm)
-- [LV将彻底退出贵州市场](http://www.movie.hkepx.cn/movie/6924230.htm)
-- [四川马边县山洪1400多人转移](http://www.daogukj.com/etibyexa/)
+- [宣萱现身古天乐演唱会 台上拥抱](http://www.movie.hkepx.cn/movie/9978600.htm)
+- [博主曝大白菜装车前蘸甲醛保鲜](http://www.movie.hkepx.cn/movie/6924230.htm)
+- [特朗普敲打韩国却被李在明反将一军](http://www.daogukj.com/etibyexa/)
 - [我想超小傲](http://www.play.hengshemaoyi.cn/kongbu/7016583.htm)
 - [《晒足一百ber天3.0》](http://www.movie.hkepx.cn/xiju/6012346.htm)
 - [蚊子正在悄悄扩张生存版图](http://www.movie.hkepx.cn/xiju/3257128.htm)
 - [女星穿香奈儿无底鞋脚掌变黑](http://www.play.hengshemaoyi.cn/kongbu/4442696.htm)
-- [陈伟霆十年了还没释怀人贩子梗](http://www.play.hengshemaoyi.cn/kongbu/3696154.htm)
-- [13个县的消费赶超一线城市](http://www.daogukj.com/8707603)
-- [猥亵骑马游客的教练已离岗](http://www.movie.hkepx.cn/xiju/1792227.htm)
+- [那英酒红露背裙](http://www.play.hengshemaoyi.cn/kongbu/3696154.htm)
+- [在家开灯遭楼对面投诉“影响孩子”](http://www.daogukj.com/8707603)
+- [曝谍报上不封顶补拍20天](http://www.movie.hkepx.cn/xiju/1792227.htm)
 - [古代的劳动人民都是怎么解决早饭的？](http://www.movie.hkepx.cn/xiju/1821928.htm)
 - [我要超过杜海皇](http://www.play.hengshemaoyi.cn/xiju/7826824.htm)
-- [曾辉手机壳是跟韩雨彤的合照](http://www.play.hengshemaoyi.cn/kongbu/4982284.htm)
-- [长江存储 IPO 审核状态变更为「已受理」，其 IPO 前景如何？](http://www.movie.hkepx.cn/xiju/2461964.htm)
-- [如何评价Shift Up聘请DEI人士担任全球传播负责人？](http://www.movie.hkepx.cn/movie/7422271.htm)
+- [第一次见外国人出来打假北欧硬面包](http://www.play.hengshemaoyi.cn/kongbu/4982284.htm)
+- [曹云金在演出中用郭德纲『砸现挂』，此举对相声界传统和师徒关系有何影响？](http://www.movie.hkepx.cn/xiju/2461964.htm)
+- [如何评价《凡人修仙传》第 188 集？](http://www.movie.hkepx.cn/movie/7422271.htm)
 - [举手之劳 亦是人间微光](http://www.play.hengshemaoyi.cn/kongbu/8190186.htm)
 - [55元捡漏1.41万项链女子获5元补偿](http://www.play.hengshemaoyi.cn/kongbu/3600255.htm)
 - [人族少女混入兽人国，还引发了一场猫猫二当家和黄狗侠客的绝世大战](http://www.movie.hkepx.cn/movie/9483466.htm)
-- [财政部：坚决不搞税收政策的“洼地”](http://www.play.hengshemaoyi.cn/kongbu/5693401.htm)
+- [美将向联合国支付7.25亿美元拖欠会费](http://www.play.hengshemaoyi.cn/kongbu/5693401.htm)
 - [张家口市监局回应大白菜蘸甲醛保鲜](http://www.daogukj.com/wstcuheo/)
 - [陈柏霖等台湾艺人因逃避兵役首度被传唤出庭，当庭认罪，哪些信息值得关注？为什么这么多台艺人要冒这个风险？](http://www.movie.hkepx.cn/movie/3882558.htm)
-- [为啥天庭里没孔子的仙位呢？](http://www.movie.hkepx.cn/movie/0855056.htm)
-- [邓凯王楚然浮生杀青合照](http://www.daogukj.com/wflinrtr/)
+- [如何评价Shift Up聘请DEI人士担任全球传播负责人？](http://www.movie.hkepx.cn/movie/0855056.htm)
+- [黑灯连发三条怼梁源](http://www.daogukj.com/wflinrtr/)
 - [读懂中国消费的“福祉含量”](http://www.daogukj.com/4055553)
-- [以色列与土耳其到了战争边缘吗](http://www.play.hengshemaoyi.cn/kongbu/5702984.htm)
+- [上汽MG 07大定破万仅用时1分57秒](http://www.play.hengshemaoyi.cn/kongbu/5702984.htm)
 - [因为一部手机印度一家三口坠崖死亡](http://www.movie.hkepx.cn/movie/9880116.htm)
-- [台媒“毒嘴”造谣北京没冰箱](http://www.daogukj.com/ujvkpjtv/)
-- [美将向联合国支付7.25亿美元拖欠会费](http://www.play.hengshemaoyi.cn/kongbu/4315002.htm)
+- [女孩追星把老爸摇来买车](http://www.daogukj.com/ujvkpjtv/)
+- [四川马边县山洪1400多人转移](http://www.play.hengshemaoyi.cn/kongbu/4315002.htm)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 64ed6b44bf3c65a32341 -->
+<!-- content-fingerprint: 26ca3ae362e244f3d2d5 -->
