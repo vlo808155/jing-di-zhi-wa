@@ -2,11 +2,11 @@
 
 # 我收容了100位粉丝到我的一辈子存档里！
 
-> 来源：哔哩哔哩热门 · 排名：第 17 位 · 热度：4284579 · 分类：单机游戏 · 更新：2026-08-23T16:49:53+08:00
+> 来源：哔哩哔哩热门 · 排名：第 17 位 · 热度：4332289 · 分类：单机游戏 · 更新：2026-08-23T17:20:25+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“我收容了100位粉丝到我的一辈子存档里！”位列第 17 位，公开热度指标为 4284579，榜单分类为“单机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“我收容了100位粉丝到我的一辈子存档里！”位列第 17 位，公开热度指标为 4332289，榜单分类为“单机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：感谢所有参与本期内容的观众！ 点赞过19.8W开启比奇堡小区二期！ 喜欢本期内容记得点赞！投币呀！
 
@@ -18,9 +18,9 @@
 
 ## 相关热点
 
-- [“为什么不戴头盔？”“我刚植完发”](yun-chou-wei-wo.md)
-- [温婉售卖高仿巴黎世家T恤Prada背心](shen-mou-yuan-lv.md)
-- [零食占座当事人母亲发声](ming-cha-qiu-hao.md)
+- [女子遭船撞击溺亡 丈夫瘦到脸颊内凹](yun-chou-wei-wo.md)
+- [李宇春携CHOUCHOU亮相成都](shen-mou-yuan-lv.md)
+- [玛莎拉蒂撞毁护栏后坠河 3人被捞起](ming-cha-qiu-hao.md)
 - [如何看待最近的两个harness开源，deepseek和openai都开源了各自的harness？](jian-wei-zhi-zhu.md)
 
 ## 站内推荐
@@ -28,7 +28,7 @@
 - [如何评价南信大团队在《Science》上发文「中国太阳能扩张政策导致鸟类生物多样性下降」？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
 - [荣耀机器人闪电百米跑出 9 秒32，破人类百米纪录，这一成绩的含金量如何？有哪些意义？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
 - [美加贸易谈判最后时刻破裂，美国将加征 50% 关税，加拿大将对美实施对等关税，将产生哪些影响？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [伴随《黑神话：钟馗》实机公布，冯骥分享“十条开发原则”，这套创作准则是否同样适用于其他内容赛道？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [没人会记得神作之下的第二名，除非那一年都是神仙！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
 - [真的要玩这么大吗？？？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
@@ -37,55 +37,55 @@
 <summary>展开更多相关内容</summary>
 
 - [上海一餐厅订餐必须用国外软件不实](http://www.play.hengshemaoyi.cn/kongbu/3483820.htm)
-- [上市公司要求应届生离职、打螺丝2选1](http://www.movie.hkepx.cn/xiju/3408565.htm)
+- [空姐给“巨大豆荚”系安全带](http://www.movie.hkepx.cn/xiju/3408565.htm)
 - [【独家】牧神记 第97集 登基](http://www.play.hengshemaoyi.cn/kongbu/9358766.htm)
 - [原来我是只蚊子！](http://www.movie.hkepx.cn/movie/6761076.htm)
-- [杭州有人拍到罕见“精灵闪电”](http://www.movie.hkepx.cn/movie/4354942.htm)
-- [女子溺亡十几个摄像头拍不到肇事船](http://www.play.hengshemaoyi.cn/kongbu/7691913.htm)
-- [乌25岁男子刺死军人或面临终身监禁](http://www.daogukj.com/zxhxffqk/)
-- [曹骏二公分组](http://www.play.hengshemaoyi.cn/kongbu/0581403.htm)
-- [以定居者残忍殴打一巴勒斯坦老人](http://www.play.hengshemaoyi.cn/xiju/8368894.htm)
-- [什么是南海“土台风”](http://www.movie.hkepx.cn/movie/3724589.htm)
+- [乌25岁男子刺死军人或面临终身监禁](http://www.movie.hkepx.cn/movie/4354942.htm)
+- [我的前半生删去原著罗子君女儿](http://www.play.hengshemaoyi.cn/kongbu/7691913.htm)
+- [辽宁文旅女厅长湖南乡音发言火了](http://www.daogukj.com/zxhxffqk/)
+- [告时代峰峻都要排队](http://www.play.hengshemaoyi.cn/kongbu/0581403.htm)
+- [乌民众拳打脚踢从征兵员手里抢回小伙](http://www.play.hengshemaoyi.cn/xiju/8368894.htm)
+- [赛考斯：我是老内 不是老外](http://www.movie.hkepx.cn/movie/3724589.htm)
 - [我这一生最大的罪，是把人写成了妖……](http://www.movie.hkepx.cn/movie/4073082.htm)
-- [温婉售卖高仿巴黎世家T恤Prada背心](http://www.movie.hkepx.cn/movie/7225991.htm)
+- [李宇春携CHOUCHOU亮相成都](http://www.movie.hkepx.cn/movie/7225991.htm)
 - [美加贸易谈判最后时刻破裂，美国将加征 50% 关税，加拿大将对美实施对等关税，将产生哪些影响？](http://www.movie.hkepx.cn/movie/5475557.htm)
-- [以色列袭击加沙造成至少17人死亡](http://www.play.hengshemaoyi.cn/xiju/1901702.htm)
+- [矿业大佬喊出金价5万美元](http://www.play.hengshemaoyi.cn/xiju/1901702.htm)
 - [老人进店休息离世，店家自称曾帮扶老人却遭索赔10万，最终赔1.9万，从法律角度如何解读？店主有责任吗？](http://www.daogukj.com/1487547)
-- [甲醛白菜源头被端了](http://www.daogukj.com/sqqsfnyh/)
-- [如何评价喜剧探案题材的动画电影《大唐妖探》？](http://www.movie.hkepx.cn/movie/3969864.htm)
+- [上班立什么人设最吃香](http://www.daogukj.com/sqqsfnyh/)
+- [如何评价欢子披荆斩棘退赛？从先导片不足50秒到一公祭天，节目组是不是根本没想让他活过一公？](http://www.movie.hkepx.cn/movie/3969864.htm)
 - [张远维权五代彩带](http://www.daogukj.com/iqmqrbhp/)
-- [每隔3~5公里设置自然弯道是高速公路设计的常识，但是为啥我们经常看到美国国家公路直的像到天堂一样？](http://www.play.hengshemaoyi.cn/xiju/8313158.htm)
+- [乐山大佛景区有男子将松鼠踩死，游客称其是工作人员并言「松鼠是害虫」，如何看待这一行为？](http://www.play.hengshemaoyi.cn/xiju/8313158.htm)
 - [真的...没有人类了](http://www.movie.hkepx.cn/xiju/9816658.htm)
 - [严肃观看儿子的历史记录](http://www.daogukj.com/3514427)
-- [乐山大佛景区有男子将松鼠踩死，游客称其是工作人员并言「松鼠是害虫」，如何看待这一行为？](http://www.movie.hkepx.cn/movie/5821299.htm)
-- [上班立什么人设最吃香](http://www.movie.hkepx.cn/movie/7016997.htm)
-- [7元成本卖到598元 企业被罚3.8亿](http://www.daogukj.com/klgjmmqw/)
-- [女子遭船撞击溺亡 丈夫瘦到脸颊内凹](http://www.play.hengshemaoyi.cn/kongbu/2965446.htm)
-- [70后彭勇任湖北襄阳市委书记](http://www.daogukj.com/8554716)
+- [1.58 万元的问界儿童车预售，车企为什么要给小孩「造车」？能将带娃家庭转化成潜在客户吗？](http://www.movie.hkepx.cn/movie/5821299.htm)
+- [丁禹兮孟子义拍了电梯抱](http://www.movie.hkepx.cn/movie/7016997.htm)
+- [什么是南海“土台风”](http://www.daogukj.com/klgjmmqw/)
+- [孩子打翻饮料 妈妈第一时间上前拥抱](http://www.play.hengshemaoyi.cn/kongbu/2965446.htm)
+- [沈阳街头现“搓澡实训体验中心”](http://www.daogukj.com/8554716)
 - [为什么二十年后徐福还敢去这个国家，不怕校长掌权了报复吗？](http://www.daogukj.com/4018030)
 - [日本本州岛 5.8 级地震已致多人受伤，目前情况如何？](http://www.play.hengshemaoyi.cn/xiju/7007818.htm)
 - [北大报到日校园内满是「扛床垫的爸」，如何看待这个现象？大学新生入学，家长应该帮到何种程度？](http://www.daogukj.com/7787398)
-- [42岁港星定居深圳被投诉扰民](http://www.play.hengshemaoyi.cn/xiju/3303937.htm)
-- [“零食占座”争的是一袋零食吗](http://www.play.hengshemaoyi.cn/xiju/6811831.htm)
-- [“娇羞”机器人双手掩面冲刺](http://www.play.hengshemaoyi.cn/kongbu/5731979.htm)
+- [多款汽车被召回](http://www.play.hengshemaoyi.cn/xiju/3303937.htm)
+- [“旅客买票占座放零食”应如何处理](http://www.play.hengshemaoyi.cn/xiju/6811831.htm)
+- [42岁港星定居深圳被投诉扰民](http://www.play.hengshemaoyi.cn/kongbu/5731979.htm)
 - [【战双帕弥什】「于频率中相汇」全球线上音乐会回顾](http://www.play.hengshemaoyi.cn/kongbu/8531788.htm)
-- [8月鸡蛋因何涨价](http://www.play.hengshemaoyi.cn/xiju/3940464.htm)
-- [金季酒店与全季酒店达成和解](http://www.play.hengshemaoyi.cn/xiju/5367021.htm)
-- [“旅客买票占座放零食”应如何处理](http://www.movie.hkepx.cn/xiju/7619002.htm)
-- [如何评价欢子披荆斩棘退赛？从先导片不足50秒到一公祭天，节目组是不是根本没想让他活过一公？](http://www.play.hengshemaoyi.cn/xiju/7491703.htm)
-- [阿里巴巴拟配售800亿港元新股](http://www.movie.hkepx.cn/xiju/9433984.htm)
+- [7元成本卖到598元 企业被罚3.8亿](http://www.play.hengshemaoyi.cn/xiju/3940464.htm)
+- [多名农民称莫名成法人 被贷千万元](http://www.play.hengshemaoyi.cn/xiju/5367021.htm)
+- [三台风扎堆在线 最新路径](http://www.movie.hkepx.cn/xiju/7619002.htm)
+- [古代士兵中箭后没有消炎药，伤口感染了还能扛过去吗？](http://www.play.hengshemaoyi.cn/xiju/7491703.htm)
+- [小米官宣新一代玄戒芯片技术发布会](http://www.movie.hkepx.cn/xiju/9433984.htm)
 - [真的要玩这么大吗？？？](http://www.play.hengshemaoyi.cn/xiju/8043846.htm)
-- [王传君 乔任梁](http://www.play.hengshemaoyi.cn/kongbu/5790640.htm)
-- [“最害羞”机器人出现了](http://www.play.hengshemaoyi.cn/kongbu/2929388.htm)
+- [金价反弹重要原因](http://www.play.hengshemaoyi.cn/kongbu/5790640.htm)
+- [曝上市公司要求应届生离职打螺丝2选1](http://www.play.hengshemaoyi.cn/kongbu/2929388.htm)
 - [我正在烧烤…哦不是..思考..](http://www.play.hengshemaoyi.cn/xiju/2191121.htm)
 - [中国秋意地图来了](http://www.play.hengshemaoyi.cn/kongbu/3389194.htm)
-- [没人会记得神作之下的第二名，除非那一年都是神仙！](http://www.daogukj.com/2463480)
+- [信用卡利息一年能省5000元了](http://www.daogukj.com/2463480)
 - [如何评价南信大团队在《Science》上发文「中国太阳能扩张政策导致鸟类生物多样性下降」？](http://www.movie.hkepx.cn/xiju/2416068.htm)
-- [7.48元成本卖到598 企业被罚没3.8亿](http://www.daogukj.com/4620332)
+- [著名战地记者唐师曾逝世](http://www.daogukj.com/4620332)
 - [李维嘉曾拒绝王菲加好友](http://www.movie.hkepx.cn/movie/5413853.htm)
 - [护理：一把斩向死亡的温柔刀](http://www.play.hengshemaoyi.cn/kongbu/3114909.htm)
-- [空姐给“巨大豆荚”系安全带](http://www.movie.hkepx.cn/movie/3357497.htm)
-- [“未成年小鼻嘎”机器人萌翻全场](http://www.daogukj.com/aagwkkjr/)
+- [上市公司要求应届生离职、打螺丝2选1](http://www.movie.hkepx.cn/movie/3357497.htm)
+- [“零食占座”争的是一袋零食吗](http://www.daogukj.com/aagwkkjr/)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 3276839e26c41df32ada -->
+<!-- content-fingerprint: 9334ce17d04657499e3e -->
