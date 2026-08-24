@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 台风紫檀致广西宁明多处被淹
+# 俄击落269架乌无人机 普京：加强攻势
 
-> 来源：百度热搜 · 排名：第 19 位 · 热度：5988226 · 更新：2026-08-24T08:51:29+08:00
+> 来源：百度热搜 · 排名：第 19 位 · 热度：5999220 · 更新：2026-08-24T10:18:56+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“台风紫檀致广西宁明多处被淹”位列第 19 位，公开热度指标为 5988226。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“俄击落269架乌无人机 普京：加强攻势”位列第 19 位，公开热度指标为 5999220。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：受台风“紫檀”影响，广西崇左市宁明县遭遇持续强降雨，江河水位暴涨，街道大部分地方水深达4米，农田被淹、部分乡镇断电断网，有店主称自家餐饮小店被淹、损失惨重，目前停水停电。宁明县已启动防汛一级应急响应，紧急转移群众超1.6万人，抢险救灾工作正在加紧开展。
+来源公开摘要显示：8月23日晚，俄罗斯国防部通报称，莫斯科时间当天8时至20时，俄防空部队在阿尔汉格尔斯克州、别尔哥罗德州、布良斯克州及莫斯科地区等多地拦截并击落269架乌克兰无人机。此前一天，俄总统普京表示，乌克兰武装部队在过去40天里持续使用导弹和无人机攻击俄民用和物流设施，俄军将继续加强攻势。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [张元英走路姿势](xu-xu-ru-sheng.md)
-- [天工队夺人形机器人运动会首金](huo-ling-huo-xian.md)
-- [鹰角《终末地》限定池增设大保底继承，但仅限复刻同角色，这机制对玩家是利是弊？](you-sheng-you-se.md)
-- [抽象新闻：8月人类迷惑行为大赏（上）](yin-ren-ru-sheng.md)
+- [羞答答的机器人跑了第一](xu-xu-ru-sheng.md)
+- [伊朗议员：一定程度的腐败是正常的](huo-ling-huo-xian.md)
+- [「泔水喂猪」被正式写入禁令，用剩菜剩饭直接喂猪有什么影响？为何禁止？](you-sheng-you-se.md)
+- [《原神》过场动画-「凯旋」](yin-ren-ru-sheng.md)
 
 ## 站内推荐
 
-- [暴雨黄色预警！5省部分地区有大暴雨](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [机器人只做人类不爱做、做不好的事](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [外骨骼真的那么管用吗](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [人民日报调查：面目全非的别墅小镇](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [花5.9万养发被剃光头拔白发](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [网友收到长宁7.7地震预警 官方通报](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [暴雨黄色预警！5省部分地区有大暴雨](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [港股阿里巴巴盘中跌超10%](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [一句“好好吃饭” 何以打动人心](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [老人店内离世店主赔1.9万 细节披露](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [张韶涵因心脏病找母亲要医疗费未果](http://www.play.hengshemaoyi.cn/xiju/2367459.htm)
-- [儿童能否单独乘火车出行？官方解答](http://www.daogukj.com/whykihfw/)
-- [泽连斯基遭遇逼宫](http://www.daogukj.com/1896871)
-- [台当局越封禁 “张雪机车”反而越红](http://www.movie.hkepx.cn/movie/7726331.htm)
+- [扶老人遭索赔10万店主儿子发声](http://www.play.hengshemaoyi.cn/xiju/2367459.htm)
+- [人民日报调查：面目全非的别墅小镇](http://www.daogukj.com/whykihfw/)
+- [张韶涵深夜发文报平安](http://www.daogukj.com/1896871)
+- [儿童能否单独乘火车出行？官方解答](http://www.movie.hkepx.cn/movie/7726331.htm)
 - [《影之刃零》专场 State of Play 全程回顾](http://www.play.hengshemaoyi.cn/kongbu/7591988.htm)
 - [四川宜宾市长宁县发生4.7级地震](http://www.movie.hkepx.cn/movie/9833785.htm)
 - [如何评价南信大团队在《Science》上发文「中国太阳能扩张政策导致鸟类生物多样性下降」？](http://www.movie.hkepx.cn/movie/5639163.htm)
 - [四川长宁地震](http://www.daogukj.com/2186746)
-- [傅首尔前夫发文怼留几手](http://www.play.hengshemaoyi.cn/kongbu/2268018.htm)
-- [专家称12345应实名制](http://www.play.hengshemaoyi.cn/kongbu/6473132.htm)
-- [【纪录片TV】大乾乾被撞成两半了……](http://www.daogukj.com/1106243)
+- [宋亚轩 得物账号](http://www.play.hengshemaoyi.cn/kongbu/2268018.htm)
+- [印度记者：中印已无可比性](http://www.play.hengshemaoyi.cn/kongbu/6473132.htm)
+- [原创民俗AI短片《槐灯》](http://www.daogukj.com/1106243)
 - [台湾艺人疑因涉嫌损坏日本文物被捕](http://www.play.hengshemaoyi.cn/xiju/5943556.htm)
-- [公司用敌敌畏给绿茶等餐厅消杀](http://www.daogukj.com/9530499)
-- [宇树机器人100米预赛小组垫底，同组第一名100米9秒39打破人类纪录，如何本场比赛各家机器人表现？](http://www.movie.hkepx.cn/xiju/0808829.htm)
-- [美债风暴席卷全球](http://www.play.hengshemaoyi.cn/kongbu/8834808.htm)
+- [三台风扎堆营业 多地将有大暴雨](http://www.daogukj.com/9530499)
+- [为什么吉林大学实力很强投档线却很低?](http://www.movie.hkepx.cn/xiju/0808829.htm)
+- [派出所回应扶老人被索赔10万事件](http://www.play.hengshemaoyi.cn/kongbu/8834808.htm)
 - [四川一金店黄金山洪中被冲走？假的](http://www.movie.hkepx.cn/xiju/0940758.htm)
-- [我做了两个一模一样的视频，你被分配到的是——真人手搓版](http://www.movie.hkepx.cn/movie/9022890.htm)
+- [原来我是只蚊子！](http://www.movie.hkepx.cn/movie/9022890.htm)
 - [神坛之下06｜金碧妖庭歌舞盛，觥筹交错人为宴！](http://www.play.hengshemaoyi.cn/kongbu/2216390.htm)
-- [《原神》过场动画-「凯旋」](http://www.play.hengshemaoyi.cn/xiju/1375823.htm)
-- [从140瘦到了95斤](http://www.daogukj.com/goeqgpai/)
+- [没人会记得神作之下的第二名，除非那一年都是神仙！](http://www.play.hengshemaoyi.cn/xiju/1375823.htm)
+- [韩沛颖让王晓晨道歉](http://www.daogukj.com/goeqgpai/)
 - [今日出伏](http://www.play.hengshemaoyi.cn/kongbu/1757591.htm)
-- [96岁太爷爷独自到县城看望重孙](http://www.play.hengshemaoyi.cn/kongbu/9879555.htm)
-- [暴雨黄色预警！5省部分地区有大暴雨](http://www.play.hengshemaoyi.cn/xiju/7503553.htm)
-- [阿里巴巴公布800亿港元新股配售方案](http://www.movie.hkepx.cn/xiju/5861166.htm)
-- [月子里两位老人共同照料爆发矛盾，母亲回了老家，夹在中间该怎么解决？](http://www.play.hengshemaoyi.cn/xiju/5549607.htm)
+- [丁俊晖：未来世界第一都是中国球员](http://www.play.hengshemaoyi.cn/kongbu/9879555.htm)
+- [网友收到长宁7.7地震预警 官方通报](http://www.play.hengshemaoyi.cn/xiju/7503553.htm)
+- [沈腾：拍龙餐馆把一辈子眼泪都流完了](http://www.movie.hkepx.cn/xiju/5861166.htm)
+- [鹰角《终末地》限定池增设大保底继承，但仅限复刻同角色，这机制对玩家是利是弊？](http://www.play.hengshemaoyi.cn/xiju/5549607.htm)
 - [【独家】牧神记 第97集 登基](http://www.play.hengshemaoyi.cn/kongbu/6769731.htm)
-- [中国队获U18男篮亚洲杯亚军](http://www.play.hengshemaoyi.cn/xiju/8003531.htm)
-- [原创民俗AI短片《槐灯》](http://www.movie.hkepx.cn/xiju/9172364.htm)
-- [严肃观看儿子的历史记录](http://www.movie.hkepx.cn/movie/6262590.htm)
-- [最近日本关于中国的媒体报道，我想跟大家说几句话](http://www.play.hengshemaoyi.cn/kongbu/5906748.htm)
-- [一定要珍惜你身体里尚存的欲望](http://www.daogukj.com/goynbzba/)
-- [宋亚轩 得物账号](http://www.daogukj.com/oqkhnwnb/)
-- [羞答答的机器人跑了第一](http://www.movie.hkepx.cn/xiju/8878997.htm)
-- [警员执法遇F-18战机坠落，6700万战损，飞行员报警求助！](http://www.daogukj.com/frbhpamg/)
-- [“三台共舞” 今年台风为何如此活跃](http://www.daogukj.com/8218296)
-- [青瓦台因游客过多遭严重损坏](http://www.movie.hkepx.cn/xiju/3382411.htm)
-- [鹰角《终末地》限定池增设大保底继承，但仅限复刻同角色，这机制对玩家是利是弊？](http://www.play.hengshemaoyi.cn/kongbu/3195197.htm)
-- [美日德英法这些国家为什么没有户口制度？](http://www.movie.hkepx.cn/xiju/8373508.htm)
-- [机器人只做人类不爱做、做不好的事](http://www.daogukj.com/uamigzyj/)
-- [成都震感](http://www.daogukj.com/uevljbcs/)
-- [四六级成绩](http://www.play.hengshemaoyi.cn/xiju/4322946.htm)
-- [花5.9万养发被剃光头拔白发](http://www.movie.hkepx.cn/movie/3471289.htm)
-- [四川宜宾长宁县发生4.7级地震](http://www.movie.hkepx.cn/movie/3873340.htm)
-- [治沙英雄殷玉珍和赛考斯含泪相拥](http://www.daogukj.com/0908523)
-- [男子出轨销售买千万保险 律师解读](http://www.daogukj.com/7782066)
-- [抽象新闻：8月人类迷惑行为大赏（上）](http://www.play.hengshemaoyi.cn/kongbu/3377780.htm)
+- [男子拉西瓜自驾进藏一路摆摊赚2000多](http://www.play.hengshemaoyi.cn/xiju/8003531.htm)
+- [特大暴雨来了：三台风几乎都已锁定我国，超强台风沙德尔走位古怪](http://www.movie.hkepx.cn/xiju/9172364.htm)
+- [【短的发布会】牛X！华为首款“X”车智界RX，来了！](http://www.movie.hkepx.cn/movie/6262590.htm)
+- [警员执法遇F-18战机坠落，6700万战损，飞行员报警求助！](http://www.play.hengshemaoyi.cn/kongbu/5906748.htm)
+- [张韶涵因心脏病找母亲要医疗费未果](http://www.daogukj.com/goynbzba/)
+- [四六级成绩](http://www.daogukj.com/oqkhnwnb/)
+- [早春晴朗will选刘畅好对味](http://www.movie.hkepx.cn/xiju/8878997.htm)
+- [我做了两个一模一样的视频，你被分配到的是——真人手搓版](http://www.daogukj.com/frbhpamg/)
+- [泽连斯基遭遇逼宫](http://www.daogukj.com/8218296)
+- [全国推广去世亲人存款查询](http://www.movie.hkepx.cn/xiju/3382411.htm)
+- [「泔水喂猪」被正式写入禁令，用剩菜剩饭直接喂猪有什么影响？为何禁止？](http://www.play.hengshemaoyi.cn/kongbu/3195197.htm)
+- [嫦娥七号任务不能在今年预定窗口实施，对我国探月工程有怎样的影响？](http://www.movie.hkepx.cn/xiju/8373508.htm)
+- [暴雨黄色预警！5省部分地区有大暴雨](http://www.daogukj.com/uamigzyj/)
+- [千万不要冲动买养老房](http://www.daogukj.com/uevljbcs/)
+- [长宁地震预警误报](http://www.play.hengshemaoyi.cn/xiju/4322946.htm)
+- [老人店内离世店主赔1.9万 细节披露](http://www.movie.hkepx.cn/movie/3471289.htm)
+- [美国记者激动称赞殷玉珍是超级英雄](http://www.movie.hkepx.cn/movie/3873340.htm)
+- [96岁太爷爷独自到县城看望重孙](http://www.daogukj.com/0908523)
+- [法制阵风战机将与中方歼16联训](http://www.daogukj.com/7782066)
+- [《原神》过场动画-「凯旋」](http://www.play.hengshemaoyi.cn/kongbu/3377780.htm)
 - [如何评价美国海军最新公开的 AIM-424“恶意”远程空空导弹？](http://www.play.hengshemaoyi.cn/xiju/9852587.htm)
-- [飞机散云止雨加重内蒙古旱情不实](http://www.daogukj.com/njwfupeo/)
-- [中国大使怒斥菲方：我会让你付出代价](http://www.play.hengshemaoyi.cn/kongbu/1527267.htm)
+- [太原大暴雨已致3人遇难系谣言](http://www.daogukj.com/njwfupeo/)
+- [小伙赛中去世 队友烧球衣称不再打球](http://www.play.hengshemaoyi.cn/kongbu/1527267.htm)
 - [我这一生最大的罪，是把人写成了妖……](http://www.play.hengshemaoyi.cn/xiju/3775329.htm)
 
 </details>
 
 ## 原始来源
 
-- [台风紫檀致广西宁明多处被淹](https://www.baidu.com/s?wd=%E5%8F%B0%E9%A3%8E%E7%B4%AB%E6%AA%80%E8%87%B4%E5%B9%BF%E8%A5%BF%E5%AE%81%E6%98%8E%E5%A4%9A%E5%A4%84%E8%A2%AB%E6%B7%B9&sa=fyb_news&rsv_dl=fyb_news)
+- [俄击落269架乌无人机 普京：加强攻势](https://www.baidu.com/s?wd=%E4%BF%84%E5%87%BB%E8%90%BD269%E6%9E%B6%E4%B9%8C%E6%97%A0%E4%BA%BA%E6%9C%BA+%E6%99%AE%E4%BA%AC%EF%BC%9A%E5%8A%A0%E5%BC%BA%E6%94%BB%E5%8A%BF&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 06d284a8d32c7e901774 -->
+<!-- content-fingerprint: e4e1b18ea8c47ff1e772 -->
