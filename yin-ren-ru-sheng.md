@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 🦋 炼 定 仙 游 ♂ 股 🦋
+# 英伟达创4年来最长连跌纪录
 
-> 来源：哔哩哔哩热门 · 排名：第 20 位 · 热度：856682 · 分类：鬼畜调教 · 更新：2026-08-25T13:55:44+08:00
+> 来源：百度热搜 · 排名：第 20 位 · 热度：5890684 · 更新：2026-08-25T14:40:30+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“🦋 炼 定 仙 游 ♂ 股 🦋”位列第 20 位，公开热度指标为 856682，榜单分类为“鬼畜调教”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“英伟达创4年来最长连跌纪录”位列第 20 位，公开热度指标为 5890684。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：尝试用ai做一些鬼畜剧，本片纯属做着玩，之后看看再做点啥好玩的 风天语的语气感觉还是ai音频出来的效果更好，所以替换的LBW的语音比较少 结尾念诗部分配音出处@配音木成
+来源公开摘要显示：美东时间8月24日，英伟达收盘报208.48美元，跌幅2.91%。其股价已连续七个交易日下行，期间累计下跌7.5%，创下2022年9月以来四年时间里最长连跌纪录，较今年5月14日创下的历史收盘高点235.74美元跌超10%。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `鬼畜调教`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [成都出台十条新政 公积金贷款贴息20%](jing-di-zhi-wa.md)
-- [男子求复合遭拒割喉前女友捅数十刀](hai-kuo-tian-kong.md)
-- [洛杉矶流浪汉在高速桥墩上搭“阁楼”](gao-zhan-yuan-zhu.md)
-- [想跟领导提升职的事情，又不敢当面说，发了微信没收到回复，还有必要再当面说么？](xiong-you-cheng-zhu.md)
+- [徐克感谢向太为他澄清没有孩子](jing-di-zhi-wa.md)
+- [大量运动员将入住亚运会集装箱房](hai-kuo-tian-kong.md)
+- [如何看待丁俊晖连续首轮出局后表示「不知道你们在期待什么」，丁俊晖现在在国内排第几，状态还能恢复吗？](gao-zhan-yuan-zhu.md)
+- [威虫快跑！！！](xiong-you-cheng-zhu.md)
 
 ## 站内推荐
 
-- [王中王夺冠自战解说](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
-- [放弃一切，只为等你](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
-- [小米玄戒O3芯片前瞻上手：外星科技！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- ["复活吧！我的（ ）"](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [第四集 | 🐧雷斯：“我变成御姐了？！”🐧](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [“救援航母”挺进广西宁明灾区](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
+- [《欢迎来龙餐馆》宣布全球上映计划](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
+- [散瞳验光伤害孩子眼睛系谣言](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
+- [“扶老人被索赔”事件 完整监控视频](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [“你就是跑到天涯海角 也能抓到你”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [癌症疫苗来了](http://www.daogukj.com/vrzctubb/)
-- [《海阔天空》一个人的乐队](http://www.daogukj.com/6886560)
-- [【科学修仙】你给姐下套，姐带你打瓦...【up动画】](http://www.movie.hkepx.cn/movie/9717106.htm)
-- [想跟领导提升职的事情，又不敢当面说，发了微信没收到回复，还有必要再当面说么？](http://www.play.hengshemaoyi.cn/xiju/5241849.htm)
-- [法国团队利用离体死后人脑组织控制机械手弹钢琴，该实验有何科学原理和伦理意义？](http://www.daogukj.com/0392707)
-- [“飞人”博尔特求婚成功](http://www.play.hengshemaoyi.cn/kongbu/2803464.htm)
-- [双世宠妃男女主现状](http://www.movie.hkepx.cn/xiju/1334432.htm)
-- [司机打瞌睡被后座乘客一巴掌打醒](http://www.play.hengshemaoyi.cn/kongbu/2200403.htm)
-- [散瞳验光伤害孩子眼睛系谣言](http://www.play.hengshemaoyi.cn/kongbu/7911895.htm)
-- [男子求复合遭拒割喉前女友捅数十刀](http://www.movie.hkepx.cn/movie/9434304.htm)
-- [国管公积金新政发布，首套房最高可贷款 340 万元，有哪些信息值得关注？](http://www.daogukj.com/9720422)
-- [9月工资发放时间金额或有变化](http://www.daogukj.com/5290019)
-- [我军试射“黑色”导弹测试极限性能](http://www.movie.hkepx.cn/movie/2595562.htm)
-- [解放军试射“黑色”导弹测试极限性能](http://www.movie.hkepx.cn/movie/1663396.htm)
-- [如何评价耗资750万投资的影游《恶校游戏》仅回血50万，发售1周后制作组宣布解散？](http://www.daogukj.com/xmeoocun/)
-- [男子甘孜摩旅被牦牛顶飞](http://www.daogukj.com/srvnzwkb/)
-- [贱谍过家家（8）](http://www.daogukj.com/9309214)
-- [理想型：你真的知道自己会喜欢谁吗？](http://www.play.hengshemaoyi.cn/kongbu/8088630.htm)
-- [大众汽车拟裁员5万人 史上最大重组](http://www.play.hengshemaoyi.cn/xiju/2775140.htm)
-- [如何看待诺兰《奥德赛》全球吸金超13.52亿，力压《死侍与金刚狼》登顶影史票房最高 R 级电影？](http://www.play.hengshemaoyi.cn/kongbu/3428499.htm)
-- [董宇辉等主播走后，东方甄选少发4亿薪酬，新财年净赚超5亿元，怎样解读这一变化？东方甄选转型算成功了吗？](http://www.daogukj.com/3278515)
-- [电影八仙](http://www.movie.hkepx.cn/xiju/0756083.htm)
+- [余秀华希望一百年后人类灭亡](http://www.daogukj.com/vrzctubb/)
+- [戚薇授权AI短剧 观众为什么坐不住了](http://www.daogukj.com/6886560)
+- [银川一中学施行发型令：不合格不让进](http://www.movie.hkepx.cn/movie/9717106.htm)
+- [威虫快跑！！！](http://www.play.hengshemaoyi.cn/xiju/5241849.htm)
+- [我找了3000人进行高考生存挑战！](http://www.daogukj.com/0392707)
+- [太极拳思路的以柔克刚，借力打力都貌似很合理，为什么实战起来这个力就克不动，卸不掉，也借不到呢？](http://www.play.hengshemaoyi.cn/kongbu/2803464.htm)
+- [央媒评扶老人被索赔：法律不能和稀泥](http://www.movie.hkepx.cn/xiju/1334432.htm)
+- [自动驾驶状态违法由车企担责](http://www.play.hengshemaoyi.cn/kongbu/2200403.htm)
+- [张凌赫母校不请张凌赫因为安保不行](http://www.play.hengshemaoyi.cn/kongbu/7911895.htm)
+- [大量运动员将入住亚运会集装箱房](http://www.movie.hkepx.cn/movie/9434304.htm)
+- [高中生逃离原生家庭过程（下）](http://www.daogukj.com/9720422)
+- [诺兰为什么要弱化《奥德赛》原著中的幽默、情色与荒诞，拍得如此严肃？](http://www.daogukj.com/5290019)
+- [如何评价2026年科隆游戏展「最佳移动游戏」五项提名被国产游戏包揽？谁最有可能最终获奖？](http://www.movie.hkepx.cn/movie/2595562.htm)
+- [官方确认帮扶老人遭索赔店主不担责](http://www.movie.hkepx.cn/movie/1663396.htm)
+- [王中王夺冠自战解说](http://www.daogukj.com/xmeoocun/)
+- [如何看待诺兰《奥德赛》全球吸金超13.52亿，力压《死侍与金刚狼》登顶影史票房最高 R 级电影？](http://www.daogukj.com/srvnzwkb/)
+- [《崩坏：星穹铁道》知更鸟•晴歌角色PV——「追赶风的方向」](http://www.daogukj.com/9309214)
+- [大众汽车拟裁员5万人 史上最大重组](http://www.play.hengshemaoyi.cn/kongbu/8088630.htm)
+- [成都蛋烘糕奶奶被镜头霸凌](http://www.play.hengshemaoyi.cn/xiju/2775140.htm)
+- [小米玄戒O3芯片前瞻上手：外星科技！](http://www.play.hengshemaoyi.cn/kongbu/3428499.htm)
+- [那个被当成毛泽东的人，日本人认错了他，但我们应该认识他！](http://www.daogukj.com/3278515)
+- [二婚夫妇意外去世 4个子女争遗产](http://www.movie.hkepx.cn/xiju/0756083.htm)
 - [官方确认「帮扶老人遭索赔案」店主不承担法律责任，此前被索赔1.9万已全额返还，这件事带给我们什么反思？](http://www.daogukj.com/yszfskeo/)
-- [鞠婧祎腿好长](http://www.daogukj.com/exnmuhvg/)
-- [有什么有趣的中国文化溢出？](http://www.play.hengshemaoyi.cn/kongbu/0838017.htm)
-- [国安部：靖国神社就是“战犯神社”](http://www.movie.hkepx.cn/xiju/4430016.htm)
-- [《新数码宝贝 · 全面战争》【8分钟管饱】](http://www.play.hengshemaoyi.cn/xiju/8509628.htm)
-- [扶老人被索赔事件完整监控视频曝光](http://www.daogukj.com/4084559)
-- [余承东：全新三折叠即将登场](http://www.play.hengshemaoyi.cn/kongbu/7290776.htm)
-- [洛杉矶流浪汉在高速桥墩上搭“阁楼”](http://www.movie.hkepx.cn/xiju/8703656.htm)
-- [那个被当成毛泽东的人，日本人认错了他，但我们应该认识他！](http://www.daogukj.com/xgwhpfta/)
-- [于正说周柯宇母语不是中文](http://www.play.hengshemaoyi.cn/kongbu/5234043.htm)
-- [成都出台十条新政 公积金贷款贴息20%](http://www.play.hengshemaoyi.cn/xiju/0981929.htm)
-- [新加坡未来每名孩童可获32万元补助](http://www.daogukj.com/8836439)
-- [“扶老人被索赔”事件 完整监控视频](http://www.daogukj.com/syjkuwqb/)
-- ["复活吧！我的（ ）"](http://www.play.hengshemaoyi.cn/kongbu/5357592.htm)
-- [中国空军赴埃及训练有何影响](http://www.daogukj.com/5545136)
-- [以色列黑手党头目遭枪杀 被一枪爆头](http://www.daogukj.com/myafughb/)
-- [为啥地下党发报，不把电台藏在马车或者黄包车上，一边转圈一边发报？](http://www.daogukj.com/drenvtnu/)
-- [女子买到长蘑菇柿子已寄给研究所](http://www.movie.hkepx.cn/movie/8190790.htm)
-- [员工要陪老板演戏吗？我真去影视飓风上班了...](http://www.daogukj.com/uthpzicf/)
-- [美或将对华加税7.5%](http://www.play.hengshemaoyi.cn/kongbu/9527939.htm)
+- [越南为何为对接中国铁路追加30亿美元](http://www.daogukj.com/exnmuhvg/)
+- [《新数码宝贝 · 全面战争》【8分钟管饱】](http://www.play.hengshemaoyi.cn/kongbu/0838017.htm)
+- [卓沅初舞台被叫停](http://www.movie.hkepx.cn/xiju/4430016.htm)
+- [成都出台十条新政 公积金贷款贴息20%](http://www.play.hengshemaoyi.cn/xiju/8509628.htm)
+- [新华社发文庆贺 AG 电子竞技俱乐部夺得 2026 世俱杯总冠军，这一奖项含金量有多大？](http://www.daogukj.com/4084559)
+- [孙浩评论了刘浩存](http://www.play.hengshemaoyi.cn/kongbu/7290776.htm)
+- [如何看待丁俊晖连续首轮出局后表示「不知道你们在期待什么」，丁俊晖现在在国内排第几，状态还能恢复吗？](http://www.movie.hkepx.cn/xiju/8703656.htm)
+- [癌症疫苗来了](http://www.daogukj.com/xgwhpfta/)
+- [因上厕所不让路大打出手6人被拘](http://www.play.hengshemaoyi.cn/kongbu/5234043.htm)
+- [徐克感谢向太为他澄清没有孩子](http://www.play.hengshemaoyi.cn/xiju/0981929.htm)
+- [董宇辉等主播走后，东方甄选少发4亿薪酬，新财年净赚超5亿元，怎样解读这一变化？东方甄选转型算成功了吗？](http://www.daogukj.com/8836439)
+- [曾舜晞跟孟子义吵架会哭](http://www.daogukj.com/syjkuwqb/)
+- [“扶老人被索赔”事件 完整监控视频](http://www.play.hengshemaoyi.cn/kongbu/5357592.htm)
+- [如何评价死神千年血战祸进谭第五集后井上织姬的风评直接两极反转？](http://www.daogukj.com/5545136)
+- [印度高管赴华签证过审率骤降](http://www.daogukj.com/myafughb/)
+- [放弃一切，只为等你](http://www.daogukj.com/drenvtnu/)
+- [媒体：扶不扶不能再成为社会阴影](http://www.movie.hkepx.cn/movie/8190790.htm)
+- [花599元买洞洞鞋 穿1个月鞋底磨平](http://www.daogukj.com/uthpzicf/)
+- [学生发型不合格就不能进校上课，这样执行校规合理吗？中学生为什么非得剪短发？](http://www.play.hengshemaoyi.cn/kongbu/9527939.htm)
 - [扶老人被索赔店主支付的1.9万获返还](http://www.daogukj.com/2678664)
-- [【Spirit】我们早已习惯作为反派登场，嘘声再大一点根本听不见！](http://www.daogukj.com/qevzlmky/)
-- [诺兰为什么要弱化《奥德赛》原著中的幽默、情色与荒诞，拍得如此严肃？](http://www.play.hengshemaoyi.cn/kongbu/2252968.htm)
-- [“救援航母”挺进广西宁明灾区](http://www.movie.hkepx.cn/movie/6923701.htm)
-- [自动驾驶状态违法由车企担责](http://www.daogukj.com/2329215)
-- [两台风可能登陆 中央气象台升级预警](http://www.movie.hkepx.cn/movie/1652771.htm)
-- [韩剧史上最好的男主交替场面](http://www.play.hengshemaoyi.cn/xiju/2768861.htm)
-- [金晨我不是迪丽热巴](http://www.daogukj.com/8449888)
+- [一辆汽车冲入西湖 景区回应](http://www.daogukj.com/qevzlmky/)
+- [护理：一把斩向死亡的温柔刀](http://www.play.hengshemaoyi.cn/kongbu/2252968.htm)
+- [神23乘组天宫vlog上新](http://www.movie.hkepx.cn/movie/6923701.htm)
+- [女排锦标赛出现25-0超狂战况](http://www.daogukj.com/2329215)
+- [房东称帮扶老人店主可能会转让门店](http://www.movie.hkepx.cn/movie/1652771.htm)
+- [大V：特朗普畸形审美让美航母开倒车](http://www.play.hengshemaoyi.cn/xiju/2768861.htm)
+- [两小孩扮齐天大圣被“哮天犬”狂追](http://www.daogukj.com/8449888)
 
 </details>
 
 ## 原始来源
 
-- [🦋 炼 定 仙 游 ♂ 股 🦋](https://b23.tv/BV1F58v61EXV)
+- [英伟达创4年来最长连跌纪录](https://www.baidu.com/s?wd=%E8%8B%B1%E4%BC%9F%E8%BE%BE%E5%88%9B4%E5%B9%B4%E6%9D%A5%E6%9C%80%E9%95%BF%E8%BF%9E%E8%B7%8C%E7%BA%AA%E5%BD%95&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 18d1d877fb61c39ff70e -->
+<!-- content-fingerprint: 62b48a14b07436fa911c -->
