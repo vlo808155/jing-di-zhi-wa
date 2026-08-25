@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 2026 金鹰奖提名揭晓，于和伟王宝强胡歌争视帝，闫妮宋佳马伊俐杨紫争视后，杨幂掉提，你看好哪些获奖？
+# 人有烦恼是因为什么？
 
-> 来源：知乎热榜 · 排名：第 19 位 · 热度：66 万热度 · 分类：问答 · 更新：2026-08-26T05:45:26+08:00
+> 来源：知乎热榜 · 排名：第 19 位 · 热度：64 万热度 · 分类：问答 · 更新：2026-08-26T06:02:06+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“2026 金鹰奖提名揭晓，于和伟王宝强胡歌争视帝，闫妮宋佳马伊俐杨紫争视后，杨幂掉提，你看好哪些获奖？”位列第 19 位，公开热度指标为 66 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“人有烦恼是因为什么？”位列第 19 位，公开热度指标为 64 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：2026 金鹰奖提名揭晓，36 部电视剧入围 电视剧 《上甘岭》《小城大事》《小巷人家》《山花烂漫时》《凡人歌》《太平年》《日光之城》《六姊妹》《以法之名》《北上》《归队》《生万物》《生命树》《边水往事》《老舅》《扫毒风暴》《西北岁月》《庆余年(第二季)》《阵地》《好好的时光》《走向大西南》《我们的河山》《我的阿勒泰》《我是刑警》《沉默的荣耀》《玫瑰的故事》《幸福草》《国色芳华》《驻站》《唐朝诡事录之长安》《海天雄鹰》《浴血荣光》《家事法庭》《棋士》《蛮好的人生》《藏海传》 电视剧导演 李雪 —《生命树》 杨亚洲 —《沉默的荣耀》 杨磊、陆贝珂 —《太平
+知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -19,45 +19,45 @@
 ## 相关热点
 
 - [开战！开战！万税爷向一切反对派开战](hua-long-dian-jing.md)
-- [幼儿园不得提前教拼音识字等小学内容](miao-bi-sheng-hua.md)
-- [白鹿的奖运](sheng-dong-huo-po.md)
-- [瓶装饮料为什么不好卖了](xu-xu-ru-sheng.md)
+- [未开封水现蚂蚱 商家销毁问题水](miao-bi-sheng-hua.md)
+- [赴韩失联女生父母至今仍不知情](sheng-dong-huo-po.md)
+- [9月工资发放时间金额或有变化](xu-xu-ru-sheng.md)
 
 ## 站内推荐
 
 - [台风紫檀已登陆](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [A股连续迎来“大肉签”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [官方：征集火箭军部队违规采购问题](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [如何看待索尼强调「数字游戏仅授权不出售，封号即资产清零」？你支持“全价购买≠拥有”这种做法吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [对于见证过勇士王朝的人来说，再看现在的勇士队，有什么感想？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [在韩遇害女生原计划23日回国入职](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [小伙把腹胀当胃病查出肝癌晚期](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [对于见证过勇士王朝的人来说，再看现在的勇士队，有什么感想？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [2026 金鹰奖提名揭晓，于和伟王宝强胡歌争视帝，闫妮宋佳马伊俐杨紫争视后，杨幂掉提，你看好哪些获奖？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [越南为何为对接中国铁路追加30亿美元](http://www.play.hengshemaoyi.cn/xiju/6246916.htm)
+- [肯尼亚18头大象接连死亡](http://www.play.hengshemaoyi.cn/xiju/6246916.htm)
 - [放弃一切，只为等你](http://www.play.hengshemaoyi.cn/xiju/0196335.htm)
-- [刘亦菲掉提金鹰奖最佳女主](http://www.daogukj.com/txhvfhkc/)
+- [中国公民尽快撤离斯威士兰](http://www.daogukj.com/txhvfhkc/)
 - [三岁女儿被踢进ICU，爸爸还有前科？！](http://www.movie.hkepx.cn/xiju/8357680.htm)
-- [一碗好面，是面条更重要，还是面汤更重要，还是里面配菜更重要？](http://www.movie.hkepx.cn/xiju/7453143.htm)
+- [如何评价《冰与火之歌》中的雷加.坦格利安？](http://www.movie.hkepx.cn/xiju/7453143.htm)
 - [“你的心意我收了 我的你也必须收”](http://www.daogukj.com/3829236)
 - [多名农民称莫名成企业法人「被贷款」千万元，涉事银行已启动调查，哪些问题值得关注？](http://www.movie.hkepx.cn/movie/7849010.htm)
 - [人民日报评“大学生家长群”](http://www.movie.hkepx.cn/movie/3810739.htm)
-- [中国公民尽快撤离斯威士兰](http://www.daogukj.com/xwtczorl/)
-- [10名干部变身外卖骑手 14天跑1148单](http://www.daogukj.com/9411778)
+- [刘亦菲掉提金鹰奖最佳女主](http://www.daogukj.com/xwtczorl/)
+- [内蒙古乌兰察布突发山洪 已致4人遇难](http://www.daogukj.com/9411778)
 - [30多国宣布：准备向乌克兰派兵](http://www.movie.hkepx.cn/xiju/1018177.htm)
 - [30多国准备派兵乌克兰](http://www.movie.hkepx.cn/movie/7549482.htm)
 - [赵丽颖突发身体不适](http://www.movie.hkepx.cn/xiju/3152832.htm)
 - [【科学修仙】你给姐下套，姐带你打瓦...【up动画】](http://www.movie.hkepx.cn/xiju/6452829.htm)
 - [【逆天中配】超神人辉夜姬 完整版大电影](http://www.play.hengshemaoyi.cn/kongbu/1742289.htm)
-- [俄方：在乌克兰部署北约军队不可接受](http://www.play.hengshemaoyi.cn/xiju/4134369.htm)
-- [官方：征集火箭军部队违规采购问题](http://www.play.hengshemaoyi.cn/kongbu/8805735.htm)
+- [浙江女子支付宝莫名其妙被扣钱](http://www.play.hengshemaoyi.cn/xiju/4134369.htm)
+- [小伙把腹胀当胃病查出肝癌晚期](http://www.play.hengshemaoyi.cn/kongbu/8805735.htm)
 - [30多国宣布准备向乌派兵](http://www.movie.hkepx.cn/xiju/1005247.htm)
 - [在嫌疑人住处发现在韩遇害女生遗体](http://www.play.hengshemaoyi.cn/xiju/4070224.htm)
 - [《海阔天空》一个人的乐队](http://www.movie.hkepx.cn/movie/8130025.htm)
-- [9月工资发放时间金额或有变化](http://www.play.hengshemaoyi.cn/kongbu/7840266.htm)
-- [尹锡悦出庭作证：宣布戒严是因为天真](http://www.daogukj.com/mgvzhkvp/)
+- [叔叔带侄女录取通知书到亲人坟前报喜](http://www.play.hengshemaoyi.cn/kongbu/7840266.htm)
+- [官方：征集火箭军部队违规采购问题](http://www.daogukj.com/mgvzhkvp/)
 - [公司批量劝退应届生 江苏常州通报](http://www.play.hengshemaoyi.cn/kongbu/6692605.htm)
 - [法国团队利用离体死后人脑组织控制机械手弹钢琴，该实验有何科学原理和伦理意义？](http://www.daogukj.com/0659107)
 - [新生购票和携带物品指南来了](http://www.movie.hkepx.cn/movie/2177161.htm)
@@ -67,14 +67,14 @@
 - [演员陈明求职上热搜后热度不减](http://www.movie.hkepx.cn/movie/9454869.htm)
 - [高中生逃离原生家庭过程（下）](http://www.movie.hkepx.cn/movie/8856381.htm)
 - [德芙七夕营销「趁男朋友不在跟暧昧对象分享」翻车，为何此类翻车频繁发生，哪里出了问题？对德芙会有影响吗？](http://www.movie.hkepx.cn/movie/7928531.htm)
-- [白鹿的奖运](http://www.play.hengshemaoyi.cn/kongbu/5748891.htm)
+- [赴韩失联女生父母至今仍不知情](http://www.play.hengshemaoyi.cn/kongbu/5748891.htm)
 - [“禁止殴打顾客 除非忍不住”](http://www.movie.hkepx.cn/movie/2928084.htm)
-- [一架美国军机降落莫斯科](http://www.play.hengshemaoyi.cn/xiju/0239872.htm)
-- [内蒙古乌兰察布突发山洪 已致4人遇难](http://www.daogukj.com/7779634)
+- [越南为何为对接中国铁路追加30亿美元](http://www.play.hengshemaoyi.cn/xiju/0239872.htm)
+- [10名干部变身外卖骑手 14天跑1148单](http://www.daogukj.com/7779634)
 - [员工要陪老板演戏吗？我真去影视飓风上班了...](http://www.play.hengshemaoyi.cn/kongbu/8270746.htm)
 - [武汉轮椅老人上高架蓄意碰瓷不实](http://www.daogukj.com/7335488)
-- [人有烦恼是因为什么？](http://www.movie.hkepx.cn/xiju/7580266.htm)
-- [男子杀害前女友被判死缓 检方抗诉](http://www.play.hengshemaoyi.cn/xiju/9936981.htm)
+- [如何看待索尼强调「数字游戏仅授权不出售，封号即资产清零」？你支持“全价购买≠拥有”这种做法吗？](http://www.movie.hkepx.cn/xiju/7580266.htm)
+- [扶不扶 不能再成为社会阴影](http://www.play.hengshemaoyi.cn/xiju/9936981.htm)
 - [歼-16与“阵风”罕见同框](http://www.movie.hkepx.cn/xiju/0655390.htm)
 - [13岁上海女孩靠AI三天赚1.8万元](http://www.daogukj.com/tyoqvbnt/)
 - [王中王夺冠自战解说](http://www.movie.hkepx.cn/xiju/8108717.htm)
@@ -91,8 +91,8 @@
 
 ## 原始来源
 
-- [2026 金鹰奖提名揭晓，于和伟王宝强胡歌争视帝，闫妮宋佳马伊俐杨紫争视后，杨幂掉提，你看好哪些获奖？](https://www.zhihu.com/question/2075603608276394254)
+- [人有烦恼是因为什么？](https://www.zhihu.com/question/2053179770339333608)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 5f449383775835d6fa71 -->
+<!-- content-fingerprint: 34e82033a65bb86ce570 -->
