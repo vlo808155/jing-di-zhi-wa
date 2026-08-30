@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 如何看待辽宁中考小三门（生物学、地理、历史）不纳入总分，会带来哪些影响？
+# 综艺节目遗留道具2年成海滩垃圾
 
-> 来源：知乎热榜 · 排名：第 17 位 · 热度：84 万热度 · 分类：问答 · 更新：2026-08-30T14:46:26+08:00
+> 来源：百度热搜 · 排名：第 17 位 · 热度：6181005 · 更新：2026-08-30T20:17:24+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何看待辽宁中考小三门（生物学、地理、历史）不纳入总分，会带来哪些影响？”位列第 17 位，公开热度指标为 84 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“综艺节目遗留道具2年成海滩垃圾”位列第 17 位，公开热度指标为 6181005。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：为优化考试评价，减轻学生课业负担，经调研论证，决定对中考部分事项进行调整。 自2026年秋季学期八年级（初二）学生起，将生物学、地理、历史等3个科目，由考试科目调整为考查科目，考试结果以等级形式呈现，不计入中考总分，其他事项不变。https://mp.weixin.qq.com/s/pysssGczmRas918938ILEQ
+来源公开摘要显示：海南万宁一海滩现2年前综艺《这是我的岛》遗留道具，已腐朽成垃圾。节目组称杀青后已完成垃圾清理，余下少量道具交由村民并约定处置责任归接收方；万宁市委宣传部称东澳镇政府已派人介入处理。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [欲买桂花同载酒，终不似，少年游。](gao-zhan-yuan-zhu.md)
-- [Anthropic得了美国病](xiong-you-cheng-zhu.md)
-- [15岁少年因大面积文身无法入学](yun-chou-wei-wo.md)
-- [吉隆口岸27处建筑被夷为平地](shen-mou-yuan-lv.md)
+- [张家齐说全红婵是天赋怪](gao-zhan-yuan-zhu.md)
+- [国家动博馆强烈谴责父亲带娃玩标本](xiong-you-cheng-zhu.md)
+- [为什么到清代，工艺品变得那么繁琐细碎，当时国人的审美为什么会变成这样？](yun-chou-wei-wo.md)
+- [您叫的骑手正忙 请稍后再拨](shen-mou-yuan-lv.md)
 
 ## 站内推荐
 
-- [西藏吉隆泥石流新闻发布会](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [吴敬平回应樊振东输户上隼辅](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [桂圆泡药水致癌？误解](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [西藏吉隆泥石流灾害新闻发布会实录](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
+- [特斯拉Cybercab灯带可显示不同颜色](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [重庆辟谣“外卖员往饮料里加百草枯”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
 - [网传 PL-17 导弹 J-20 弹仓无法容纳，是真的吗？若属实，这是设计局限还是战略考量？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [我求你看看这个节目吧！！！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [西藏吉隆 消防员在泥泞中牵绳爬行](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [医疗保障法 2027 年 1 月 1 日起施行，将给我们的生活带来哪些改变？](http://www.play.hengshemaoyi.cn/kongbu/1578357.htm)
-- [【大学生就业指导】麦当当薯条N重奏！200块买两斤土豆？不能够了！](http://www.movie.hkepx.cn/xiju/7876471.htm)
-- [武德充沛！在美国当牛仔到底有多刺激！](http://www.movie.hkepx.cn/xiju/5115238.htm)
-- [吉隆口岸大楼只剩钢筋骨架](http://www.movie.hkepx.cn/movie/0606742.htm)
-- [冉莹颖爸爸再婚三次为生儿子](http://www.play.hengshemaoyi.cn/xiju/7807975.htm)
-- [罗家英称自己仅剩8年寿命](http://www.movie.hkepx.cn/xiju/9954551.htm)
-- [男子诈骗入狱前转给女友261万](http://www.movie.hkepx.cn/movie/7533960.htm)
-- [吉隆口岸27处建筑被夷为平地](http://www.movie.hkepx.cn/xiju/8246281.htm)
+- [轻薄本疯狂砍掉A口、HDMI，全靠Type‑C，为轻薄牺牲接口，到底是进步还是对普通用户不负责任？](http://www.play.hengshemaoyi.cn/kongbu/1578357.htm)
+- [吃自助餐的九大神队友！你属于哪一种？](http://www.movie.hkepx.cn/xiju/7876471.htm)
+- [一个人，耗时18个月，2万元成本，手搓94分钟以刘慈欣小说《山》为故事原型的AI仿真人科幻电影](http://www.movie.hkepx.cn/xiju/5115238.htm)
+- [金饰销量暴跌34%](http://www.movie.hkepx.cn/movie/0606742.htm)
+- [中国女排vs泰国女排](http://www.play.hengshemaoyi.cn/xiju/7807975.htm)
+- [如何看待工信部通报一致性检测典型案例，比亚迪一款插混车型因油耗过高上榜？](http://www.movie.hkepx.cn/xiju/9954551.htm)
+- [梅艳芳母亲去世](http://www.movie.hkepx.cn/movie/7533960.htm)
+- [您叫的骑手正忙 请稍后再拨](http://www.movie.hkepx.cn/xiju/8246281.htm)
 - [特朗普称美国获得超650亿桶委石油储量的「多数控制权」，美国纳税人无需为此承担任何费用，如何看待此事？](http://www.play.hengshemaoyi.cn/xiju/4160683.htm)
-- [各方力量持续奋战西藏吉隆救灾一线](http://www.movie.hkepx.cn/movie/4035506.htm)
-- [我求你看看这个节目吧！！！](http://www.movie.hkepx.cn/movie/7792290.htm)
-- [全国中小学新教材将全部替换完成，对学生和教师带来哪些具体改变？](http://www.play.hengshemaoyi.cn/kongbu/1158345.htm)
-- [桂圆泡药水致癌？误解](http://www.play.hengshemaoyi.cn/xiju/2216098.htm)
-- [刘宇宁发文告别地球超新鲜2](http://www.daogukj.com/7206749)
-- [阿尔瓦雷斯传出身患抑郁，一周绝食，多次缺席训练，坚定想要转会巴塞罗那，你如何评价这一系列操作？](http://www.daogukj.com/3682471)
-- [华为新三折叠](http://www.play.hengshemaoyi.cn/kongbu/5760703.htm)
-- [立瓶子挑战，相亲相爱~](http://www.play.hengshemaoyi.cn/xiju/5757022.htm)
-- [金价暴跌之前有人直接清仓](http://www.play.hengshemaoyi.cn/kongbu/7848326.htm)
+- [医疗防疫分队前往救援一线](http://www.movie.hkepx.cn/movie/4035506.htm)
+- [西藏吉隆 消防员在泥泞中牵绳爬行](http://www.movie.hkepx.cn/movie/7792290.htm)
+- [国内教材什么时候开始背上“防自学”名声的？](http://www.play.hengshemaoyi.cn/kongbu/1158345.htm)
+- [重庆辟谣“外卖员往饮料里加百草枯”](http://www.play.hengshemaoyi.cn/xiju/2216098.htm)
+- [如果一款武侠游戏加入火枪，那么如何避免这个游戏过于依赖热武器？](http://www.daogukj.com/7206749)
+- [我爸爸脑出血并脑疝，是我选择放弃做手术，是我选择停用的药物，我现在却迷茫了，我不知道我做的对不对了?](http://www.daogukj.com/3682471)
+- [某综艺节目在海岛遗弃造景垃圾](http://www.play.hengshemaoyi.cn/kongbu/5760703.htm)
+- [二游做载具没一个能打的，《无限大》也不例外【NFSLYY】](http://www.play.hengshemaoyi.cn/xiju/5757022.htm)
+- [孙千腰以下全是腿](http://www.play.hengshemaoyi.cn/kongbu/7848326.htm)
 - [【独家/完结】《记忆管理局》第7集 记忆这样脆弱的东西【8月国创】](http://www.movie.hkepx.cn/xiju/6958589.htm)
-- [这三天请假难度堪比美国签证](http://www.movie.hkepx.cn/movie/7310674.htm)
-- [男子被冤摸女子臀部妻子气愤](http://www.play.hengshemaoyi.cn/kongbu/2440700.htm)
-- [孙千送包](http://www.play.hengshemaoyi.cn/kongbu/6463071.htm)
-- [去了一趟西班牙2.0（荒岛四兄弟篇）](http://www.daogukj.com/uiqoxaho/)
-- [如何看待孩子因为我没有给零花钱，为了一口零食放低姿态向同学乞讨，甚至喊同学做爸爸，孩子没骨气该不该打？](http://www.movie.hkepx.cn/xiju/9888707.htm)
-- [TOP回应抄袭王源间奏](http://www.movie.hkepx.cn/xiju/8080320.htm)
-- [福特（Ford）汽车的优势是什么？](http://www.play.hengshemaoyi.cn/xiju/5503009.htm)
-- [王菲一嗓子把李嫣吓一跳](http://www.play.hengshemaoyi.cn/xiju/8114286.htm)
-- [樊振东 2 比 3 惜败户上隼辅，其所在球队 1-3 不敌对手，无缘德国杯 8 强，如何评价他的表现？](http://www.play.hengshemaoyi.cn/xiju/9867402.htm)
-- [金牌幼师嫁给了二级厨师](http://www.daogukj.com/5414956)
-- [尼泊尔泥石流冰川源头曝光？不实](http://www.movie.hkepx.cn/movie/5135374.htm)
-- [方桃子登COSMO封面引争议](http://www.movie.hkepx.cn/movie/5537104.htm)
-- [中国高水平双向开放不断迈向新高度](http://www.daogukj.com/nlpmxiub/)
-- [西藏吉隆泥石流灾害救援为啥这么难](http://www.daogukj.com/9528136)
-- [2026年世界杯葡萄牙队为什么始终让c罗担任首发中锋?教练看不出他状态水平下滑，应该换人吗?](http://www.movie.hkepx.cn/xiju/7046583.htm)
-- [司机回应一条蛇从天而降砸引擎盖](http://www.movie.hkepx.cn/movie/7006918.htm)
-- [如何评价腾讯刚刚发布的Hy4 preview？](http://www.play.hengshemaoyi.cn/kongbu/0001475.htm)
+- [月亮](http://www.movie.hkepx.cn/movie/7310674.htm)
+- [梅艳芳剩余遗产将捐赠](http://www.play.hengshemaoyi.cn/kongbu/2440700.htm)
+- [数据标注需求呈指数级增长](http://www.play.hengshemaoyi.cn/kongbu/6463071.htm)
+- [武德充沛！在美国当牛仔到底有多刺激！](http://www.daogukj.com/uiqoxaho/)
+- [国家自然基金委通报 31 个项目并追回资助，这暴露出我国科研管理存在哪些问题？](http://www.movie.hkepx.cn/xiju/9888707.htm)
+- [当代年轻人的做饭现状belike](http://www.movie.hkepx.cn/xiju/8080320.htm)
+- [老师补课费用太贵了，不好意思拒绝，怎么办?](http://www.play.hengshemaoyi.cn/xiju/5503009.htm)
+- [开学三件套齐涨价家长直呼吃不消](http://www.play.hengshemaoyi.cn/xiju/8114286.htm)
+- [中国的天象观察很早便开始，为什么没发展成现代意义上的天文学？](http://www.play.hengshemaoyi.cn/xiju/9867402.htm)
+- [“皮鞋大王”奥康4年亏超9亿](http://www.daogukj.com/5414956)
+- [桂圆“打针增甜”不可能](http://www.movie.hkepx.cn/movie/5135374.htm)
+- [《水浒传》中谁才能称作是真正的好汉？](http://www.movie.hkepx.cn/movie/5537104.htm)
+- [抢险救援现场 照明无人机点亮夜空](http://www.daogukj.com/nlpmxiub/)
+- [唐嫣资助的女孩 放弃上大学](http://www.daogukj.com/9528136)
+- [当兵被班长往死里整，家里不愿帮你走动，你是硬留还是回家？](http://www.movie.hkepx.cn/xiju/7046583.htm)
+- [婚宴上，新郎的舅舅坐上席，新郎的叔叔不乐意了，扭头就走，舅舅应不应该坐上席?](http://www.movie.hkepx.cn/movie/7006918.htm)
+- [刘翔个人的广告费应该属于他个人的所得，为什么体育局要分他的广告费呢？体育局分广告费是基于哪条规定？](http://www.play.hengshemaoyi.cn/kongbu/0001475.htm)
 - [网传 PL-17 导弹 J-20 弹仓无法容纳，是真的吗？若属实，这是设计局限还是战略考量？](http://www.play.hengshemaoyi.cn/xiju/7201519.htm)
-- [您叫的骑手正忙 请稍后再拨](http://www.movie.hkepx.cn/xiju/0892442.htm)
-- [涉教师耻辱合影县是国家重点帮扶县，教师每天实时监测辍学人数，这项工作反映了当地教育面临哪些深层挑战？](http://www.daogukj.com/vukboudm/)
-- [西藏泥石流已致16人遇难546人失联](http://www.movie.hkepx.cn/movie/9956763.htm)
-- [多地立法严控学生带手机入校](http://www.daogukj.com/6468305)
-- [欧洲极右势力为何开始不满特朗普](http://www.movie.hkepx.cn/xiju/5050923.htm)
-- [“来中国之前 我不知道什么叫和平”](http://www.play.hengshemaoyi.cn/kongbu/1188761.htm)
-- [15岁少年因大面积文身无法入学](http://www.daogukj.com/gueipuzl/)
-- [16岁少女车祸离世 手机被人捡走刷机](http://www.daogukj.com/0647494)
-- [谢婷婷为46岁谢霆锋庆生](http://www.play.hengshemaoyi.cn/xiju/5125908.htm)
-- [当你的资产缩水到A0层级，挑选优质桥洞的六大方案！](http://www.movie.hkepx.cn/movie/9717231.htm)
-- [初中孩子更需要父母接送上下学](http://www.play.hengshemaoyi.cn/kongbu/0333129.htm)
-- [厄瓜多尔宣布全国进入红色警戒状态](http://www.play.hengshemaoyi.cn/xiju/0914168.htm)
-- [王菲教窦靖童social](http://www.daogukj.com/0263464)
+- [我的世界，但所有人共享背包！？](http://www.movie.hkepx.cn/xiju/0892442.htm)
+- [关于QWEN3.8-27B，大家的速度都是多少tokens/s？](http://www.daogukj.com/vukboudm/)
+- [梅艳芳遗产争夺案23年后大结局](http://www.movie.hkepx.cn/movie/9956763.htm)
+- [中国女排扳平局分](http://www.daogukj.com/6468305)
+- [中国家长把送学送成“全家远征”](http://www.movie.hkepx.cn/xiju/5050923.htm)
+- [央视曝光焦糖色素假全麦面包](http://www.play.hengshemaoyi.cn/kongbu/1188761.htm)
+- [为什么到清代，工艺品变得那么繁琐细碎，当时国人的审美为什么会变成这样？](http://www.daogukj.com/gueipuzl/)
+- [中国女排冲冠](http://www.daogukj.com/0647494)
+- [下周全球市场迎两场超级风暴](http://www.play.hengshemaoyi.cn/xiju/5125908.htm)
+- [【大学生就业指导】麦当当薯条N重奏！200块买两斤土豆？不能够了！](http://www.movie.hkepx.cn/movie/9717231.htm)
+- [陈妍希儿子出镜了我家那闺女](http://www.play.hengshemaoyi.cn/kongbu/0333129.htm)
+- [印度一老板要求七名男子让路后遇害](http://www.play.hengshemaoyi.cn/xiju/0914168.htm)
+- [陈妍希 陈晓](http://www.daogukj.com/0263464)
 
 </details>
 
 ## 原始来源
 
-- [如何看待辽宁中考小三门（生物学、地理、历史）不纳入总分，会带来哪些影响？](https://www.zhihu.com/question/2076761888042571338)
+- [综艺节目遗留道具2年成海滩垃圾](https://www.baidu.com/s?wd=%E7%BB%BC%E8%89%BA%E8%8A%82%E7%9B%AE%E9%81%97%E7%95%99%E9%81%93%E5%85%B72%E5%B9%B4%E6%88%90%E6%B5%B7%E6%BB%A9%E5%9E%83%E5%9C%BE&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 08811a8bb959bf299007 -->
+<!-- content-fingerprint: e60e8822526085fcbbd8 -->
