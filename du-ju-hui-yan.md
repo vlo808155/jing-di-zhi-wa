@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 父亲挑着扁担送儿子上大学
+# 梅艳芳母亲3个子女均因患癌去世
 
-> 来源：百度热搜 · 排名：第 18 位 · 热度：6090069 · 更新：2026-08-31T08:28:12+08:00
+> 来源：百度热搜 · 排名：第 18 位 · 热度：6081838 · 更新：2026-08-31T13:57:04+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“父亲挑着扁担送儿子上大学”位列第 18 位，公开热度指标为 6090069。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“梅艳芳母亲3个子女均因患癌去世”位列第 18 位，公开热度指标为 6081838。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月28日，武汉市武昌火车站候车大厅内，来自黄冈市蕲春县的胡洪志用扁担挑着行李，和妻子陈美红一起从武昌转车，到上海送儿子胡泽钰去上大学。母亲表示：虽然担心，也要放手。
+来源公开摘要显示：8月30日，梅艳芳母亲在家进食时突发昏迷，送医抢救无效去世，享年102余岁。她共育有四个子女，三位先后因癌症离世，仅剩长子梅启明存活，其曾患大肠癌治疗后保住性命。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [片仔癀5年市值蒸发超1900亿](bie-ju-jiang-xin.md)
-- [英方：一油轮在霍尔木兹海峡遇袭](qiao-duo-tian-gong.md)
-- [什么决定了寿命长短？](gui-fu-shen-gong.md)
-- [大家好这是我第一条吃播视频 不好意思有点寒酸](jin-shang-tian-hua.md)
+- [尼泊尔900名学生泥石流10秒前撤离](bie-ju-jiang-xin.md)
+- [中国男篮迎背水一战](qiao-duo-tian-gong.md)
+- [以你现在的情况，突然给你120万，请问你是先买房还是先买车？](gui-fu-shen-gong.md)
+- [华强见宋老虎 但是唱跳RAP 【多梦综合征】【AI音乐宇宙】](jin-shang-tian-hua.md)
 
 ## 站内推荐
 
-- [樊振东在德甲打高排名选手容易输球，缺乏高水平对抗的问题该怎么破解？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [《B 界 修 仙 传：长 篇 电 影》](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [我捡到一个奇怪的硬盘](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [大伟哥试玩无限大？！国内游戏大厂只会抄，不敢去赌创新？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [花少2爆料文](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [长鑫科技上半年净利润 776.05 亿元，同比扭亏为盈，公司称全球内存芯片供给紧缺将延续，如何解读？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [《龙族：卡塞尔之门》x《新世纪福音战士》全新联动 | 世界余响](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [夜跑女子被路过小朋友夸美](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [费大厨开到美国 辣椒炒肉210元一份](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [今年“港姐”竞争太激烈了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [被吉隆口岸淤泥里的物品戳到了](http://www.daogukj.com/7203067)
-- [冯坤为中国女排颁奖](http://www.daogukj.com/gowgjlqg/)
-- [国家动物博物馆两个小孩手抓脚踢致莽山原矛头蝮标本受损，父亲一起玩闹，这一标本有多珍贵？谁该担责？](http://www.daogukj.com/7329084)
-- [追觅起诉小红书](http://www.daogukj.com/tafakdgo/)
-- [大学新生报到带两板车加两箱子行李](http://www.play.hengshemaoyi.cn/kongbu/6822731.htm)
-- [花少2爆料文](http://www.movie.hkepx.cn/movie/9763774.htm)
-- [牙齿：演化留给人类的烂摊子](http://www.movie.hkepx.cn/movie/5499528.htm)
-- [美军袭击伊朗南部岛屿](http://www.movie.hkepx.cn/xiju/2091376.htm)
-- [泰国女排主帅称中国队100%晋级奥运会](http://www.movie.hkepx.cn/movie/3384485.htm)
-- [王菲被大屏切到立刻躲镜头](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
-- [尼泊尔冰崩是因为全球变暖吗](http://www.daogukj.com/0541072)
-- [吉隆口岸大楼现状](http://www.daogukj.com/jyvgfrcg/)
+- [陈粒回应疑似被性骚扰](http://www.daogukj.com/7203067)
+- [高市内阁支持率跌至上台以来新低，通胀、日元贬值、历史态度、防卫扩张多重矛盾叠加，如何看待日本政策走向？](http://www.daogukj.com/gowgjlqg/)
+- [官方通报「博主街头除钉因扬尘影响环保被叫停」，称工作人员沟通方式造成误解，有更好的处理方式吗？](http://www.daogukj.com/7329084)
+- [如果让专业厨师推荐私藏小店他们会怎么推荐？](http://www.daogukj.com/tafakdgo/)
+- [网警公布10起涉吉隆泥石流谣言案例](http://www.play.hengshemaoyi.cn/kongbu/6822731.htm)
+- [今年“港姐”竞争太激烈了](http://www.movie.hkepx.cn/movie/9763774.htm)
+- [年薪60+万，一手提拔我的领导跟公司大老板有分歧，要我辞职跟他去创业，我该怎么办？](http://www.movie.hkepx.cn/movie/5499528.htm)
+- [熬夜之后如何正确恢复身体](http://www.movie.hkepx.cn/xiju/2091376.htm)
+- [黄曲霉素就藏在厨房5个角落](http://www.movie.hkepx.cn/movie/3384485.htm)
+- [大学生开学装备“两极分化”](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
+- [网传有研究警告南极水银释放量激增 550%，是真的吗？会带来哪些影响？](http://www.daogukj.com/0541072)
+- [银行该不该午休](http://www.daogukj.com/jyvgfrcg/)
 - [【独家/完结】《记忆管理局》第7集 记忆这样脆弱的东西【8月国创】](http://www.daogukj.com/3891590)
-- [英方：一油轮在霍尔木兹海峡遇袭](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
-- [半月工资55元 被踢出845个工作群](http://www.movie.hkepx.cn/xiju/8805715.htm)
-- [片仔癀5年市值蒸发超1900亿](http://www.daogukj.com/5398424)
-- [去了一趟西班牙2.0（荒岛四兄弟篇）](http://www.movie.hkepx.cn/xiju/6277332.htm)
-- [猫叼着松鼠带着蛇直冲女子而来](http://www.movie.hkepx.cn/xiju/7873556.htm)
-- [女排 朱婷](http://www.play.hengshemaoyi.cn/xiju/9370456.htm)
-- [尼泊尔泥石流联系到的中方人员已转移](http://www.daogukj.com/nzepuewx/)
-- [我求你看看这个节目吧！！！](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
-- [《不能歪曲事实 我当什么媒体》](http://www.movie.hkepx.cn/movie/0752879.htm)
-- [《全障碍沟通》](http://www.movie.hkepx.cn/xiju/3642771.htm)
-- [霍金举办的时间旅行宴会为何无人露面？](http://www.daogukj.com/5617601)
-- [【景甜】的卵子，值5000万美元吗？](http://www.daogukj.com/8998145)
-- [叶童在中餐厅认真干活备受好评](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
-- [《B 界 修 仙 传：长 篇 电 影》](http://www.movie.hkepx.cn/xiju/8984384.htm)
-- [吉隆口岸27处建筑被夷为平地](http://www.movie.hkepx.cn/xiju/1180114.htm)
-- [华强见宋老虎 但是唱跳RAP 【多梦综合征】【AI音乐宇宙】](http://www.movie.hkepx.cn/movie/0847312.htm)
-- [早春晴朗小说](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
-- [梅艳芳遗产争夺案23年后大结局](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
-- [【招笑版】新植物4:滚木坚果](http://www.movie.hkepx.cn/xiju/6763243.htm)
+- [中国男篮迎背水一战](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
+- [郑某造谣外卖员向饮料加百草枯被罚](http://www.movie.hkepx.cn/xiju/8805715.htm)
+- [尼泊尔900名学生泥石流10秒前撤离](http://www.daogukj.com/5398424)
+- [“佯作畏生惧死，身担太行脊梁”【赤伶DJ-变速】【少年脊梁の小曲】](http://www.movie.hkepx.cn/xiju/6277332.htm)
+- [Ryan对欧阳娜娜也是搂搂抱抱](http://www.movie.hkepx.cn/xiju/7873556.htm)
+- [尼泊尔泥石流已致903遇难4247失联](http://www.play.hengshemaoyi.cn/xiju/9370456.htm)
+- [边检民警进吉隆口岸搜救 女友也被埋](http://www.daogukj.com/nzepuewx/)
+- [一捆伍角纸币面值500元竟卖5800](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
+- [一条视频看8月：债务和土地，中美旧账单到期，全世界开始找备选方案【地球村月刊】](http://www.movie.hkepx.cn/movie/0752879.htm)
+- [经典电影《肖申克的救赎》首次内地影院上映，看完后你感受如何？](http://www.movie.hkepx.cn/xiju/3642771.htm)
+- [小伙按AI推荐的路线爬山散心，结果被困海拔1300米的无人开发区，AI的推荐逻辑是怎样的？该如何辨别？](http://www.daogukj.com/5617601)
+- [现在改来得及吗？缺点要命优点吹爆！《无限大》试玩分享](http://www.daogukj.com/8998145)
+- [巩俐易烊千玺无双大片](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
+- [《龙族：卡塞尔之门》x《新世纪福音战士》全新联动 | 世界余响](http://www.movie.hkepx.cn/xiju/8984384.htm)
+- [曝成毅不玩手机被群嘲](http://www.movie.hkepx.cn/xiju/1180114.htm)
+- [【我在现代当幽差】EP02 神仙？妖怪？谢谢【UP动画】](http://www.movie.hkepx.cn/movie/0847312.htm)
+- [中美角逐乌兰察布](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
+- [两个领导斗法都拉拢我该保持中立还是选一边 ？](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
+- [7000亿足疗市场跑不出一家上市龙头](http://www.movie.hkepx.cn/xiju/6763243.htm)
 - [新版《国防动员法》2026 年 10 月 1 日实施，哪些信息值得关注？会带来什么影响？](http://www.movie.hkepx.cn/xiju/9186695.htm)
-- [特斯拉推出平价版Model3](http://www.daogukj.com/pxvooxke/)
-- [中国男人正在抛弃皮鞋](http://www.movie.hkepx.cn/xiju/1116357.htm)
-- [为什么亲子之间总是容易爆发冲突？](http://www.movie.hkepx.cn/xiju/0923150.htm)
-- [大伟哥试玩无限大？！国内游戏大厂只会抄，不敢去赌创新？](http://www.daogukj.com/wwpryopq/)
-- [消息人士称伊朗袭击驻约旦美军](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
-- [两个领导斗法都拉拢我该保持中立还是选一边 ？](http://www.movie.hkepx.cn/xiju/6581777.htm)
-- [南航一客机误放滑梯 损失或超10万](http://www.daogukj.com/ydetypas/)
-- [房贷最长40年购房者称压力下降](http://www.movie.hkepx.cn/xiju/1440565.htm)
-- [官方回应“取消ETC”读懂车主真诉求](http://www.movie.hkepx.cn/movie/0748348.htm)
-- [很多医学生熬不住选择退出规培，反映了当前医疗教育和规培制度的哪些问题？](http://www.daogukj.com/7529047)
-- [军工企业骨干遭2国间谍围猎 细节披露](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
-- [干中学](http://www.movie.hkepx.cn/movie/9462286.htm)
-- [央视曝光直播间虚假纪念币骗局](http://www.movie.hkepx.cn/xiju/6577988.htm)
-- [郎平曾说朱婷有时候半个月不回消息](http://www.movie.hkepx.cn/movie/1711969.htm)
-- [桂圆“打针增甜”不可能](http://www.movie.hkepx.cn/movie/1556531.htm)
-- [西藏吉隆泥石流灾害新闻发布会实录](http://www.play.hengshemaoyi.cn/kongbu/3467795.htm)
-- [女孩被踢出845个工作群无奈离职](http://www.movie.hkepx.cn/movie/2027222.htm)
+- [芭莎之夜 阵容](http://www.daogukj.com/pxvooxke/)
+- [早春晴朗](http://www.movie.hkepx.cn/xiju/1116357.htm)
+- [全球10亿粉丝的我一周真实生活是什么样的？](http://www.movie.hkepx.cn/xiju/0923150.htm)
+- [费大厨开到美国 辣椒炒肉210元一份](http://www.daogukj.com/wwpryopq/)
+- [伊朗打击约旦美军基地以回应美袭击](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
+- [景区 NPC 为什么火了？你眼中的景区 NPC 是一种怎样的工作？见过哪些令你印象深刻的 NPC？](http://www.movie.hkepx.cn/xiju/6581777.htm)
+- [网警公布10起涉吉隆泥石流谣言案](http://www.daogukj.com/ydetypas/)
+- [宇树股价正式“腰斩”](http://www.movie.hkepx.cn/xiju/1440565.htm)
+- [净网：造谣外卖员向饮料加百草枯者被罚](http://www.movie.hkepx.cn/movie/0748348.htm)
+- [《时差五小时》第三季先导片](http://www.daogukj.com/7529047)
+- [时隔30年 东南亚将迎来第二艘航母](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
+- [我的世界，但所有人共享背包！？](http://www.movie.hkepx.cn/movie/9462286.htm)
+- [美国“明抢”委内瑞拉油田](http://www.movie.hkepx.cn/xiju/6577988.htm)
+- [白宫发“白头鹰暴打加拿大鹅”被群嘲](http://www.movie.hkepx.cn/movie/1711969.htm)
+- [蒋欣经纪人说蒋欣吃凉拌黄瓜都会胖](http://www.movie.hkepx.cn/movie/1556531.htm)
+- [争分夺秒打通口岸关键通道](http://www.play.hengshemaoyi.cn/kongbu/3467795.htm)
+- [中国男人为什么突然不爱皮鞋了](http://www.movie.hkepx.cn/movie/2027222.htm)
 
 </details>
 
 ## 原始来源
 
-- [父亲挑着扁担送儿子上大学](https://www.baidu.com/s?wd=%E7%88%B6%E4%BA%B2%E6%8C%91%E7%9D%80%E6%89%81%E6%8B%85%E9%80%81%E5%84%BF%E5%AD%90%E4%B8%8A%E5%A4%A7%E5%AD%A6&sa=fyb_news&rsv_dl=fyb_news)
+- [梅艳芳母亲3个子女均因患癌去世](https://www.baidu.com/s?wd=%E6%A2%85%E8%89%B3%E8%8A%B3%E6%AF%8D%E4%BA%B23%E4%B8%AA%E5%AD%90%E5%A5%B3%E5%9D%87%E5%9B%A0%E6%82%A3%E7%99%8C%E5%8E%BB%E4%B8%96&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 79b12f1ffeee5395e62c -->
+<!-- content-fingerprint: 9357592e6192ae8c28ce -->
