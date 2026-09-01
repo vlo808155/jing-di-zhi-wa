@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 华为小米荣耀回应手机涨价
+# 如何评价半个月不到，天蚕土豆的新书在读从1100多万跌到200万？
 
-> 来源：微博热搜 · 排名：第 17 位 · 热度：243614 · 分类：数码 · 更新：2026-09-01T15:03:22+08:00
+> 来源：知乎热榜 · 排名：第 17 位 · 热度：125 万热度 · 分类：问答 · 更新：2026-09-01T20:31:22+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“华为小米荣耀回应手机涨价”位列第 17 位，公开热度指标为 243614，榜单分类为“数码”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何评价半个月不到，天蚕土豆的新书在读从1100多万跌到200万？”位列第 17 位，公开热度指标为 125 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：这是只属于土豆的个案，还是代表着整个网文行业的走向？
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `数码`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [一场没有刀郎的演唱会为何让人动容](gao-zhan-yuan-zhu.md)
-- [河南 5 人聚餐吃生鱼片确诊肝吸血虫病，如何避免该病？是否有扩散的风险？](xiong-you-cheng-zhu.md)
-- [当你穿进老钱班34](yun-chou-wei-wo.md)
-- [深圳校服 全市统一商超可买](shen-mou-yuan-lv.md)
+- [带精神小妹买衣服，并回复评论区的一些评论](gao-zhan-yuan-zhu.md)
+- [深圳校服真香](xiong-you-cheng-zhu.md)
+- [Angelababy15岁写真](yun-chou-wei-wo.md)
+- [作家王新军突发疾病去世](shen-mou-yuan-lv.md)
 
 ## 站内推荐
 
-- [救援核心区已有基本通信保障](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [离职员工改价8元买走百克金条获刑](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [月经3天和月经7天哪一个更健康](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [女主播男网友性行为后各自报警](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [尼泊尔泥石流1010人遇难](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [透视暑期消费新变化](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
+- [宇树“腰斩” 智元凭什么开价更高](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [印度16岁少女被骗上大巴遭轮奸](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [莫迪发布与普京同车照片](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [如何看待宇树回应「重处罚少奖励」、100 元报销须王兴兴审批，称很多内容不实？公司该如何设计奖惩机制？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [离职员工改价8元买走100克金条被判刑](http://www.play.hengshemaoyi.cn/kongbu/1578357.htm)
-- [爸爸送女儿上大学返程时一路偷偷掉泪](http://www.movie.hkepx.cn/xiju/7876471.htm)
-- [华为小米荣耀多款手机集体调价](http://www.movie.hkepx.cn/xiju/5115238.htm)
-- [男子花千万33年走遍全球233个国家](http://www.movie.hkepx.cn/movie/0606742.htm)
-- [横漂短剧女演员：不让家人看AI短剧](http://www.play.hengshemaoyi.cn/xiju/7807975.htm)
-- [女子被踢845个群被迫离职 当地通报](http://www.movie.hkepx.cn/xiju/9954551.htm)
-- [宇树员工称奖惩机制只有罚几乎没有奖](http://www.movie.hkepx.cn/movie/7533960.htm)
-- [深圳校服 全市统一商超可买](http://www.movie.hkepx.cn/xiju/8246281.htm)
-- [济宁一地辟谣虚假人才引进信息](http://www.play.hengshemaoyi.cn/xiju/4160683.htm)
-- [新生入学如何准备](http://www.movie.hkepx.cn/movie/4035506.htm)
-- [尼泊尔泥石流1010人遇难](http://www.movie.hkepx.cn/movie/7792290.htm)
-- [如何评价凡人修仙传189集争议巨大，对比177集还愿意改片，这次官方零公开回应，不修改成片，冷处理？](http://www.play.hengshemaoyi.cn/kongbu/1158345.htm)
-- [月经3天和月经7天哪一个更健康](http://www.play.hengshemaoyi.cn/xiju/2216098.htm)
-- [新三国up锐评神探狄仁杰14：前倨而后恭……这词儿咋这么耳熟？](http://www.daogukj.com/7206749)
-- [武汉179万名学生今天开学](http://www.daogukj.com/3682471)
-- [可可里小姐闭店](http://www.play.hengshemaoyi.cn/kongbu/5760703.htm)
-- [三年之期已到，恭迎世一上归位！【第6集】](http://www.play.hengshemaoyi.cn/xiju/5757022.htm)
-- [广安.第二顿 厨子探店¥33](http://www.play.hengshemaoyi.cn/kongbu/7848326.htm)
-- [如何看待研究根据中美两国数据发现工时和消费的相关性，这是「多休息才能多消费」吗？](http://www.movie.hkepx.cn/xiju/6958589.htm)
-- [抖音推荐 难看](http://www.movie.hkepx.cn/movie/7310674.htm)
-- [车越重越安全系谣言](http://www.play.hengshemaoyi.cn/kongbu/2440700.htm)
-- [西西弗斯推的石头，居然是孙悟空......【AI全民制作人】#SpecialForAAIFF](http://www.play.hengshemaoyi.cn/kongbu/6463071.htm)
-- [于东来痛批明星扎堆直播带货](http://www.daogukj.com/uiqoxaho/)
-- [20后入学家长年龄相差近30岁](http://www.movie.hkepx.cn/xiju/9888707.htm)
-- [带精神小妹买衣服，并回复评论区的一些评论](http://www.movie.hkepx.cn/xiju/8080320.htm)
-- [吉林省办戒烟大赛](http://www.play.hengshemaoyi.cn/xiju/5503009.htm)
-- [一年级家长年龄相差近30岁](http://www.play.hengshemaoyi.cn/xiju/8114286.htm)
-- [小英送女儿上国际学校](http://www.play.hengshemaoyi.cn/xiju/9867402.htm)
-- [井柏然的吻戏是弯腰往上亲](http://www.daogukj.com/5414956)
-- [漂亮的恶意01|误入充满恶意的顶级财阀校园，川渝转学生表示，她真的只想好好学习！](http://www.movie.hkepx.cn/movie/5135374.htm)
-- [四千人失踪，尼泊尔终究不放开接受外国援助](http://www.movie.hkepx.cn/movie/5537104.htm)
-- [科技助力田管 推动粮食稳产增收](http://www.daogukj.com/nlpmxiub/)
-- [一般开车几年后会由很猛变得胆小？](http://www.daogukj.com/9528136)
-- [吃饭一定要去端菜，自己爱吃的菜全放跟前！](http://www.movie.hkepx.cn/xiju/7046583.htm)
-- [杨瀚森倒地后被自家球迷拿球砸](http://www.movie.hkepx.cn/movie/7006918.htm)
-- [大众已启动对星宇股份投诉专项调查](http://www.play.hengshemaoyi.cn/kongbu/0001475.htm)
-- [女主播男网友性行为后各自报警](http://www.play.hengshemaoyi.cn/xiju/7201519.htm)
-- [吉隆救援为何不直接炸出泄流通道](http://www.movie.hkepx.cn/xiju/0892442.htm)
-- [深圳校服 去商场自己买](http://www.daogukj.com/vukboudm/)
-- [大众中国称「已启动涉星宇股份批量劝退应届生相关投诉专项调查」，有哪些信息值得关注？事件最终走向会如何？](http://www.movie.hkepx.cn/movie/9956763.htm)
-- [李炮儿在李炮儿模仿大赛中获得了第二名](http://www.daogukj.com/6468305)
-- [披荆斩棘二公小考](http://www.movie.hkepx.cn/xiju/5050923.htm)
-- [【铁豆钢蛋】你好 斌斌！](http://www.play.hengshemaoyi.cn/kongbu/1188761.htm)
-- [当你穿进老钱班34](http://www.daogukj.com/gueipuzl/)
-- [华为上半年营收 4678 亿元，归母净利润 234.28 亿元，如何看待其业绩表现？](http://www.daogukj.com/0647494)
-- [抖音崩了](http://www.play.hengshemaoyi.cn/xiju/5125908.htm)
-- [《安心安全 | 安心安全》MV ：日本制造最重视的就是企业形象](http://www.movie.hkepx.cn/movie/9717231.htm)
-- [抖音：正加急排查](http://www.play.hengshemaoyi.cn/kongbu/0333129.htm)
-- [法兴银行称「美联储」将在明年3月之前加息3次，巴克莱押注2次，如果成真会对金融市场造成何种冲击？](http://www.play.hengshemaoyi.cn/xiju/0914168.htm)
-- [大泽乡起义时，陈胜说遇雨失期法皆斩与睡虎地秦简记载不同。那么陈胜是真不知法还是故意这么说？](http://www.daogukj.com/0263464)
+- [河南 5 人聚餐吃生鱼片确诊肝吸血虫病，如何避免该病？是否有扩散的风险？](http://www.play.hengshemaoyi.cn/kongbu/1578357.htm)
+- [高铁二等座变无座，12306 称临时调整无赔偿，此规定合理吗？](http://www.movie.hkepx.cn/xiju/7876471.htm)
+- [如何看待星际圈“九朵退会”引爆的“黄旭东朋友等级论”事件？](http://www.movie.hkepx.cn/xiju/5115238.htm)
+- [GEN送T1进世界赛](http://www.movie.hkepx.cn/movie/0606742.htm)
+- [那个用防窥屏的朋友](http://www.play.hengshemaoyi.cn/xiju/7807975.htm)
+- [李杰灵870万买了个离海只有30米的房子](http://www.movie.hkepx.cn/xiju/9954551.htm)
+- [家长反对交600元请保洁扫教室被禁言](http://www.movie.hkepx.cn/movie/7533960.htm)
+- [作家王新军突发疾病去世](http://www.movie.hkepx.cn/xiju/8246281.htm)
+- [如何看待研究根据中美两国数据发现工时和消费的相关性，这是「多休息才能多消费」吗？](http://www.play.hengshemaoyi.cn/xiju/4160683.htm)
+- [吉隆新增12座应急基站](http://www.movie.hkepx.cn/movie/4035506.htm)
+- [如何看待宇树回应「重处罚少奖励」、100 元报销须王兴兴审批，称很多内容不实？公司该如何设计奖惩机制？](http://www.movie.hkepx.cn/movie/7792290.htm)
+- [巴塞罗那的小偷把我带到了欧洲，让我在纽北被围了起来](http://www.play.hengshemaoyi.cn/kongbu/1158345.htm)
+- [印度16岁少女被骗上大巴遭轮奸](http://www.play.hengshemaoyi.cn/xiju/2216098.htm)
+- [时尚COSMO金九内页](http://www.daogukj.com/7206749)
+- [为什么教堂没有功德箱？那教堂的收入从哪里来？](http://www.daogukj.com/3682471)
+- [手机涨价](http://www.play.hengshemaoyi.cn/kongbu/5760703.htm)
+- [AI色情短剧黑链曝光 4万月薪招编剧](http://www.play.hengshemaoyi.cn/xiju/5757022.htm)
+- [“手机等等党”彻底心碎了](http://www.play.hengshemaoyi.cn/kongbu/7848326.htm)
+- [还是穿不了“大人”的衣服](http://www.movie.hkepx.cn/xiju/6958589.htm)
+- [特朗普“密友”戴安斯再度访华](http://www.movie.hkepx.cn/movie/7310674.htm)
+- [家长撕孩子作业老师怎么回复](http://www.play.hengshemaoyi.cn/kongbu/2440700.htm)
+- [开学第一课](http://www.play.hengshemaoyi.cn/kongbu/6463071.htm)
+- [9月1日起外籍个人从外商投资企业取得股息红利不再免征个税，如何解读？会带来多大规模的税收增量？](http://www.daogukj.com/uiqoxaho/)
+- [如何看待曝科大讯飞公关副总裁韩煜尘被解除职务？有什么隐情吗？](http://www.movie.hkepx.cn/xiju/9888707.htm)
+- [小沈阳二公小考倒数第一](http://www.movie.hkepx.cn/xiju/8080320.htm)
+- [郭士强呼吁大家对球员多多包容](http://www.play.hengshemaoyi.cn/xiju/5503009.htm)
+- [全校第一个生娃的00后清华女大](http://www.play.hengshemaoyi.cn/xiju/8114286.htm)
+- [“云南文山12级台风致人伤亡”不实](http://www.play.hengshemaoyi.cn/xiju/9867402.htm)
+- [尼泊尔泥石流已致1056人死亡](http://www.daogukj.com/5414956)
+- [云南文山12级台风致人伤亡系谣言](http://www.movie.hkepx.cn/movie/5135374.htm)
+- [孙千你好辣](http://www.movie.hkepx.cn/movie/5537104.htm)
+- [华为、小米、荣耀等手机品牌正式涨价，涨幅均超 200 元，最高涨千元，将对用户及手机市场带来哪些影响？](http://www.daogukj.com/nlpmxiub/)
+- [沙特2030愿景，现在怎么样了？](http://www.daogukj.com/9528136)
+- [孩子进校园家长还在围栏外“加班”](http://www.movie.hkepx.cn/xiju/7046583.htm)
+- [为什么一斤粮食还没有一瓶瓶装水贵？](http://www.movie.hkepx.cn/movie/7006918.htm)
+- [如何评价张一山、李沐宸主演的刑侦剧《重案六组：消失的警号》？](http://www.play.hengshemaoyi.cn/kongbu/0001475.htm)
+- [莫迪发布与普京同车照片](http://www.play.hengshemaoyi.cn/xiju/7201519.htm)
+- [特斯拉在港澳推出更平价版 Model3，最低售价不足18万元，这个价格竞争力如何？会有人愿意买单吗？](http://www.movie.hkepx.cn/xiju/0892442.htm)
+- [手机集体涨价 谁为性能溢出买单](http://www.daogukj.com/vukboudm/)
+- [和龙龙录一次猜英雄。太好玩了](http://www.movie.hkepx.cn/movie/9956763.htm)
+- [赵心童vs布朗](http://www.daogukj.com/6468305)
+- [黄磊确认不再参加《向往的生活》录制](http://www.movie.hkepx.cn/xiju/5050923.htm)
+- [小沈阳晒照回应倒数第一](http://www.play.hengshemaoyi.cn/kongbu/1188761.htm)
+- [Angelababy15岁写真](http://www.daogukj.com/gueipuzl/)
+- [当广告挡住关键时刻，可能就是生死之间](http://www.daogukj.com/0647494)
+- [妹妹被扔土崖致死姐姐靠吃药入睡](http://www.play.hengshemaoyi.cn/xiju/5125908.htm)
+- [救援救援！再难也要继续](http://www.movie.hkepx.cn/movie/9717231.htm)
+- [生逢其时定档](http://www.play.hengshemaoyi.cn/kongbu/0333129.htm)
+- [演员谭凯开包子铺 直播回应质疑](http://www.play.hengshemaoyi.cn/xiju/0914168.htm)
+- [综艺节目何时不再给大自然“添乱”](http://www.daogukj.com/0263464)
 
 </details>
 
 ## 原始来源
 
-- [华为小米荣耀回应手机涨价](https://s.weibo.com/weibo?q=%E5%8D%8E%E4%B8%BA%E5%B0%8F%E7%B1%B3%E8%8D%A3%E8%80%80%E5%9B%9E%E5%BA%94%E6%89%8B%E6%9C%BA%E6%B6%A8%E4%BB%B7)
+- [如何评价半个月不到，天蚕土豆的新书在读从1100多万跌到200万？](https://www.zhihu.com/question/2077757241512440088)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0d76ff02e40300a76d57 -->
+<!-- content-fingerprint: d01995629a452a47e6c9 -->
