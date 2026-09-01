@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 王鸥回复李小冉
+# 暑期结束 中国游客都去哪玩了
 
-> 来源：微博热搜 · 排名：第 21 位 · 热度：81756 · 分类：艺人 · 更新：2026-09-01T07:15:34+08:00
+> 来源：百度热搜 · 排名：第 20 位 · 热度：5893893 · 更新：2026-09-01T09:50:56+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“王鸥回复李小冉”位列第 21 位，公开热度指标为 81756，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“暑期结束 中国游客都去哪玩了”位列第 20 位，公开热度指标为 5893893。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：2026年暑期临近尾声，威孚仕VFS Global发布上半年中国签证申请趋势：申根签证申请量实现两位数同比增长。国家移民管理局7月数据显示，上半年内地居民出境8802.3万人次，同比增长10.5%。银发族占申请人数三分之一以上，成欧洲长线文化游、邮轮及特色主题游核心增长动力。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `艺人`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [2627赛季英超第2轮曼联 5:2 伊普斯维奇，如何评价这场比赛？](you-sheng-you-se.md)
-- [猫狗超燃大乱斗！](yin-ren-ru-sheng.md)
-- [他，凭什么成为中华民国的国父？【历史调研室105】](jing-di-zhi-wa.md)
-- [科大讯飞公关副总裁被解职](hai-kuo-tian-kong.md)
+- [子宫状态好的人经期有5个特点](you-sheng-you-se.md)
+- [榴莲价格“大跳水”](yin-ren-ru-sheng.md)
+- [作为过来人，如果可以给今年的大学新生准备一份「新手礼包」，你会选什么？](jing-di-zhi-wa.md)
+- [尺度神作扎堆大世界，无限大做一堆神人NPC和小游戏！再把所有人逗笑！](hai-kuo-tian-kong.md)
 
 ## 站内推荐
 
-- [德总理称以色列是中东唯一民主国家](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [“子涵梓萱”的时代已经过去](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [年薪60+万，一手提拔我的领导跟公司大老板有分歧，要我辞职跟他去创业，我该怎么办？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [多岗位笔试出现高分断层 白城通报](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [沈腾回应关晓彤无米版徐福烩饭](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [华为小米荣耀多款手机集体调价](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [吉隆救援为何不直接炸出泄流通道](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [中国楼市不卖图纸卖现货影响几何](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [济南一小区选择不要物业公司，居民自己管自己，一户一天一块钱，怎样看待这种方式？有哪些利弊？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [喜马拉雅冰川消融加速65%](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [对面牢玩家外出一趟，他队友就被我们牢玩家杀光了](http://www.daogukj.com/8005923)
-- [网友意外拍到泥石流暴发瞬间](http://www.play.hengshemaoyi.cn/xiju/7463191.htm)
-- [一个超好用的情绪控制技巧](http://www.movie.hkepx.cn/movie/4169739.htm)
-- [年薪60+万，一手提拔我的领导跟公司大老板有分歧，要我辞职跟他去创业，我该怎么办？](http://www.play.hengshemaoyi.cn/xiju/5874723.htm)
-- [于东来发文力挺韩红](http://www.movie.hkepx.cn/movie/3447925.htm)
-- [准高一怎么规划上清北？](http://www.play.hengshemaoyi.cn/kongbu/4576162.htm)
-- [还我季洁](http://www.play.hengshemaoyi.cn/xiju/9969388.htm)
-- [茶饮店模特半裸出任一日店长引争议](http://www.play.hengshemaoyi.cn/kongbu/2274251.htm)
-- [【我在现代当幽差】EP02 神仙？妖怪？谢谢【UP动画】](http://www.movie.hkepx.cn/xiju/5546881.htm)
+- [当你没有价值的时候别人还会在乎你吗？在别人眼里的价值是什么？](http://www.daogukj.com/8005923)
+- [吉隆口岸国门所在地仅剩地基](http://www.play.hengshemaoyi.cn/xiju/7463191.htm)
+- [美国炸鸡巨头中国首店开业](http://www.movie.hkepx.cn/movie/4169739.htm)
+- [中国楼市不卖图纸卖现货影响几何](http://www.play.hengshemaoyi.cn/xiju/5874723.htm)
+- [胡军给陈丽君当助理处得像父女](http://www.movie.hkepx.cn/movie/3447925.htm)
+- [小猫纵身一跳主人直接看崩溃](http://www.play.hengshemaoyi.cn/kongbu/4576162.htm)
+- [杨瀚森将缺席后续世预赛](http://www.play.hengshemaoyi.cn/xiju/9969388.htm)
+- [全球将迎来本年度第三次“时间重叠”](http://www.play.hengshemaoyi.cn/kongbu/2274251.htm)
+- [漂亮的恶意01|误入充满恶意的顶级财阀校园，川渝转学生表示，她真的只想好好学习！](http://www.movie.hkepx.cn/xiju/5546881.htm)
 - [高校开学季“科技迎新”](http://www.play.hengshemaoyi.cn/kongbu/8488935.htm)
-- [一条视频看8月：债务和土地，中美旧账单到期，全世界开始找备选方案【地球村月刊】](http://www.play.hengshemaoyi.cn/xiju/5663353.htm)
-- [女子误诊抑郁症治疗3个月暴瘦20斤](http://www.movie.hkepx.cn/xiju/5950485.htm)
-- [Kimi K3 的实际表现真有被吹捧的那么强吗？](http://www.movie.hkepx.cn/movie/9193128.htm)
-- [微专业火了：不发毕业证但学真本事](http://www.daogukj.com/atarmjde/)
-- [100年被翻拍3次，这就是经典的魅力！战争给世界带来了什么？](http://www.play.hengshemaoyi.cn/xiju/9145960.htm)
-- [顾客多次仅退款 老板气不过上门要餐](http://www.movie.hkepx.cn/xiju/2578023.htm)
+- [《安心安全 | 安心安全》MV ：日本制造最重视的就是企业形象](http://www.play.hengshemaoyi.cn/xiju/5663353.htm)
+- [郑钦文终结柳托娃9连胜 对手被打哭](http://www.movie.hkepx.cn/xiju/5950485.htm)
+- [文具店老板坚持15年免费代包书皮](http://www.movie.hkepx.cn/movie/9193128.htm)
+- [和龙龙录一次猜英雄。太好玩了](http://www.daogukj.com/atarmjde/)
+- [《倚天屠龙记》结尾，金庸为什么给杨逍一句“年老德薄”的评语？](http://www.play.hengshemaoyi.cn/xiju/9145960.htm)
+- [韩警方公开杀害中国女生嫌犯正面照](http://www.movie.hkepx.cn/xiju/2578023.htm)
 - [感受中国服贸增长强劲动能](http://www.daogukj.com/5709010)
-- [郑钦文2-1逆转柳托娃](http://www.daogukj.com/wpzjvegw/)
-- [“佯作畏生惧死，身担太行脊梁”【赤伶DJ-变速】【少年脊梁の小曲】](http://www.play.hengshemaoyi.cn/xiju/4598532.htm)
-- [情侣住酒店145天将房间变成垃圾场](http://www.play.hengshemaoyi.cn/kongbu/0125652.htm)
-- [黄磊回应不再参加向往的生活](http://www.movie.hkepx.cn/xiju/2411242.htm)
-- [3名小学生狂奔报警救下同学](http://www.daogukj.com/6900199)
-- [怎么看OpenAI 的 Codex 将取消上下文压缩，换成「硬切窗口 」和「外部记忆」？](http://www.movie.hkepx.cn/xiju/8302101.htm)
-- [电脑两个月从一万二涨到一万七](http://www.daogukj.com/vrviqqsc/)
-- [女子接收诈骗犯男友261万判不用还](http://www.daogukj.com/5803945)
-- [中小学开学选班主任真的「堪比泰国征兵现场」吗？为什么年轻人不爱当班主任了？班主任的一天都要干啥？](http://www.daogukj.com/pggqhldb/)
-- [尼泊尔一侧失联中国公民近百人](http://www.play.hengshemaoyi.cn/xiju/9613239.htm)
-- [演员王鸥：我目前独自养育一个孩子](http://www.movie.hkepx.cn/xiju/1355542.htm)
-- [假设大和号撞上泰坦尼克中的冰山，会怎么样?](http://www.play.hengshemaoyi.cn/xiju/7010661.htm)
-- [哥哥说找到了流量的密码！！](http://www.movie.hkepx.cn/xiju/1893259.htm)
-- [包贝尔因出轨风波新剧被除名](http://www.daogukj.com/3906187)
-- [阿根廷国家队致敬队长](http://www.daogukj.com/3891201)
-- [两小时演唱会休息了80分钟](http://www.movie.hkepx.cn/movie/0469338.htm)
-- [重案六组](http://www.play.hengshemaoyi.cn/kongbu/9519674.htm)
-- [杨瀚森绝杀](http://www.daogukj.com/8314048)
-- [杨瀚森准绝杀！男篮世预赛第二阶段，中国男篮 89:87 战胜黎巴嫩男篮，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/8783645.htm)
-- [战友 我们等你们回来签收快递](http://www.play.hengshemaoyi.cn/kongbu/2446487.htm)
-- [中国男人为什么突然不爱皮鞋了](http://www.movie.hkepx.cn/xiju/1583083.htm)
-- [曝科大讯飞公关副总裁被解职](http://www.movie.hkepx.cn/movie/7949727.htm)
-- [日本男星电车内性侵女高中生被捕](http://www.movie.hkepx.cn/xiju/7893335.htm)
-- [武汉一高校新生有38位“奥运宝宝”](http://www.movie.hkepx.cn/movie/6332074.htm)
-- [郑钦文2比1柳托娃](http://www.movie.hkepx.cn/xiju/9763550.htm)
-- [猫狗超燃大乱斗！](http://www.movie.hkepx.cn/movie/0911321.htm)
-- [他，凭什么成为中华民国的国父？【历史调研室105】](http://www.movie.hkepx.cn/movie/1570496.htm)
-- [德总理称以色列是中东唯一民主国家](http://www.movie.hkepx.cn/xiju/5460806.htm)
-- [好直观的降本增效](http://www.movie.hkepx.cn/xiju/3915542.htm)
-- [郑钦文时隔457天再取大满贯正赛胜利](http://www.daogukj.com/obnsavya/)
-- [老人2天被拔除21颗牙？区卫健委回应](http://www.daogukj.com/thtteqlc/)
-- [宇树股价「腰斩」从 1100 跌至 555 元，机器人第一股 2200 亿蒸发，有哪些原因和影响？](http://www.daogukj.com/6398059)
-- [华强见宋老虎 但是唱跳RAP 【多梦综合征】【AI音乐宇宙】](http://www.daogukj.com/5238190)
+- [宇树消防机器人](http://www.daogukj.com/wpzjvegw/)
+- [孙千飞机上收到空姐的信](http://www.play.hengshemaoyi.cn/xiju/4598532.htm)
+- [女留学生在韩遇害 嫌犯正面照公布](http://www.play.hengshemaoyi.cn/kongbu/0125652.htm)
+- [一家16口包中巴送新生上大学](http://www.movie.hkepx.cn/xiju/2411242.htm)
+- [尼泊尔一侧失联中国公民近百人](http://www.daogukj.com/6900199)
+- [官方通报女子被踢845个群被迫离职](http://www.movie.hkepx.cn/xiju/8302101.htm)
+- [年轻人结婚开始用金条代替三金](http://www.daogukj.com/vrviqqsc/)
+- [包贝尔因出轨风波新剧被除名](http://www.daogukj.com/5803945)
+- [华为上半年营收 4678 亿元，归母净利润 234.28 亿元，如何看待其业绩表现？](http://www.daogukj.com/pggqhldb/)
+- [网红博主摆拍“公益捡垃圾”后 把成串的瓶子全扔山里](http://www.play.hengshemaoyi.cn/xiju/9613239.htm)
+- [乡村大集，乡村打铁，感受不一样的打击乐](http://www.movie.hkepx.cn/xiju/1355542.htm)
+- [国内首部 AIGC 长剧《后西游记》开播，登陆湖南卫视黄金档，好看吗？会对影视行业有怎样的影响？](http://www.play.hengshemaoyi.cn/xiju/7010661.htm)
+- [恩佐长文](http://www.movie.hkepx.cn/xiju/1893259.htm)
+- [高梓淇恋情](http://www.daogukj.com/3906187)
+- [栾念 该死的好看](http://www.daogukj.com/3891201)
+- [王之告别！梅西退出阿根廷国家队！20年的国家队生涯划上句号！](http://www.movie.hkepx.cn/movie/0469338.htm)
+- [百度完成双重主要上市](http://www.play.hengshemaoyi.cn/kongbu/9519674.htm)
+- [为何不炸开一条泄流通道](http://www.daogukj.com/8314048)
+- [如何看待现在县城的中学逐渐衰弱？](http://www.play.hengshemaoyi.cn/xiju/8783645.htm)
+- [赵今麦躺在王安宇的怀里](http://www.play.hengshemaoyi.cn/kongbu/2446487.htm)
+- [江苏省委：坚决拥护党中央决定](http://www.movie.hkepx.cn/xiju/1583083.htm)
+- [女子赢2600万后失联欠200万律师费](http://www.movie.hkepx.cn/movie/7949727.htm)
+- [黄磊回应不再参加向往的生活](http://www.movie.hkepx.cn/xiju/7893335.htm)
+- [南方开学 vs 北方开学](http://www.movie.hkepx.cn/movie/6332074.htm)
+- [多款手机正式涨价](http://www.movie.hkepx.cn/xiju/9763550.htm)
+- [榴莲价格“大跳水”](http://www.movie.hkepx.cn/movie/0911321.htm)
+- [作为过来人，如果可以给今年的大学新生准备一份「新手礼包」，你会选什么？](http://www.movie.hkepx.cn/movie/1570496.htm)
+- [华为小米荣耀多款手机集体调价](http://www.movie.hkepx.cn/xiju/5460806.htm)
+- [库克正式卸任苹果CEO](http://www.movie.hkepx.cn/xiju/3915542.htm)
+- [郑钦文终结柳托娃9连胜](http://www.daogukj.com/obnsavya/)
+- [梅西退出阿根廷国家队，夜里看到人都懵了！世界杯8球，39岁的巅峰退役也是猝不及防](http://www.daogukj.com/thtteqlc/)
+- [如何看待沪教版美术书教孩子动手做中国传统服饰？](http://www.daogukj.com/6398059)
+- [四千人失踪，尼泊尔终究不放开接受外国援助](http://www.daogukj.com/5238190)
 
 </details>
 
 ## 原始来源
 
-- [王鸥回复李小冉](https://s.weibo.com/weibo?q=%E7%8E%8B%E9%B8%A5%E5%9B%9E%E5%A4%8D%E6%9D%8E%E5%B0%8F%E5%86%89)
+- [暑期结束 中国游客都去哪玩了](https://www.baidu.com/s?wd=%E6%9A%91%E6%9C%9F%E7%BB%93%E6%9D%9F+%E4%B8%AD%E5%9B%BD%E6%B8%B8%E5%AE%A2%E9%83%BD%E5%8E%BB%E5%93%AA%E7%8E%A9%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ed0e2b291acd7bbf3dad -->
+<!-- content-fingerprint: d2909b32985ae674e81c -->
