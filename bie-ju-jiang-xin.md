@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 时尚COSMO金九内页
+# “豆包手机”外观公布 有4种配色
 
-> 来源：微博热搜 · 排名：第 19 位 · 热度：324656 · 分类：艺人 · 更新：2026-09-01T20:31:22+08:00
+> 来源：百度热搜 · 排名：第 18 位 · 热度：6080868 · 更新：2026-09-02T00:52:47+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“时尚COSMO金九内页”位列第 19 位，公开热度指标为 324656，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，““豆包手机”外观公布 有4种配色”位列第 18 位，公开热度指标为 6080868。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：9月1日，努比亚NaviX Ultra已正式获得工信部入网许可，完成从大模型备案到终端入网的完整合规流程，这也是全球首款AI智能体手机从概念验证迈向规模化商用。该机将搭载豆包手机助手，计划于9月上市并开售。此前，官方公布的预告图显示，新机共有黑、粉、白、蓝四种配色。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `艺人`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [《早春晴朗》火到海外](qiao-duo-tian-gong.md)
-- [如何看待宇树回应「重处罚少奖励」、100 元报销须王兴兴审批，称很多内容不实？公司该如何设计奖惩机制？](gui-fu-shen-gong.md)
-- [我们在日本皇宫寻找中国文物](jin-shang-tian-hua.md)
-- [“25块钱就能举报别人500次”](hua-long-dian-jing.md)
+- [深圳一婴儿早产116天出生仅330克](qiao-duo-tian-gong.md)
+- [去年全国药店净减少约2.2万家](gui-fu-shen-gong.md)
+- [如何评价半个月不到，天蚕土豆的新书在读从1100多万跌到200万？](jin-shang-tian-hua.md)
+- [“所以时间的参照物是什么”【原神混剪】](hua-long-dian-jing.md)
 
 ## 站内推荐
 
-- [演唱会2小时 歌手休息占80分钟](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [小沈阳晒照回应倒数第一](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
-- [老人钓到大鱼 餐馆花1680元买下](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [孙千你好辣](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [郭士强呼吁大家对球员多多包容](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [【蕾米埃尔】：入木三分，原来是字面意思？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
+- [有市无价再创记录！世界最大顶级黄油蟹与巨型松茸的完美邂逅！鱼子酱只配当咸菜？！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [一朝伸手，十年铁窗 | 《铁窗泪》反作弊劝诫版](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
+- [找了29年的人已离世24年男子崩溃大哭](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [小区不要物业自己管自己 1天1户1块钱](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [为了测试这台7座车，我们找来了最难伺候的6种人！](http://www.movie.hkepx.cn/movie/2915060.htm)
-- [“云南文山12级台风致人伤亡”不实](http://www.play.hengshemaoyi.cn/xiju/6650559.htm)
-- [李杰灵870万买了个离海只有30米的房子](http://www.daogukj.com/zukhhxhm/)
-- [R星确认GTA6每个房间都手工打造，连NPC喝什么、桌上留什么痕迹都精心设计，你看好这种细节投入吗？](http://www.play.hengshemaoyi.cn/xiju/8385002.htm)
-- [为什么教堂没有功德箱？那教堂的收入从哪里来？](http://www.daogukj.com/9990025)
-- [越南批量设立直辖市，这对其经济发展和承接中国产业转移意味着什么？](http://www.daogukj.com/hlzgjllr/)
-- [Angelababy15岁写真](http://www.daogukj.com/1279926)
-- [周也董璇合照好像P的](http://www.play.hengshemaoyi.cn/xiju/7656141.htm)
-- [演唱会2小时 歌手休息占80分钟](http://www.daogukj.com/3778150)
-- [于东来晒胖东来业绩](http://www.movie.hkepx.cn/xiju/3087462.htm)
-- [孩子进校园家长还在围栏外“加班”](http://www.daogukj.com/1068777)
-- [著名作家王新军突发疾病去世](http://www.movie.hkepx.cn/movie/1255369.htm)
-- [高铁二等座变无座，12306 称临时调整无赔偿，此规定合理吗？](http://www.daogukj.com/5932895)
-- [这是个辅助万豪！？](http://www.daogukj.com/0377653)
-- [带精神小妹买衣服，并回复评论区的一些评论](http://www.movie.hkepx.cn/xiju/9207771.htm)
-- [家长反对交600元请保洁扫教室被禁言](http://www.daogukj.com/swhxvolr/)
-- [2026暑期档票房 124.98 亿，创影史最高场次纪录，《功夫女足》夺冠，如何评价这一成绩？](http://www.play.hengshemaoyi.cn/xiju/2171847.htm)
-- [还是穿不了“大人”的衣服](http://www.movie.hkepx.cn/movie/1158138.htm)
-- [吉隆口岸陆上通道即将打通](http://www.play.hengshemaoyi.cn/xiju/7265248.htm)
-- [华为、小米、荣耀等手机品牌正式涨价，涨幅均超 200 元，最高涨千元，将对用户及手机市场带来哪些影响？](http://www.play.hengshemaoyi.cn/xiju/7463556.htm)
-- [当你穿进老钱班34](http://www.movie.hkepx.cn/movie/8356454.htm)
-- [【铁豆钢蛋】你好 斌斌！](http://www.play.hengshemaoyi.cn/kongbu/7174540.htm)
-- [百万级豪车，如何定义一把好的座椅？](http://www.daogukj.com/djiijlzz/)
-- [开学第一课](http://www.movie.hkepx.cn/xiju/0852942.htm)
-- [吉隆新增12座应急基站](http://www.movie.hkepx.cn/xiju/2073519.htm)
-- [综艺节目何时不再给大自然“添乱”](http://www.daogukj.com/bxdkirzi/)
-- [吉林一虎园幼虎疑被饲养员一脚踢昏，园方称饲养员遭幼虎咬住引发本能反应，幼虎咬人有多疼？踢昏它要多大力？](http://www.play.hengshemaoyi.cn/xiju/2092178.htm)
-- [官方通报女子被踢出 845 个群被迫离职，用人单位已履行判决，事件中暴露的问题该如何有效解决？](http://www.movie.hkepx.cn/movie/6851513.htm)
-- [女子赢2600万后质疑律师费过高](http://www.play.hengshemaoyi.cn/xiju/7317912.htm)
-- [女生天生异瞳曾遭嘲讽 发视频被称赞](http://www.play.hengshemaoyi.cn/kongbu/0295456.htm)
-- [GEN送T1进世界赛](http://www.daogukj.com/ffeoohmm/)
-- [手握3.8万亿的“国家队”赚了3900亿](http://www.daogukj.com/8793756)
-- [9月1日起外籍个人从外商投资企业取得股息红利不再免征个税，如何解读？会带来多大规模的税收增量？](http://www.daogukj.com/9221593)
-- [手机集体涨价 谁为性能溢出买单](http://www.play.hengshemaoyi.cn/xiju/0638780.htm)
-- [从零开始，黑龙江发现废弃石头屋改造寒冬避难所，首场暴风雪来之前要做好准备，提前存储物资](http://www.daogukj.com/5791131)
-- [孙千你好辣](http://www.daogukj.com/ripwhmis/)
-- [作家王新军突发疾病去世](http://www.movie.hkepx.cn/xiju/0388039.htm)
-- [1.6万人同唱，龚琳娜现场全开麦！《剑网3》十七周年庆典全程回顾上线](http://www.daogukj.com/5335466)
-- [钎城给无畏送礼物](http://www.movie.hkepx.cn/movie/9946874.htm)
-- [现实版“爷爷和7个葫芦娃”走红](http://www.daogukj.com/eylipvua/)
-- [黄磊确认不再参加《向往的生活》录制](http://www.play.hengshemaoyi.cn/kongbu/4095300.htm)
-- [深圳校服真香](http://www.movie.hkepx.cn/movie/5118663.htm)
-- [AI色情短剧黑链曝光 4万月薪招编剧](http://www.daogukj.com/qbzygzag/)
-- [妹妹被扔土崖致死姐姐靠吃药入睡](http://www.movie.hkepx.cn/movie/1702335.htm)
-- [手机涨价](http://www.movie.hkepx.cn/movie/3713595.htm)
-- [20后入学家长年龄相差近30岁](http://www.movie.hkepx.cn/xiju/1227154.htm)
-- [为什么一斤粮食还没有一瓶瓶装水贵？](http://www.play.hengshemaoyi.cn/xiju/7776346.htm)
-- [《安心安全 | 安心安全》MV ：日本制造最重视的就是企业形象](http://www.movie.hkepx.cn/movie/2434946.htm)
-- [陈丽君主演首部电视剧要来了](http://www.daogukj.com/6801387)
-- [如何看待星际圈“九朵退会”引爆的“黄旭东朋友等级论”事件？](http://www.daogukj.com/2226152)
+- [9月1日起外籍个人从外商投资企业取得股息红利不再免征个税，如何解读？会带来多大规模的税收增量？](http://www.movie.hkepx.cn/movie/2915060.htm)
+- [皇马 中国西藏](http://www.play.hengshemaoyi.cn/xiju/6650559.htm)
+- [杨洋花少口碑](http://www.daogukj.com/zukhhxhm/)
+- [普京与伊朗总统会面](http://www.play.hengshemaoyi.cn/xiju/8385002.htm)
+- [吉隆救援为何不直接炸出泄流通道](http://www.daogukj.com/9990025)
+- [女生穿高跟鞋机场捧花接退伍男友](http://www.daogukj.com/hlzgjllr/)
+- [手握3.8万亿的“国家队”赚了3900亿](http://www.daogukj.com/1279926)
+- [你希望最亲近的人坐在哪里？｜理想L9 Livis 15天实测](http://www.play.hengshemaoyi.cn/xiju/7656141.htm)
+- [【蕾米埃尔】：入木三分，原来是字面意思？](http://www.daogukj.com/3778150)
+- [人民日报：综艺节目不能“拍完就走”](http://www.movie.hkepx.cn/xiju/3087462.htm)
+- [宁静回应《花少2》被全网分析](http://www.daogukj.com/1068777)
+- [从最期待变最难绷，一个城市还没做完就做第二个，没任何公开测试就宣布上线日期，无限大能好好把游戏做完吗？](http://www.movie.hkepx.cn/movie/1255369.htm)
+- [印度16岁少女被骗上大巴遭轮奸](http://www.daogukj.com/5932895)
+- [还是穿不了“大人”的衣服](http://www.daogukj.com/0377653)
+- [2627赛季英超第2轮阿斯顿维拉 0:1 阿森纳，如何评价这场比赛？](http://www.movie.hkepx.cn/xiju/9207771.htm)
+- [深圳校服为什么引发网友共鸣](http://www.daogukj.com/swhxvolr/)
+- [如何评价科隆游戏展接连发生设备盗窃案，官方却建议参展商自行买保险，玩家怒斥安保形同虚设？](http://www.play.hengshemaoyi.cn/xiju/2171847.htm)
+- [为什么鲁菜身为八大菜系之首，我们却很少见到鲁菜馆呢？](http://www.movie.hkepx.cn/movie/1158138.htm)
+- [女子携儿子闺蜜出游 酒后跳河失联](http://www.play.hengshemaoyi.cn/xiju/7265248.htm)
+- [透视暑期消费新变化](http://www.play.hengshemaoyi.cn/xiju/7463556.htm)
+- [如何评价《绿灯军团》第三集？](http://www.movie.hkepx.cn/movie/8356454.htm)
+- [越南批量设立直辖市，这对其经济发展和承接中国产业转移意味着什么？](http://www.play.hengshemaoyi.cn/kongbu/7174540.htm)
+- [东部战区座座军营送老兵](http://www.daogukj.com/djiijlzz/)
+- [开疆拓土特朗普，可算美国总统GOAT？](http://www.movie.hkepx.cn/xiju/0852942.htm)
+- [救援救援！再难也要继续](http://www.movie.hkepx.cn/xiju/2073519.htm)
+- [如何评价《爱的教育》这本书？](http://www.daogukj.com/bxdkirzi/)
+- [中国男篮公布亚运会12人名单](http://www.play.hengshemaoyi.cn/xiju/2092178.htm)
+- [深圳全市中小学生校服款式统一，学生家长可自行去商超购买，怎样看待这种模式？你支持全国推广吗？](http://www.movie.hkepx.cn/movie/6851513.htm)
+- [刘晓庆330万元借贷纠纷案二审败诉](http://www.play.hengshemaoyi.cn/xiju/7317912.htm)
+- [从零开始，黑龙江发现废弃石头屋改造寒冬避难所，首场暴风雪来之前要做好准备，提前存储物资](http://www.play.hengshemaoyi.cn/kongbu/0295456.htm)
+- [于东来痛批明星扎堆直播带货](http://www.daogukj.com/ffeoohmm/)
+- [华为、小米、荣耀回应涨价](http://www.daogukj.com/8793756)
+- [“云南文山12级台风致人伤亡”不实](http://www.daogukj.com/9221593)
+- [皇马将西藏与尼泊尔并列拒绝改正](http://www.play.hengshemaoyi.cn/xiju/0638780.htm)
+- [官方通报女子被踢出 845 个群被迫离职，用人单位已履行判决，事件中暴露的问题该如何有效解决？](http://www.daogukj.com/5791131)
+- [找了29年的人已离世24年男子崩溃大哭](http://www.daogukj.com/ripwhmis/)
+- [黄金白银快速下跌](http://www.movie.hkepx.cn/xiju/0388039.htm)
+- [R星确认GTA6每个房间都手工打造，连NPC喝什么、桌上留什么痕迹都精心设计，你看好这种细节投入吗？](http://www.daogukj.com/5335466)
+- [尼泊尔泥石流灾害遇难人数升至1093人](http://www.movie.hkepx.cn/movie/9946874.htm)
+- [手机涨价](http://www.daogukj.com/eylipvua/)
+- [才知道老一辈做饭比我们更狠](http://www.play.hengshemaoyi.cn/kongbu/4095300.htm)
+- [日语版《朋友的酒》citypop remix（空城计の小曲）](http://www.movie.hkepx.cn/movie/5118663.htm)
+- [【英雄联盟】15周年战斗之夜福利速览](http://www.daogukj.com/qbzygzag/)
+- [女子流产4次找不到病因 结果崩溃](http://www.movie.hkepx.cn/movie/1702335.htm)
+- [手机涨价 卖不动](http://www.movie.hkepx.cn/movie/3713595.htm)
+- [花少2分析](http://www.movie.hkepx.cn/xiju/1227154.htm)
+- [20后入学家长年龄相差近30岁](http://www.play.hengshemaoyi.cn/xiju/7776346.htm)
+- [藏族为啥爱去成都，而不是西宁？](http://www.movie.hkepx.cn/movie/2434946.htm)
+- [唐国强朗诵《出师表》 演绎临表涕零](http://www.daogukj.com/6801387)
+- [英国疯狂挑衅俄罗斯在赌什么](http://www.daogukj.com/2226152)
 
 </details>
 
 ## 原始来源
 
-- [时尚COSMO金九内页](https://s.weibo.com/weibo?q=%E6%97%B6%E5%B0%9ACOSMO%E9%87%91%E4%B9%9D%E5%86%85%E9%A1%B5)
+- [“豆包手机”外观公布 有4种配色](https://www.baidu.com/s?wd=%E2%80%9C%E8%B1%86%E5%8C%85%E6%89%8B%E6%9C%BA%E2%80%9D%E5%A4%96%E8%A7%82%E5%85%AC%E5%B8%83+%E6%9C%894%E7%A7%8D%E9%85%8D%E8%89%B2&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 55038fe32eda26871c2a -->
+<!-- content-fingerprint: 949da556cba8d137b39d -->
