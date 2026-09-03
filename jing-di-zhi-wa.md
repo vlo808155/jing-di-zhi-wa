@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 【花小烙】手上的汗疱疹是怎么冒出来的？
+# 为什么各大AI平台都不约而同使用「积分」、「百分比」来计算AI的消耗额度？
 
-> 来源：哔哩哔哩热门 · 排名：第 17 位 · 热度：306477 · 分类：科学科普 · 更新：2026-09-03T08:07:09+08:00
+> 来源：知乎热榜 · 排名：第 17 位 · 热度：124 万热度 · 分类：问答 · 更新：2026-09-03T12:17:34+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“【花小烙】手上的汗疱疹是怎么冒出来的？”位列第 17 位，公开热度指标为 306477，榜单分类为“科学科普”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“为什么各大AI平台都不约而同使用「积分」、「百分比」来计算AI的消耗额度？”位列第 17 位，公开热度指标为 124 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：一到天热的时候，手指侧面、手掌或者指尖就容易长出成群透明且痒痒的小水疱，这大概率就是汗疱疹了。
+来源公开摘要显示：最近使用 ChatGPT、Claude、Gemini、GitHub Copilot、各种 AI Coding Agent 等服务时，发现一个非常普遍的现象： 几乎所有 AI 平台都开始采用类似的资源展示方式：积分（Credits）消耗额度百分比（例如剩余 73%）使用次数限制高级模型消耗更多额度 但用户实际支付的是人民币、美元等真实货币，购买的却是一种平台内部定义的“积分”。 例如：用户购买一个月 AI 服务，平台赠送 10,000 Credits，当前剩余 63%。 问题在于： 这个 10,000 Credits 到底对应多少真实计算资源？ 一次 GP
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `科学科普`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [曹骏 断层第一](hai-kuo-tian-kong.md)
-- [戚薇回应做AI授权是因为缺钱](gao-zhan-yuan-zhu.md)
-- [快船队被罚款3000万美元](xiong-you-cheng-zhu.md)
-- [苹果、小米、华为发布时间撞档，为啥大家都选 9 月发布新品？扎堆发布不会影响销量吗？](yun-chou-wei-wo.md)
+- [老师也是人](hai-kuo-tian-kong.md)
+- [姆巴佩 黑帮绑架目标](gao-zhan-yuan-zhu.md)
+- [广州开展交通入户调查](xiong-you-cheng-zhu.md)
+- [《醒来》大结局有何看点](yun-chou-wei-wo.md)
 
 ## 站内推荐
 
-- [读懂这个“50.9%”的分量](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [微信新功能专治各种看不见](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [苹果新任 CEO 约翰·特努斯是什么来头？CEO 更替会给苹果带来什么影响？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [黄之锋在香港高等法院就「串谋勾结外国或者境外势力危害国家安全」案当庭认罪，哪些信息值得关注？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [老人帮带娃半年瘦了40斤确诊焦虑症](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [中国人民抗日战争胜利81周年纪念日](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [这辈子最想撤回的一条外卖聊天记录](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [宁静透露陈意涵在花少2被人摆脸色](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [男子杀害情人丈夫后潜逃50年落网](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [中国男篮方面确认，杨瀚森由于要征战NBA赛季的原因，缺席后边4场世预赛，他的缺阵对男篮战绩有多大影响？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [菲律宾巨蟒在洪水中挨家挨户“串门”](http://www.play.hengshemaoyi.cn/xiju/2682331.htm)
-- [今天 致敬伟大胜利](http://www.movie.hkepx.cn/movie/3552953.htm)
-- [谁能想到钓个鱼能这么好笑？渔力全开！](http://www.movie.hkepx.cn/xiju/5501331.htm)
-- [“打疫苗破坏自身免疫系统”系误区](http://www.daogukj.com/5865714)
-- [台风沙德尔在福建漳州第三次登陆](http://www.movie.hkepx.cn/xiju/6974026.htm)
-- [为继承母亲手机号 姐弟三人打官司](http://www.movie.hkepx.cn/movie/6932309.htm)
-- [中国男篮方面确认，杨瀚森由于要征战NBA赛季的原因，缺席后边4场世预赛，他的缺阵对男篮战绩有多大影响？](http://www.play.hengshemaoyi.cn/xiju/6279680.htm)
-- [苹果新任 CEO 约翰·特努斯是什么来头？CEO 更替会给苹果带来什么影响？](http://www.movie.hkepx.cn/movie/2684858.htm)
-- [如何评价最白的乌鸦新书《请勿高考时渡劫》达成10万首订，这本书有意思不？](http://www.daogukj.com/4259523)
-- [【warma/怒九】两个大聪明的宇宙冒险！《轨道双子星》实况【更新中】](http://www.daogukj.com/qgjsruwo/)
-- [女子喝冰冻可乐瞬间满嘴血](http://www.play.hengshemaoyi.cn/kongbu/0099761.htm)
-- [好讨厌需要靠争抢来的东西](http://www.play.hengshemaoyi.cn/kongbu/2800065.htm)
-- [美国银行32岁副总裁在时代广场被随机捅死](http://www.movie.hkepx.cn/xiju/7938027.htm)
-- [独居真的只适合个别人](http://www.daogukj.com/yxmhbgmj/)
-- [男子盘手串包浆后被妻子用刷子搓净，玩家集体破防，到底什么是包浆？女子洗掉的到底是包浆还是油泥？](http://www.daogukj.com/ysjajnjj/)
-- [老人帮带娃半年瘦了40斤确诊焦虑症](http://www.daogukj.com/4118538)
-- [一个外挂100块，从零挑战四款FPS，会遇到多少挂？](http://www.play.hengshemaoyi.cn/kongbu/8139573.htm)
-- [家长自报干部身份让关照？中学回应](http://www.daogukj.com/bgjdqoal/)
-- [1分钟重温2025九三盛大阅兵](http://www.play.hengshemaoyi.cn/kongbu/1399796.htm)
-- [如何评价 22.99 万起售的比亚迪海狮 08？有哪些亮点值得关注？](http://www.movie.hkepx.cn/xiju/1312398.htm)
-- [家长在班级群自报干部身份](http://www.daogukj.com/hqgapaxs/)
-- [普京：德国犯了严重的错误](http://www.play.hengshemaoyi.cn/xiju/5373978.htm)
-- [抗战胜利81周年](http://www.daogukj.com/1191954)
-- [专家解读初一新生5000多人96个班](http://www.daogukj.com/6834210)
-- [欧、美、日、英，多国债市遭抛售潮，这种现象以前发生过吗？](http://www.movie.hkepx.cn/movie/6540828.htm)
-- [马斯克：全球存在相当严重的电力危机](http://www.movie.hkepx.cn/movie/7210597.htm)
-- [又一害惨中国年轻人的网红翻车：新型智商税，早该被曝光了](http://www.movie.hkepx.cn/xiju/0123432.htm)
-- [开局之年看山西](http://www.play.hengshemaoyi.cn/kongbu/3128174.htm)
-- [“什么叫程心的威慑度是100%？”](http://www.daogukj.com/7181360)
-- [快船队被罚3000万美元](http://www.daogukj.com/6926357)
-- [“温州瑞安高速强降雨致人员死亡”不实](http://www.play.hengshemaoyi.cn/kongbu/9049497.htm)
-- [对“岁月是把杀猪刀”有什么好的诠释？](http://www.daogukj.com/eiphdnwm/)
-- [西藏泥石流已致 21 死 541 失联，发现遗物 847 件，有哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/7401130.htm)
-- [怎么看美国《外交政策》（Foreign Policy）称「中国的成功正迫使美国重新思考AI战略」？](http://www.movie.hkepx.cn/movie/7110434.htm)
-- [告别机顶盒](http://www.play.hengshemaoyi.cn/kongbu/4490690.htm)
-- [“沙德尔”在福建漳州第三次登陆](http://www.movie.hkepx.cn/movie/6518386.htm)
-- [超级暴雨来袭：沙德尔急转弯严重影响浙闽粤，台风科罗旺西调](http://www.daogukj.com/8067678)
-- [戚薇回应做AI授权是因为缺钱](http://www.play.hengshemaoyi.cn/kongbu/6649001.htm)
-- [神似宋威龙北电新生报到引围观](http://www.daogukj.com/htblbqcb/)
-- [黄 毛 抢 钱 记](http://www.play.hengshemaoyi.cn/xiju/4658280.htm)
-- [多地小学老师转教初中](http://www.movie.hkepx.cn/xiju/0000676.htm)
-- [鱼塘成食堂 老板出3万征集驱鸟点子](http://www.play.hengshemaoyi.cn/kongbu/4700540.htm)
-- [娄艺潇被积压12年的剧要播了](http://www.movie.hkepx.cn/xiju/2723766.htm)
-- [人教版语文教材新增这篇课文](http://www.daogukj.com/sxyjxhms/)
-- [两个武林高手，一个擅长剑法，一个擅使重戟，如果二人对决，哪个人赢面更大？](http://www.play.hengshemaoyi.cn/kongbu/7497786.htm)
-- [孙千跟妈妈共用一张脸](http://www.play.hengshemaoyi.cn/kongbu/0039607.htm)
-- [“口袋空调”卖爆了](http://www.daogukj.com/9799008)
-- [「药茅」片仔癀半年报利润下滑 24.22%，其市值较巅峰已蒸发超 2100 亿，如何解读？](http://www.daogukj.com/uavkxthj/)
-- [少↗TM↗飞↗滑↗，给↘我↘打↗，使↘↗劲↘打↗（使人震撼的分镜）（挨了一滑板）呃（捂头）](http://www.play.hengshemaoyi.cn/xiju/1469979.htm)
-- [怎样看待央视抽查保温杯连304钢印都能造假？](http://www.play.hengshemaoyi.cn/kongbu/2837480.htm)
+- [伊朗打击科威特美军基地](http://www.play.hengshemaoyi.cn/xiju/2682331.htm)
+- [微信新功能专治各种看不见](http://www.movie.hkepx.cn/movie/3552953.htm)
+- [如何看待 WorkBuddy 开放 Agent 基座能力？这会怎样影响 Agent 的生态？](http://www.movie.hkepx.cn/xiju/5501331.htm)
+- [家长在班级群自称是干部，希望多关照孩子，保定市人民医院回应正在处理，反映了哪些问题？家长会受到处罚吗？](http://www.daogukj.com/5865714)
+- [苹果新任 CEO 约翰·特努斯是什么来头？CEO 更替会给苹果带来什么影响？](http://www.movie.hkepx.cn/xiju/6974026.htm)
+- [“什么叫程心的威慑度是100%？”](http://www.movie.hkepx.cn/movie/6932309.htm)
+- [中国全额缴纳2026年联合国会费](http://www.play.hengshemaoyi.cn/xiju/6279680.htm)
+- [宁静透露陈意涵在花少2被人摆脸色](http://www.movie.hkepx.cn/movie/2684858.htm)
+- [怎样看待央视抽查保温杯连304钢印都能造假？](http://www.daogukj.com/4259523)
+- [荷兰央行将86吨黄金储备转移至伦敦](http://www.daogukj.com/qgjsruwo/)
+- [《倩女幽魂》“姥姥”刘兆铭去世](http://www.play.hengshemaoyi.cn/kongbu/0099761.htm)
+- [印度民众捕食巨型鱼尸体](http://www.play.hengshemaoyi.cn/kongbu/2800065.htm)
+- [对“岁月是把杀猪刀”有什么好的诠释？](http://www.movie.hkepx.cn/xiju/7938027.htm)
+- [星期日：纯路人，我觉得封面很可爱](http://www.daogukj.com/yxmhbgmj/)
+- [【IGN独家】《鸣潮》共鸣者「心」、「锁暝」演示](http://www.daogukj.com/ysjajnjj/)
+- [中国男篮方面确认，杨瀚森由于要征战NBA赛季的原因，缺席后边4场世预赛，他的缺阵对男篮战绩有多大影响？](http://www.daogukj.com/4118538)
+- [外交部回应 G20 财长和央行行长会议未能发表公报，「深表遗憾」，有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/8139573.htm)
+- [建水紫陶](http://www.daogukj.com/bgjdqoal/)
+- [乌克兰两部门在基辅发生交火](http://www.play.hengshemaoyi.cn/kongbu/1399796.htm)
+- [太阳熄灭一分钟和氧气消失一分钟，哪个对地球影响更大？](http://www.movie.hkepx.cn/xiju/1312398.htm)
+- [强行给二哈做体检，那场面比杀猪现场还狠！](http://www.daogukj.com/hqgapaxs/)
+- [表外甥不听我劝告拒报好就业的大专，已考了不好就业的民办本科金融学专业，我现在见着他们该怎么说才好呢？](http://www.play.hengshemaoyi.cn/xiju/5373978.htm)
+- [哈利波特也开学了](http://www.daogukj.com/1191954)
+- [淘宝崩了](http://www.daogukj.com/6834210)
+- [网传部分家长因老师「不婚主义」而向学校投诉，校方要求老师好好道歉，具体情况如何？这算是过度干预吗？](http://www.movie.hkepx.cn/movie/6540828.htm)
+- [“常来祖宗海更能体会飞行意义”](http://www.movie.hkepx.cn/movie/7210597.htm)
+- [张雪晒97岁李锦记掌门人喝可乐](http://www.movie.hkepx.cn/xiju/0123432.htm)
+- [19人搜救突击队如何挺进灾害核心区](http://www.play.hengshemaoyi.cn/kongbu/3128174.htm)
+- [教授夫妇21楼坠下床上摆180万？谣言](http://www.daogukj.com/7181360)
+- [又一害惨中国年轻人的网红翻车：新型智商税，早该被曝光了](http://www.daogukj.com/6926357)
+- [广西横州养蛇厂家：养蛇是为了救人](http://www.play.hengshemaoyi.cn/kongbu/9049497.htm)
+- [不同年代气血很足的美！这是一条气血很足的视频哦](http://www.daogukj.com/eiphdnwm/)
+- [如何看待港中文（深圳）高考第260名的新生因不满与第2600名同住而想退学？为什么排名差距会这么大？](http://www.movie.hkepx.cn/xiju/7401130.htm)
+- [伊朗导弹致大量美军死伤](http://www.movie.hkepx.cn/movie/7110434.htm)
+- [如何看待 NBA 重罚快船，因规避工资帽被罚 3000 万、没收 5 个首轮签？对球队有哪些实质影响？](http://www.play.hengshemaoyi.cn/kongbu/4490690.htm)
+- [七日酒店遭7天酒店索赔10万](http://www.movie.hkepx.cn/movie/6518386.htm)
+- [葫芦娃爷爷的孩子已经不在了](http://www.daogukj.com/8067678)
+- [姆巴佩 黑帮绑架目标](http://www.play.hengshemaoyi.cn/kongbu/6649001.htm)
+- [“老虎”伍兹认罪](http://www.daogukj.com/htblbqcb/)
+- [媒体：有一种底气叫送到统一为止](http://www.play.hengshemaoyi.cn/xiju/4658280.htm)
+- [《后西游记》没真人演员却拿下收视第1](http://www.movie.hkepx.cn/xiju/0000676.htm)
+- [《花少2》毛阿敏 放现在算虐待老人](http://www.play.hengshemaoyi.cn/kongbu/4700540.htm)
+- [“误闯天家，天黑了”](http://www.movie.hkepx.cn/xiju/2723766.htm)
+- [多地中考历史不计入总分](http://www.daogukj.com/sxyjxhms/)
+- [一小学收取餐盘清洗费每学期45元](http://www.play.hengshemaoyi.cn/kongbu/7497786.htm)
+- [花少4 被低估](http://www.play.hengshemaoyi.cn/kongbu/0039607.htm)
+- [井柏然 升咖](http://www.daogukj.com/9799008)
+- [何超琼给亲爹工作也要谈薪资](http://www.daogukj.com/uavkxthj/)
+- [为什么近两年3D电影消失了？](http://www.play.hengshemaoyi.cn/xiju/1469979.htm)
+- [张继科带教乒乓球一个半小时25元，被网友夸赞接地气，称「能让孩子进步是我的初心」，如何看待这一定价？](http://www.play.hengshemaoyi.cn/kongbu/2837480.htm)
 
 </details>
 
 ## 原始来源
 
-- [【花小烙】手上的汗疱疹是怎么冒出来的？](https://b23.tv/BV1Yptj6zEEG)
+- [为什么各大AI平台都不约而同使用「积分」、「百分比」来计算AI的消耗额度？](https://www.zhihu.com/question/2077098899299481558)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c26e4593e519b449cd74 -->
+<!-- content-fingerprint: 6dc50709d2006214efb3 -->
