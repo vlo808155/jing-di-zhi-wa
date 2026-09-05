@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 荷兰、法国等多国为什么要从美国运回黄金？这会对全球金融市场及美元体系产生什么影响？
+# 解珍解宝两兄弟武艺差进天罡，为什么武艺高强的孙立却在地煞？
 
-> 来源：知乎热榜 · 排名：第 18 位 · 热度：155 万热度 · 分类：问答 · 更新：2026-09-05T17:20:04+08:00
+> 来源：知乎热榜 · 排名：第 18 位 · 热度：91 万热度 · 分类：问答 · 更新：2026-09-05T20:53:45+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“荷兰、法国等多国为什么要从美国运回黄金？这会对全球金融市场及美元体系产生什么影响？”位列第 18 位，公开热度指标为 155 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“解珍解宝两兄弟武艺差进天罡，为什么武艺高强的孙立却在地煞？”位列第 18 位，公开热度指标为 91 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：荷兰中央银行2日公布，该行今年3月至8月将约86吨黄金储备从美国纽约和加拿大渥太华转移至英国伦敦，以分散风险，做好危机应对准备。 荷兰央行的新闻公报说，约59吨黄金通过在纽约市场出售、再从伦敦市场购入的方式实现转移，超过27吨黄金从美国和加拿大以实物形式运输至荷兰宰斯特，另有数量相当、符合国际市场标准的黄金从宰斯特转移至伦敦。 荷兰央行数据显示，截至2025年底，荷兰拥有黄金储备612.4吨，主要存放在荷兰宰斯特、英国伦敦、美国纽约和加拿大渥太华。 此次调整后，荷兰黄金储备存放在宰斯特的比例维持不变，为30.8%，存放在纽约的比例从31.3%大幅降低到1
+来源公开摘要显示：《水浒传》里的梁山108将座次排名一直被人们所争议，这个梁山排名问题甚至被人誉为“水浒十大未解之谜”之一。比如说，穆弘这样能力一般的人居然能够进入天罡大将序列，而且还是梁山八彪骑之一，这简直让人大跌眼镜！而天罡大将序列还有两个人也是被众多水浒迷所不服的，他们就是解珍解宝兄弟，翻遍整部水浒，我们没看到这兄弟两武功有高强，或者说出身多高贵，或者说背后靠山多牛叉，或者说有什么特殊本领。反而是武功高到足以进天罡的孙立，却出人意料的只是一个地煞小将，这简直令人匪夷所思。看来，梁山排名真的是内幕重重啊。请大家帮我回答一下，为何解珍解宝两兄弟武艺差，却被排进了天罡，孙
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [我们全班都在嘲笑物理老师那支丑爆了的棕色](jian-wei-zhi-zhu.md)
-- [92岁正是拼的年纪](du-ju-hui-yan.md)
-- [早春晴朗18集是史诗级别的鬼一集](bie-ju-jiang-xin.md)
-- [胖东来天使城取消顾客演唱互动环节](qiao-duo-tian-gong.md)
+- [“请与我一同，战胜时间的伟力。”](jian-wei-zhi-zhu.md)
+- [尼泊尔泥石流灾害1名中国公民获救](du-ju-hui-yan.md)
+- [美汽车业协会促国会永久禁中国车](bie-ju-jiang-xin.md)
+- [美总统特使抵达莫斯科](qiao-duo-tian-gong.md)
 
 ## 站内推荐
 
-- [张雅琪被花少8剪掉了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [官方通报染色莴笋：6家企业被立案](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [西藏泥石流已致 31 死 531 失联，发现遗物 987 件，有哪些信息值得关注？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [耿同学锤刘光慧、曲静的《Nature》论文涉数据造假，哪些信息值得关注？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [我好像找到了特别贴numb numb副歌音效的跳法…](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [DeepSeek被曝将采购16万颗华为芯片](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [菲法院为何下令逮捕副总统](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [福建莆田特大暴雨一天下了北方多地全年降水量，有人员失联，宁德多地内涝，为什么雨量这么大？目前情况如何？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [今年为什么各大手机厂商都在出阔折叠？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [这次是真玩爽了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [为啥银行会出现「存 1 年利息高于存 5 年」的倒挂？会给普通储户带来哪些影响？](http://www.daogukj.com/4857502)
-- [中国安能80名骨干驰援江西遂川抢险](http://www.daogukj.com/fxomsuem/)
-- [中国电动卡车走向世界](http://www.play.hengshemaoyi.cn/xiju/4881423.htm)
-- [我好像突然对钱有了概念](http://www.movie.hkepx.cn/xiju/2224998.htm)
-- [8月中国物流需求保持扩张](http://www.daogukj.com/xislksiq/)
-- [女子吃避孕药后久坐旅游患肺栓塞](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
-- [尼泊尔泥石流灾害一中国公民获救](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
-- [这次是真玩爽了](http://www.movie.hkepx.cn/xiju/3925704.htm)
-- [中国会出现公认的第五个一线城市吗?](http://www.daogukj.com/zjqbftsa/)
-- [陈丽君人走了手机落下了](http://www.daogukj.com/odtszjmj/)
-- [张家齐13岁赚了81万](http://www.movie.hkepx.cn/movie/8285885.htm)
-- [西藏泥石流已致 31 死 531 失联，发现遗物 987 件，有哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/1770369.htm)
-- [张雅琪被花少8剪掉了](http://www.daogukj.com/8527580)
-- [老楼加装电梯遭一楼住户反对](http://www.daogukj.com/9299314)
-- [葫芦娃爷爷拒收礼摆手全退回](http://www.daogukj.com/5812229)
-- [OpenAI官宣将自研人形机器人](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
-- [华为何庭波再提「本该烧毁的『τ芯片』」，这揭示了华为怎样的芯片自研能力？](http://www.daogukj.com/5338633)
-- [要不要取消英语主科地位](http://www.movie.hkepx.cn/xiju/7272064.htm)
-- [我们全班都在嘲笑物理老师那支丑爆了的棕色](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
-- [2米眼镜王蛇钻入帐篷 猎犬拖出未果](http://www.daogukj.com/3351222)
+- [山东一小学新校区被指气味刺鼻，有学生流鼻血，教育局称甲醛检测合格，可能是什么导致的？校方有哪些责任？](http://www.daogukj.com/4857502)
+- [武汉日出出现火烧云](http://www.daogukj.com/fxomsuem/)
+- [青春华章](http://www.play.hengshemaoyi.cn/xiju/4881423.htm)
+- [樊振东3比0鲁伊斯](http://www.movie.hkepx.cn/xiju/2224998.htm)
+- [LPL2026 赛季季后赛 iG 鏖战五局淘汰 TES，如何评价这场比赛？](http://www.daogukj.com/xislksiq/)
+- [第一批戴运动手环的受害者出现了](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
+- [小县城的房子买了没人住](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
+- [我好像找到了特别贴numb numb副歌音效的跳法…](http://www.movie.hkepx.cn/xiju/3925704.htm)
+- [午夜轮班，伪人超市](http://www.daogukj.com/zjqbftsa/)
+- [金晨回应恋情传闻](http://www.daogukj.com/odtszjmj/)
+- [超1万册永乐大典副本下落不明](http://www.movie.hkepx.cn/movie/8285885.htm)
+- [福建莆田特大暴雨一天下了北方多地全年降水量，有人员失联，宁德多地内涝，为什么雨量这么大？目前情况如何？](http://www.movie.hkepx.cn/xiju/1770369.htm)
+- [DeepSeek被曝将采购16万颗华为芯片](http://www.daogukj.com/8527580)
+- [江西遂川泥石流失联11人身份确认](http://www.daogukj.com/9299314)
+- [“梅姨”画像更新](http://www.daogukj.com/5812229)
+- [运营商晒iPhone18售价](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
+- [【萌黄一槽】幻术吗，什么时候？！宇智波鼬[晓·朱]全技能爆料！](http://www.daogukj.com/5338633)
+- [女子吃避孕药后久坐旅游患肺栓塞](http://www.movie.hkepx.cn/xiju/7272064.htm)
+- [“请与我一同，战胜时间的伟力。”](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
+- [长沙女子新房门窗缝隙能塞进4根手指](http://www.daogukj.com/3351222)
 - [轮椅老人上高架蓄意碰瓷？不实](http://www.play.hengshemaoyi.cn/xiju/0501282.htm)
-- [男子在头等舱闹事被绑成“木乃伊”](http://www.movie.hkepx.cn/movie/7142641.htm)
-- [耿同学锤刘光慧、曲静的《Nature》论文涉数据造假，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
-- [考研数学名师汤家凤呼吁取消英语主科地位，你赞同吗？将对人才培养和学生发展带来哪些影响？](http://www.movie.hkepx.cn/xiju/5072930.htm)
-- [美国『林肯』号航母现身油漆脱落、遍布锈迹，这在航母日常维护中属于正常现象吗？](http://www.daogukj.com/mkxvsuhn/)
-- [这种鞋子不要给孩子天天穿](http://www.daogukj.com/9044973)
-- [卢昱晓瘦成竹竿了](http://www.daogukj.com/6197852)
-- [万人追更的终南山怪虫，只有我们拍到了真相！](http://www.daogukj.com/ryrqoiii/)
-- [江西吉安遂川县高坪镇发生山体滑坡，十余人被埋，目前救援进展如何？](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
-- [联通在青岛大学与校方起冲突系谣言](http://www.play.hengshemaoyi.cn/kongbu/7063878.htm)
-- [设计师称中国客厅已失去意义](http://www.movie.hkepx.cn/movie/2552102.htm)
-- [撒贝宁：只要不上班就来丹霞山](http://www.movie.hkepx.cn/xiju/2129564.htm)
-- [葫芦娃真的“救”了爷爷](http://www.daogukj.com/1731517)
-- [邵艺辉新片如何治好了我的“竞争”焦虑？](http://www.daogukj.com/0178251)
-- [如何看待王者荣耀上线高校认证功能，清华北大认证在二手平台炒到两千元，客服称已下线？这会加重学历焦虑吗？](http://www.movie.hkepx.cn/movie/2491274.htm)
-- [为什么脱口秀演员徐志胜会这么火？](http://www.daogukj.com/1710555)
-- [汤家凤呼吁取消英语主科地位](http://www.daogukj.com/iqnxgakx/)
-- [“梅姨”画像更新](http://www.daogukj.com/evhpdqcv/)
-- [午夜轮班，伪人超市](http://www.movie.hkepx.cn/movie/9669872.htm)
-- [菲法院为何下令逮捕副总统](http://www.play.hengshemaoyi.cn/xiju/7739320.htm)
-- [喝多了没人能制裁我 除了我老婆](http://www.movie.hkepx.cn/xiju/6624711.htm)
-- [港姐王菲与歌手张子丰宣布订婚](http://www.movie.hkepx.cn/movie/0041132.htm)
-- [胖东来天使城取消顾客演唱互动环节](http://www.movie.hkepx.cn/xiju/9486629.htm)
-- [对面一个牢玩家李白，打我们这边4个牢玩家](http://www.movie.hkepx.cn/movie/9796335.htm)
-- [新 生 开 学 有 多 爽 ？！！](http://www.daogukj.com/0823826)
-- [5岁女童电子病历被标注刁蛮 家长发声](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
-- [青春华章因创新更燃](http://www.movie.hkepx.cn/movie/5397309.htm)
-- [接了好多蝌蚪…](http://www.daogukj.com/0899815)
-- [尼泊尔泥石流1名受困中国公民获救](http://www.play.hengshemaoyi.cn/xiju/2828553.htm)
-- [女子吃甜虾后肚子痛 10 多天，肠道发现寄生虫，人们常说海水里的生鲜没有寄生虫靠谱吗？怎样吃才安全？](http://www.daogukj.com/cachqmkl/)
+- [徐良演唱会奖品 帮还房贷车贷](http://www.movie.hkepx.cn/movie/7142641.htm)
+- [今年为什么各大手机厂商都在出阔折叠？](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
+- [【独家】《凡人修仙传之慕兰之战》第14集【总第190集】](http://www.movie.hkepx.cn/xiju/5072930.htm)
+- [有没有某个瞬间，你觉得做科研特扯淡?](http://www.daogukj.com/mkxvsuhn/)
+- [才知道陈妍希儿子名字陈睦辰](http://www.daogukj.com/9044973)
+- [尼泊尔获救中国公民讲述被救过程](http://www.daogukj.com/6197852)
+- [父亲送女儿到郑州上大学直呼高大上](http://www.daogukj.com/ryrqoiii/)
+- [明朝科技曾经领先世界，为啥没能像欧洲一样开启工业革命？是被清朝打断了，还是从根上就不行？](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
+- [剧本杀 色情服务](http://www.play.hengshemaoyi.cn/kongbu/7063878.htm)
+- [张雪机车获第三名](http://www.movie.hkepx.cn/movie/2552102.htm)
+- [“8个鸡蛋”少年上大学前当了老师](http://www.movie.hkepx.cn/xiju/2129564.htm)
+- [泥石流获救中国公民：一度不敢相信](http://www.daogukj.com/1731517)
+- [DECO*27 - 洗脳 feat. 初音未来](http://www.daogukj.com/0178251)
+- [【2026LPL第三赛段】9月5日 TES vs IG](http://www.movie.hkepx.cn/movie/2491274.htm)
+- [花600天做一道菜，切开的瞬间发光了！](http://www.daogukj.com/1710555)
+- [7500万乙肝患者有望告别终身服药](http://www.daogukj.com/iqnxgakx/)
+- [1岁裸体男童沙漠走失12小时被找到](http://www.daogukj.com/evhpdqcv/)
+- [生育险、长护险、医保报销迎新变化](http://www.movie.hkepx.cn/movie/9669872.htm)
+- [解放军20架次军机持续位台岛周边活动](http://www.play.hengshemaoyi.cn/xiju/7739320.htm)
+- [西（部）游记 2 西游工程队](http://www.movie.hkepx.cn/xiju/6624711.htm)
+- [对于小学生下午放学后到托管班写作业，你是如何看待的？](http://www.movie.hkepx.cn/movie/0041132.htm)
+- [美总统特使抵达莫斯科](http://www.movie.hkepx.cn/xiju/9486629.htm)
+- [笑出猪叫！AI重画动画名场景100次之后？猜得出的才是动漫高手！【动漫猜猜看09】](http://www.movie.hkepx.cn/movie/9796335.htm)
+- [接了好多蝌蚪…](http://www.daogukj.com/0823826)
+- [福建男子给全屋家具家电上吊防洪](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
+- [未来五年 健康生活“新”在哪](http://www.movie.hkepx.cn/movie/5397309.htm)
+- [教授夫妇坠楼床上摆百万现金是谣言](http://www.daogukj.com/0899815)
+- [为何张继科退役后体脂率还是这么低？](http://www.play.hengshemaoyi.cn/xiju/2828553.htm)
+- [王楚钦退赛「1000」分卫冕积分将清零，如何影响其世界排名及赛程？](http://www.daogukj.com/cachqmkl/)
 
 </details>
 
 ## 原始来源
 
-- [荷兰、法国等多国为什么要从美国运回黄金？这会对全球金融市场及美元体系产生什么影响？](https://www.zhihu.com/question/2079165893582350281)
+- [解珍解宝两兄弟武艺差进天罡，为什么武艺高强的孙立却在地煞？](https://www.zhihu.com/question/661584251)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f006c3dcc84de6cf9f6f -->
+<!-- content-fingerprint: a3880b639a4b7c08d563 -->
