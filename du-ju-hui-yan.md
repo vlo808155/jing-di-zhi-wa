@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 评分7.1！当太阳升起就把昨天忘记！假面骑士ZZZ完结吐槽！
+# 全B站最垃圾的一期视频
 
-> 来源：哔哩哔哩热门 · 排名：第 18 位 · 热度：434143 · 分类：特摄 · 更新：2026-09-06T09:03:16+08:00
+> 来源：哔哩哔哩热门 · 排名：第 18 位 · 热度：2239277 · 分类：搞笑 · 更新：2026-09-06T13:50:36+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“评分7.1！当太阳升起就把昨天忘记！假面骑士ZZZ完结吐槽！”位列第 18 位，公开热度指标为 434143，榜单分类为“特摄”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“全B站最垃圾的一期视频”位列第 18 位，公开热度指标为 2239277，榜单分类为“搞笑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：点个关注再走哦
+来源公开摘要显示：*本视频是通过steam《破烂艺术家》基础改编成真人版。 希望观众朋友们可以喜欢这个系列！ （希望你们喜欢，记得一键三连！）
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `特摄`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `搞笑`
 
 ## 相关热点
 
-- [反垄断拿省卫健委“开刀”](bie-ju-jiang-xin.md)
-- [曝iPhone18Pro灵动岛大瘦身](qiao-duo-tian-gong.md)
-- [郑钦文下一轮迎战斯瓦泰克](gui-fu-shen-gong.md)
+- [特斯拉赛博出租车被查](bie-ju-jiang-xin.md)
+- [iPhoneUltra或14999元起](qiao-duo-tian-gong.md)
+- [莫迪：印度将办令世界惊叹的奥运会](gui-fu-shen-gong.md)
 - [德甲第四轮，樊振东第一盘3-0胜鲁伊斯，第四盘3-0 胜杜达锁定胜局，如何评价本场比赛？](jin-shang-tian-hua.md)
 
 ## 站内推荐
 
-- [联合国警告称升温1.5℃已无法避免，能做的只有压低超额升温，这是否意味着变暖要失控了？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [我把汉堡搬到了星星上](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [手机发明之前，人们就是这样手书的……完整版！【bilibilionly同人扶持计划】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [【IGN】Switch 2版《艾尔登法环 褪色者版》 44分钟实机演示](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [“温宜公主”纪姿含北电落榜](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [WSBK 法国站第一回合，德比斯驾驶「张雪机车」，发生撞车后仍跑到第三，如何评价这场比赛？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [为啥白宫开始流行吃酸菜了？万斯自称吃酸菜减重成功，酸菜真能减肥吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [全网首通逐星者行动](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [孤独：为什么越需要别人，我们反而越远离别人？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [“葫芦娃爷爷”：明年大概率不会种了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [警方通报贵中医二附院刑事案件](http://www.daogukj.com/7203067)
-- [樊振东3-0横扫杜达复仇](http://www.daogukj.com/gowgjlqg/)
-- [现在的电脑明明越来越高级，用起来为什么没感觉快很多？](http://www.daogukj.com/7329084)
-- [保洁上门打扫每次偷2万到3万现金](http://www.daogukj.com/tafakdgo/)
-- [周杰伦昆凌被郑钦文燃到了](http://www.play.hengshemaoyi.cn/kongbu/6822731.htm)
-- [“温宜公主”纪姿含北电落榜](http://www.movie.hkepx.cn/movie/9763774.htm)
-- [你的学校发生过最扯的事是什么?](http://www.movie.hkepx.cn/movie/5499528.htm)
-- [心动的信号](http://www.movie.hkepx.cn/xiju/2091376.htm)
-- [郑钦文决胜盘惊天大逆转](http://www.movie.hkepx.cn/movie/3384485.htm)
-- [叶润泽淘汰](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
-- [男子逃亡50年终落网](http://www.daogukj.com/0541072)
-- [取消英语主科利弊](http://www.daogukj.com/jyvgfrcg/)
-- [【剧情】良医 第七季（2024）01【弗莱迪·海默 / 佩奇·斯巴勒】](http://www.daogukj.com/3891590)
-- [曝iPhone18Pro灵动岛大瘦身](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
-- [女子回应5岁女儿病历上被医生标注刁蛮](http://www.movie.hkepx.cn/xiju/8805715.htm)
-- [反垄断拿省卫健委“开刀”](http://www.daogukj.com/5398424)
-- [惠灵顿牛排是什么？为什么这么火？](http://www.movie.hkepx.cn/xiju/6277332.htm)
-- [取消英语主科 教育公平争议](http://www.movie.hkepx.cn/xiju/7873556.htm)
-- [葫芦娃爷爷把葫芦剪掉了目击者发声](http://www.play.hengshemaoyi.cn/xiju/9370456.htm)
-- [葫芦娃爷爷提前剪掉葫芦称需要休息](http://www.daogukj.com/nzepuewx/)
-- [“请与我一同，战胜时间的伟力。”](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
-- [阿里巴巴前高管在美失踪后确认身亡](http://www.movie.hkepx.cn/movie/0752879.htm)
-- [你是说我钓鱼还得用枪吗？](http://www.movie.hkepx.cn/xiju/3642771.htm)
-- [电视剧《大明王朝1566》里严党为什么要推行改稻为桑？](http://www.daogukj.com/5617601)
-- [不同北京人的住处差异](http://www.daogukj.com/8998145)
-- [葫芦娃爷爷家门口“蛇精”真来了](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
-- [我把汉堡搬到了星星上](http://www.movie.hkepx.cn/xiju/8984384.htm)
-- [美军袭击三艘伊朗油轮](http://www.movie.hkepx.cn/xiju/1180114.htm)
-- [【独家】《凡人修仙传之慕兰之战》第14集【总第190集】](http://www.movie.hkepx.cn/movie/0847312.htm)
-- [小沈阳现场拉票演小品引争议](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
-- [郑钦文说总不能让她打个6-0](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
-- [慢下来，就会死！](http://www.movie.hkepx.cn/xiju/6763243.htm)
-- [2026 搞笑诺贝尔奖来了，「蟑螂奶」获化学奖，其能量据称是牛奶 4 倍，还有哪些看点？](http://www.movie.hkepx.cn/xiju/9186695.htm)
-- [阿里巴巴前高管在美死亡 友人发声](http://www.daogukj.com/pxvooxke/)
-- [医生被患者刺伤 警方通报](http://www.movie.hkepx.cn/xiju/1116357.htm)
-- [中国会出现公认的第五个一线城市吗?](http://www.movie.hkepx.cn/xiju/0923150.htm)
-- [【IGN】Switch 2版《艾尔登法环 褪色者版》 44分钟实机演示](http://www.daogukj.com/wwpryopq/)
-- [美博主镜头下在芭提雅疯狂的美海军](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
-- [如何看待因被要求补缴社保，老板在店门口滚屏抱怨「选择员工需谨慎」？](http://www.movie.hkepx.cn/xiju/6581777.htm)
-- [郑钦文电影级镜头](http://www.daogukj.com/ydetypas/)
-- [樊振东德甲输掉的全都赢回来了](http://www.movie.hkepx.cn/xiju/1440565.htm)
-- [《死神千年血战篇》第四季祸进谭开播，如何评价第七集？](http://www.movie.hkepx.cn/movie/0748348.htm)
-- [耿同学锤刘光慧、曲静的《Nature》论文涉数据造假，哪些信息值得关注？](http://www.daogukj.com/7529047)
-- [智能手表还能不能放心戴](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
-- [郑钦文打得对手疯狂砸头](http://www.movie.hkepx.cn/movie/9462286.htm)
-- [车企“围攻”动力电池](http://www.movie.hkepx.cn/xiju/6577988.htm)
-- [披荆斩棘三公分组](http://www.movie.hkepx.cn/movie/1711969.htm)
-- [网传“青铜峡大坝开始泄洪”系谣言](http://www.movie.hkepx.cn/movie/1556531.htm)
-- [青春华章](http://www.play.hengshemaoyi.cn/kongbu/3467795.htm)
-- [美网官推称郑钦文是奇迹本迹](http://www.movie.hkepx.cn/movie/2027222.htm)
+- [于东来对负债100w的建议](http://www.daogukj.com/7203067)
+- [葫芦娃爷爷称明年大概率不再种葫芦](http://www.daogukj.com/gowgjlqg/)
+- [葫芦娃爷爷提前剪掉葫芦称需要休息](http://www.daogukj.com/7329084)
+- [《洛克王国：世界》S4赛季异色精灵展示](http://www.daogukj.com/tafakdgo/)
+- [新能源写成新熊源 紫金矿业致歉](http://www.play.hengshemaoyi.cn/kongbu/6822731.htm)
+- [“葫芦娃爷爷”：明年大概率不会种了](http://www.movie.hkepx.cn/movie/9763774.htm)
+- [为什么轩辕剑系列没有仙剑系列火？](http://www.movie.hkepx.cn/movie/5499528.htm)
+- [郑钦文收获280积分和49万美元奖金](http://www.movie.hkepx.cn/xiju/2091376.htm)
+- [伊朗革命卫队称打击了美航母和驱逐舰](http://www.movie.hkepx.cn/movie/3384485.htm)
+- [小县城 瘦身](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
+- [郑钦文说这次大逆转是职业生涯头一次](http://www.daogukj.com/0541072)
+- [绍兴文旅回应葫芦娃爷爷剪掉葫芦](http://www.daogukj.com/jyvgfrcg/)
+- [摇滚歌手何勇病逝，年仅 57 岁，长期精神疾病会怎样影响一个人的健康状况和寿命？](http://www.daogukj.com/3891590)
+- [iPhoneUltra或14999元起](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
+- [车手放弃比赛冒死救人 车队发声](http://www.movie.hkepx.cn/xiju/8805715.htm)
+- [特斯拉赛博出租车被查](http://www.daogukj.com/5398424)
+- [我年入80万，老婆全职带娃，该不该让她在钱上完全听我的？](http://www.movie.hkepx.cn/xiju/6277332.htm)
+- [常用消炎眼药水竟无菌不达标](http://www.movie.hkepx.cn/xiju/7873556.htm)
+- [陈妍希想要二胎](http://www.play.hengshemaoyi.cn/xiju/9370456.htm)
+- [退伍归来的舅舅接外甥 同学满眼羡慕](http://www.daogukj.com/nzepuewx/)
+- [全网首发！三角洲全新NPC佐拉线完结！啥也不干吹口琴的来！这个口琴真的神了！](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
+- [《鸣潮》共鸣者战斗演示 | 景燃](http://www.movie.hkepx.cn/movie/0752879.htm)
+- [现在的电脑明明越来越高级，用起来为什么没感觉快很多？](http://www.movie.hkepx.cn/xiju/3642771.htm)
+- [史玉柱从上市公司体系累计套现超80亿](http://www.daogukj.com/5617601)
+- [你觉得哪一项计算机技术被大众严重低估了？](http://www.daogukj.com/8998145)
+- [银行集中“清淤”](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
+- [为啥白宫开始流行吃酸菜了？万斯自称吃酸菜减重成功，酸菜真能减肥吗？](http://www.movie.hkepx.cn/xiju/8984384.htm)
+- [美式咖啡改名加式咖啡表达不满](http://www.movie.hkepx.cn/xiju/1180114.htm)
+- [《下一个是谁》第七季（4）](http://www.movie.hkepx.cn/movie/0847312.htm)
+- [5架退役民航客机打包拍卖 500万起拍](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
+- [小学通知家长来校做卫生？教育局回应](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
+- [为什么烤口蘑的汁水千万不要喝？](http://www.movie.hkepx.cn/xiju/6763243.htm)
+- [有律师说剧本杀可能暗含色情服务，是这样吗？会有一些未成年人沉迷其中，存在什么危害？家长维权难在哪？](http://www.movie.hkepx.cn/xiju/9186695.htm)
+- [提前剪掉的7个葫芦讽刺了谁](http://www.daogukj.com/pxvooxke/)
+- [山东一大桥步道桥板脱落致行人坠亡](http://www.movie.hkepx.cn/xiju/1116357.htm)
+- [郑钦文 2-1 凯斯，晋级美网 16 强，决胜局 0-5 落后上演超级大逆转，如何评价她的表现？](http://www.movie.hkepx.cn/xiju/0923150.htm)
+- [孤独：为什么越需要别人，我们反而越远离别人？](http://www.daogukj.com/wwpryopq/)
+- [葫芦娃爷爷 流量时代的恐怖故事](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
+- [郑钦文的强大是落后时仍全力奔跑](http://www.movie.hkepx.cn/xiju/6581777.htm)
+- [当“葫芦娃爷爷”被迫剪掉葫芦](http://www.daogukj.com/ydetypas/)
+- [ETC该不该取消？人民日报最新发声](http://www.movie.hkepx.cn/xiju/1440565.htm)
+- [中小学一定要买校服吗？教育部回应](http://www.movie.hkepx.cn/movie/0748348.htm)
+- [盖尔·加朵确认 DC 未计划她继续出演神奇女侠，这对于 DC 新电影宇宙意味着什么？](http://www.daogukj.com/7529047)
+- [章泽天采访 没有一个菜入味](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
+- [我把汉堡搬到了星星上](http://www.movie.hkepx.cn/movie/9462286.htm)
+- [全网首发！爆肝3天！S11新NPC佐拉、唐吉任务线全流程攻略！完成后送口琴和火箭！可演奏可互动可入局！单人几乎无法完成！](http://www.movie.hkepx.cn/xiju/6577988.htm)
+- [沙溢胡可送两儿子去英国读书](http://www.movie.hkepx.cn/movie/1711969.htm)
+- [【剧情】良医 第七季（2024）01【弗莱迪·海默 / 佩奇·斯巴勒】](http://www.movie.hkepx.cn/movie/1556531.htm)
+- [地质灾害发生有哪些前兆](http://www.play.hengshemaoyi.cn/kongbu/3467795.htm)
+- [晋江作者竹已拒绝非官方cp](http://www.movie.hkepx.cn/movie/2027222.htm)
 
 </details>
 
 ## 原始来源
 
-- [评分7.1！当太阳升起就把昨天忘记！假面骑士ZZZ完结吐槽！](https://b23.tv/BV1Yubj6VEpD)
+- [全B站最垃圾的一期视频](https://b23.tv/BV1sxtk6YEGp)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 771aa47272713917308b -->
+<!-- content-fingerprint: 429bc2ccabbf708c0392 -->
