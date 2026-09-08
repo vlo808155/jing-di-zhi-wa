@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 华为鸿蒙 7 操作系统采用超空间存储技术，用户升级后最多可节省 109 GB存储空间，如何看待该性能？
+# 《解 救 姜 哥》
 
-> 来源：知乎热榜 · 排名：第 19 位 · 热度：97 万热度 · 分类：问答 · 更新：2026-09-08T12:43:43+08:00
+> 来源：哔哩哔哩热门 · 排名：第 19 位 · 热度：591876 · 分类：电子竞技 · 更新：2026-09-08T17:07:18+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“华为鸿蒙 7 操作系统采用超空间存储技术，用户升级后最多可节省 109 GB存储空间，如何看待该性能？”位列第 19 位，公开热度指标为 97 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“《解 救 姜 哥》”位列第 19 位，公开热度指标为 591876，榜单分类为“电子竞技”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：华为今日正式发布鸿蒙7（HarmonyOS 7）操作系统。HarmonyOS 7首次将学习了20亿数据量的性能大模型融入方舟引擎。 方舟存储引擎采用超空间存储技术，用户从HarmonyOS 6升级HarmonyOS 7后，256GB手机最多可节省22GB，512GB手机最多可节省51GB，1TB手机最多可节省109GB存储空间。https://mp.weixin.qq.com/s/YeIu5gfGgwG0VYMl2DmvMA
+来源公开摘要显示：OK了 XDM趁明天比赛开打前发一期
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `电子竞技`
 
 ## 相关热点
 
-- [百万奖金花落谁家？B站AI创造公开赛第一季获奖结果公布！](gui-fu-shen-gong.md)
-- [赵一鸣致歉 承诺称错赔十倍](jin-shang-tian-hua.md)
-- [指控4岁男童摸屁股是纠缠式维权](hua-long-dian-jing.md)
-- [英国政府要求民众提前存粮存水](miao-bi-sheng-hua.md)
+- [床底响没当回事 开门见床上盘着大蛇](gui-fu-shen-gong.md)
+- [韦世豪连续更新社媒](jin-shang-tian-hua.md)
+- [46岁高管辞职三战高考圆梦推拿专业](hua-long-dian-jing.md)
+- [贵州福泉三名未成年女孩接连失联，目前均已找到，有哪些信息值得关注？](miao-bi-sheng-hua.md)
 
 ## 站内推荐
 
 - [铜价“爆了”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [霸王茶姬 茶叶蛋](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [檀健次为几秒戏份生吞七十包山楂粉](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [俄称在哈尔科夫州包围约1700名乌军](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [如何看待华为首款阔直板Pura X View上市定价5999起，这个价格是否有竞争力？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [为什么子女买房会把父母安排在次卧](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [我国将扩大灵活就业人员医保参保规模](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [英国正计划一场大规模备战演习](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [暴 雨 告 发](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [钟美美 何以为父](http://www.movie.hkepx.cn/movie/3926125.htm)
-- [东莞理工学院专插本虚假招生？假的](http://www.daogukj.com/jbrqqhbh/)
-- [祖先如果真的早入轮回了，那祈祷祖宗保佑是不是也没什么用？](http://www.daogukj.com/6283106)
+- [申军良称“梅姨”真实年龄为65岁](http://www.movie.hkepx.cn/movie/3926125.htm)
+- [小米澎程 N70 系列增程 SUV 发布，售价 20.99 万元起，怎样看待这一定价？竞争力有多强？](http://www.daogukj.com/jbrqqhbh/)
+- [人民日报谈“葫芦娃爷爷”摘下葫芦](http://www.daogukj.com/6283106)
 - [《阴阳师》石长姬CG丨拾光永恒（CV：小清水亚美）](http://www.play.hengshemaoyi.cn/xiju/3501535.htm)
-- [寒门子弟的逆袭路径，琅琊王氏的历史之巅【两晋悲歌】](http://www.daogukj.com/tfcvjhpk/)
-- [第2期（上）：“神秘技师”惊现按摩店？！【时差五小时3】](http://www.daogukj.com/4841868)
-- [人民日报谈“葫芦娃爷爷”摘下葫芦](http://www.play.hengshemaoyi.cn/kongbu/6429820.htm)
-- [王戟说与其内耗不如放手去干](http://www.daogukj.com/jehuxdgs/)
-- [女子称被男童摸臀调解未果准备诉讼](http://www.movie.hkepx.cn/xiju/1384580.htm)
-- [张家齐录完我家那闺女就搬家了](http://www.daogukj.com/qyeqjnqv/)
-- [「中国女主播连续跳舞4到6小时，几乎不停歇」的视频在外网引发热议。网友辣评：这看起来简直像《黑镜》里的情节。](http://www.movie.hkepx.cn/movie/7212048.htm)
-- [大牛股昨天大涨17% 今天跌超15%](http://www.movie.hkepx.cn/xiju/5780029.htm)
-- [俄罗斯人穿短袖短裤逛黑河早市](http://www.daogukj.com/efezhgld/)
-- [立志成为恶兽第三集【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/8328027.htm)
-- [“躲进厕所的丈夫沉迷AI短剧”](http://www.movie.hkepx.cn/xiju/5360773.htm)
-- [一男童被大妈扶上展台，触摸东汉石兽真品，现场标注「请勿触摸」，触摸石兽有何影响？此类现象为何屡禁不止？](http://www.movie.hkepx.cn/movie/9566975.htm)
-- [郑钦文获470积分和78万美元奖金](http://www.daogukj.com/8649041)
-- [消息称奥迪四环与AUDI品牌重划](http://www.daogukj.com/zvuykujr/)
-- [两部门宣布进一步规范汽车企业供应商账期管理，包括账期起算时间、支付方式等，能遏制行业非理性竞争吗？](http://www.daogukj.com/smataala/)
-- [出界就死（2）](http://www.daogukj.com/mzqlfhhq/)
-- [手铐失灵无法解开 110求助119](http://www.play.hengshemaoyi.cn/kongbu/8184754.htm)
-- [百万奖金花落谁家？B站AI创造公开赛第一季获奖结果公布！](http://www.movie.hkepx.cn/movie/8042143.htm)
-- [假如你生活在十万人的宿舍](http://www.play.hengshemaoyi.cn/xiju/7145463.htm)
-- [考研圈大地震！顶尖名校陆续停招学硕](http://www.play.hengshemaoyi.cn/kongbu/4548535.htm)
-- [深圳富豪夫妻联手送小三入狱](http://www.daogukj.com/0313251)
-- [美网赞叹郑钦文奇迹翻盘：惹不起](http://www.play.hengshemaoyi.cn/kongbu/0820222.htm)
-- [又有9家私募扮演失联](http://www.daogukj.com/btolggbq/)
-- [赵一鸣致歉 承诺称错赔十倍](http://www.play.hengshemaoyi.cn/xiju/2703241.htm)
-- [如何看待「高盛预计人民币未来将持续有序升值，每年升幅约3%至5%，五年后升至5.5元人民币兑1美元」？](http://www.play.hengshemaoyi.cn/xiju/1475778.htm)
-- [网传新疆一加气站重度漏气系谣言](http://www.play.hengshemaoyi.cn/xiju/4475779.htm)
-- [如何看待「余承东建议苹果用户买华为备用机，备用几天就可能成为主力机」？你会购买吗？](http://www.play.hengshemaoyi.cn/xiju/3969235.htm)
-- [iPhone Ultra 没有消除屏幕折痕，国行或 14999 元起，「折痕」难题究竟卡在哪里？](http://www.play.hengshemaoyi.cn/kongbu/1797022.htm)
-- [曝郭麒麟恋情](http://www.movie.hkepx.cn/xiju/9886322.htm)
-- [22岁男子看望生病奶奶过桥时坠亡](http://www.play.hengshemaoyi.cn/xiju/1914744.htm)
-- [郑钦文实现千万分之一概率事件](http://www.movie.hkepx.cn/movie/2301491.htm)
-- [杨洋 反正你也播不了](http://www.play.hengshemaoyi.cn/xiju/2353249.htm)
-- [如何看待法老战队解散dota2分部？](http://www.daogukj.com/fownzino/)
-- [麒麟9050Pro现真身](http://www.play.hengshemaoyi.cn/xiju/3652466.htm)
-- [如何看待华为首款阔直板Pura X View上市定价5999起，这个价格是否有竞争力？](http://www.daogukj.com/7447842)
+- [开学舍友把宿舍改造成了海洋馆](http://www.daogukj.com/tfcvjhpk/)
+- [月背上的中国国旗是石头拉丝做的](http://www.daogukj.com/4841868)
+- [3天停火到期 俄军大规模打击乌克兰](http://www.play.hengshemaoyi.cn/kongbu/6429820.htm)
+- [史上最牛烧砖工](http://www.daogukj.com/jehuxdgs/)
+- [美网赞叹郑钦文奇迹翻盘：惹不起](http://www.movie.hkepx.cn/xiju/1384580.htm)
+- [旅行青蛙即将停运](http://www.daogukj.com/qyeqjnqv/)
+- [微信视频号崩了 官方回应](http://www.movie.hkepx.cn/movie/7212048.htm)
+- [对话汉斯·季默！如何用一段旋律创造一个电影宇宙？](http://www.movie.hkepx.cn/xiju/5780029.htm)
+- [如何看待高盛预计人民币未来将持续有序升值，每年升幅约3%至5%，五年后升至5.5元人民币兑1美元？](http://www.daogukj.com/efezhgld/)
+- [假如你生活在十万人的宿舍](http://www.play.hengshemaoyi.cn/kongbu/8328027.htm)
+- [A股](http://www.movie.hkepx.cn/xiju/5360773.htm)
+- [《真千金她真没有背景通天》1-31](http://www.movie.hkepx.cn/movie/9566975.htm)
+- [“梅姨”曾因婚姻问题坐过牢](http://www.daogukj.com/8649041)
+- [IU来上海了](http://www.daogukj.com/zvuykujr/)
+- [「中国女主播连续跳舞4到6小时，几乎不停歇」的视频在外网引发热议。网友辣评：这看起来简直像《黑镜》里的情节。](http://www.daogukj.com/smataala/)
+- [荣耀 系统级Agent](http://www.daogukj.com/mzqlfhhq/)
+- [小伙看奶奶路上坠亡9天后奶奶去世](http://www.play.hengshemaoyi.cn/kongbu/8184754.htm)
+- [床底响没当回事 开门见床上盘着大蛇](http://www.movie.hkepx.cn/movie/8042143.htm)
+- [新学期刚到学校，发现学校倒闭了](http://www.play.hengshemaoyi.cn/xiju/7145463.htm)
+- [太子奶创始人李途纯逝世](http://www.play.hengshemaoyi.cn/kongbu/4548535.htm)
+- [双休购APP](http://www.daogukj.com/0313251)
+- [特朗普发布新版「美国总统从夯到拉排名」，自己夯爆了，拜登、奥巴马在「失败区」，你怎么看特朗普的排名？](http://www.play.hengshemaoyi.cn/kongbu/0820222.htm)
+- [媒体称塑料外卖盒等都含有微塑料，会穿过血脑屏障进入大脑，什么是微塑料？会产生什么影响？又该如何应对？](http://www.daogukj.com/btolggbq/)
+- [韦世豪连续更新社媒](http://www.play.hengshemaoyi.cn/xiju/2703241.htm)
+- [《最会做菜の一集》](http://www.play.hengshemaoyi.cn/xiju/1475778.htm)
+- [摸臀事件女子称没挂成号在医院痛哭](http://www.play.hengshemaoyi.cn/xiju/4475779.htm)
+- [第2期（上）：“神秘技师”惊现按摩店？！【时差五小时3】](http://www.play.hengshemaoyi.cn/xiju/3969235.htm)
+- [小米 18 Fold 评测：折痕非常惊喜，小米史上最佳](http://www.play.hengshemaoyi.cn/kongbu/1797022.htm)
+- [女子深夜转呼啦圈减肥致黄体破裂](http://www.movie.hkepx.cn/xiju/9886322.htm)
+- [吃播圈催吐导泄都造成血钾暴跌](http://www.play.hengshemaoyi.cn/xiju/1914744.htm)
+- [德国国债遭遇猛烈抛售](http://www.movie.hkepx.cn/movie/2301491.htm)
+- [栾念在西藏撒谎了](http://www.play.hengshemaoyi.cn/xiju/2353249.htm)
+- [为什么国产偶像剧都喜欢把男女主的工作背景设定在广告、新闻、公关等传媒行业？](http://www.daogukj.com/fownzino/)
+- [印度裔遭种族歧视震动新加坡政坛](http://www.play.hengshemaoyi.cn/xiju/3652466.htm)
+- [暴 雨 告 发](http://www.daogukj.com/7447842)
 - [铜价“爆了”](http://www.daogukj.com/kzpjmnze/)
-- [指控4岁男童摸屁股？纠缠式维权该停了](http://www.play.hengshemaoyi.cn/kongbu/4160936.htm)
-- [现房销售开始站上“C位”](http://www.daogukj.com/5391271)
-- [小米澎程 N70 系列增程 SUV 发布，售价 20.99 万元起，怎样看待这一定价？竞争力有多强？](http://www.play.hengshemaoyi.cn/xiju/1037193.htm)
-- [网红宣传捐款百万实际只捐1元](http://www.daogukj.com/4166842)
-- [英国女子跳伞被同伴踢头昏迷奇迹生还](http://www.movie.hkepx.cn/xiju/6638941.htm)
-- [5 岁女孩病历被标注「刁蛮」，卫健局称涉事医生被立案调查，病历能写主观评价吗？反映出医疗管理哪些问题？](http://www.play.hengshemaoyi.cn/kongbu/4151588.htm)
-- [4岁男童摸臀算性骚扰吗](http://www.daogukj.com/jguwcjlw/)
-- [数贸会一大批新技术新产品即将解锁](http://www.movie.hkepx.cn/xiju/6322184.htm)
-- [美网8强](http://www.play.hengshemaoyi.cn/xiju/2530472.htm)
-- [雷军“哭诉”：内存实在太贵](http://www.daogukj.com/5202971)
+- [地表42度，美国飞行员开战斗机冲上万米高空，竟是为了做冰淇淋？【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/4160936.htm)
+- [兼职挑战！！挑战AI让我尝试的3个职业！！](http://www.daogukj.com/5391271)
+- [毛阿敏为什么要在镜头面前把许晴逼到崩溃？](http://www.play.hengshemaoyi.cn/xiju/1037193.htm)
+- [张婧仪宋威龙 行程](http://www.daogukj.com/4166842)
+- [如何看待冯小刚电影《抓特务》上线流媒体后出现口碑逆袭？可能有哪些原因？](http://www.movie.hkepx.cn/xiju/6638941.htm)
+- [同事工资是我两倍，活儿却比我少一半，我该找领导谈吗？](http://www.play.hengshemaoyi.cn/kongbu/4151588.htm)
+- [东莞理工学院专插本虚假招生？假的](http://www.daogukj.com/jguwcjlw/)
+- [6G手机要来了](http://www.movie.hkepx.cn/xiju/6322184.htm)
+- [梅姨年龄籍贯曝光](http://www.play.hengshemaoyi.cn/xiju/2530472.htm)
+- [华为鸿蒙 7 操作系统采用超空间存储技术，用户升级后最多可节省 109 GB存储空间，如何看待该性能？](http://www.daogukj.com/5202971)
 
 </details>
 
 ## 原始来源
 
-- [华为鸿蒙 7 操作系统采用超空间存储技术，用户升级后最多可节省 109 GB存储空间，如何看待该性能？](https://www.zhihu.com/question/2080312037121471070)
+- [《解 救 姜 哥》](https://b23.tv/BV1ChbT6KE62)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 89c7632cdcf046de7c15 -->
+<!-- content-fingerprint: c2c655cede9968dc77ba -->
