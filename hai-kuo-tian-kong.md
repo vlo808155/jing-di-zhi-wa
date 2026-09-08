@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 昔日“男鞋第一股”为何被抛弃
+# 被父母花高价送进矫正机构，月交费高达1.5万元，这类针对「问题成年人」的特训学校，究竟是否有存在价值？
 
-> 来源：百度热搜 · 排名：第 17 位 · 热度：6192726 · 更新：2026-09-08T06:02:37+08:00
+> 来源：知乎热榜 · 排名：第 18 位 · 热度：84 万热度 · 分类：问答 · 更新：2026-09-08T08:14:58+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“昔日“男鞋第一股”为何被抛弃”位列第 17 位，公开热度指标为 6192726。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“被父母花高价送进矫正机构，月交费高达1.5万元，这类针对「问题成年人」的特训学校，究竟是否有存在价值？”位列第 18 位，公开热度指标为 84 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：今年7月，奥康国际跨界收购芯片计划终止。此前，奥康连续4年亏损9亿，2026年上半年靠关店降费实现账面微盈，但主业失去造血能力。其衰败主因是死守传统皮鞋赛道，未跟上消费休闲化变革，盲目跨界自救失败。
+来源公开摘要显示：“没有人能逃出这里。”“教官”曾这样宣告。事实上，比高墙更难翻越的，是至亲的无知、背叛与伤害。这是一群被父母花钱送去“矫正机构”的成年人的故事，在那里，他们反抗、装作顺从、试图逃离…并无一例外，在走出学校的那一刻，都留下了难以磨灭的创伤。https://www.toutiao.com/item/7680523667444417074/
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [郑钦文硬地首胜斯瓦泰克](gao-zhan-yuan-zhu.md)
-- [刚退休就意外离世交的社保怎么办](xiong-you-cheng-zhu.md)
-- [如何评价武侠剧《金色》大结局？](yun-chou-wei-wo.md)
-- [北京门钉肉饼挑战，十分钟吃十个免单，你能吃多少？30个走起！](shen-mou-yuan-lv.md)
+- [沙特良子大胃袋年入千万，从底层苦力到吃播顶流](gao-zhan-yuan-zhu.md)
+- [偶像剧宣发 软色情](xiong-you-cheng-zhu.md)
+- [美国家庭为什么没有防盗网](yun-chou-wei-wo.md)
+- [杨舒予干拔压哨三分命中](shen-mou-yuan-lv.md)
 
 ## 站内推荐
 
 - [时代楷模王戟最想对年轻人说](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [美国男子靠猪肾续命9个月等来了人肾](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [成年人战斗力明明胜于狼，为什么以前的人那么怕狼？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [废品回收被中国人做成万亿级产业](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [高息存款密集到期](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [美网回应郑钦文0比5逆转](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [我飘了！居然给全校师生做炸鸡，孩子们吃完......](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [刘德华幽默带货：三折叠不好用找余总](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [福建某小区禁止新能源车驶入地下车库，要求已停车辆 10 日内移出，这合理吗？如何从法律角度解读？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [美网女单第四轮，郑钦文将迎战斯瓦泰克，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/1578357.htm)
-- [野外遇到这种水，我到底能不能喝！ #野外 #水 #涨知识 #科普](http://www.movie.hkepx.cn/xiju/7876471.htm)
-- [郑钦文三进美网8强](http://www.movie.hkepx.cn/xiju/5115238.htm)
-- [郑钦文2比0斯瓦泰克](http://www.movie.hkepx.cn/movie/0606742.htm)
-- [郑钦文vs斯瓦泰克](http://www.play.hengshemaoyi.cn/xiju/7807975.htm)
-- [真实事件改编，史上最离谱的劫机案！韩国政府这波极限忽悠我给满分《凶降喜讯》](http://www.movie.hkepx.cn/xiju/9954551.htm)
-- [儿子见母亲最后一面一声妈让人心碎](http://www.movie.hkepx.cn/movie/7533960.htm)
-- [北京门钉肉饼挑战，十分钟吃十个免单，你能吃多少？30个走起！](http://www.movie.hkepx.cn/xiju/8246281.htm)
-- [华强买瓜，但死神来了](http://www.play.hengshemaoyi.cn/xiju/4160683.htm)
+- [总裁，在上海20平的“姐”景房别墅您喜欢吗？](http://www.play.hengshemaoyi.cn/kongbu/1578357.htm)
+- [杨洋 反正你也播不了](http://www.movie.hkepx.cn/xiju/7876471.htm)
+- [9 月 7 日至 12 日中国人民解放军陆军派出兵力赴俄罗斯参加实兵演习，有哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/5115238.htm)
+- [斯瓦泰克不敌郑钦文哭了](http://www.movie.hkepx.cn/movie/0606742.htm)
+- [郑钦文将战现役世界第2](http://www.play.hengshemaoyi.cn/xiju/7807975.htm)
+- [伊朗释放强硬信号在美舰上方测试导弹](http://www.movie.hkepx.cn/xiju/9954551.htm)
+- [联合国发布了新版世界地图](http://www.movie.hkepx.cn/movie/7533960.htm)
+- [杨舒予干拔压哨三分命中](http://www.movie.hkepx.cn/xiju/8246281.htm)
+- [曝井柏然刘雯已领证](http://www.play.hengshemaoyi.cn/xiju/4160683.htm)
 - [“学成了 希望你们能够回来”](http://www.movie.hkepx.cn/movie/4035506.htm)
-- [高息存款密集到期](http://www.movie.hkepx.cn/movie/7792290.htm)
-- [大众汽车宣布行业有史以来最大规模重组，裁员10万、车型砍半、关停4厂，背后有哪些深层原因？](http://www.play.hengshemaoyi.cn/kongbu/1158345.htm)
-- [成年人战斗力明明胜于狼，为什么以前的人那么怕狼？](http://www.play.hengshemaoyi.cn/xiju/2216098.htm)
-- [如何评价综艺《喜剧之王单口季3》第十期总决赛？](http://www.daogukj.com/7206749)
-- [有没有一部公认的烂片，你觉得，其实它被严重低估了？](http://www.daogukj.com/3682471)
+- [福建某小区禁止新能源车驶入地下车库，要求已停车辆 10 日内移出，这合理吗？如何从法律角度解读？](http://www.movie.hkepx.cn/movie/7792290.htm)
+- [美网女单第四轮，郑钦文 2-0 斯瓦泰克挺进 8 强，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/1158345.htm)
+- [我飘了！居然给全校师生做炸鸡，孩子们吃完......](http://www.play.hengshemaoyi.cn/xiju/2216098.htm)
+- [中国女篮世界杯小组第2出线](http://www.daogukj.com/7206749)
+- [出界就死（2）](http://www.daogukj.com/3682471)
 - [郑钦文逆转震惊美网](http://www.play.hengshemaoyi.cn/kongbu/5760703.htm)
-- [全网首发！周年庆解密我们搞出来啦！居然是双模式！全服活动！这下知道为什么S11叫群星了，快来投稿！](http://www.play.hengshemaoyi.cn/xiju/5757022.htm)
-- [我国可谓是麻雀大国，问一只麻雀的寿命在两三年，那它们死的时候都死在哪里呢，我怎么从来没见过它们的尸体?](http://www.play.hengshemaoyi.cn/kongbu/7848326.htm)
-- [地表42度，美国飞行员开战斗机冲上万米高空，竟是为了做冰淇淋？【AI全民制作人】](http://www.movie.hkepx.cn/xiju/6958589.htm)
-- [斯瓦泰克不敌郑钦文哭了](http://www.movie.hkepx.cn/movie/7310674.htm)
-- [偶像剧 软色情宣传](http://www.play.hengshemaoyi.cn/kongbu/2440700.htm)
-- [9 月 7 日至 12 日中国人民解放军陆军派出兵力赴俄罗斯参加实兵演习，有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/6463071.htm)
-- [孤岛小夫 第三集](http://www.daogukj.com/uiqoxaho/)
-- [贵中医二附院一医生被藏刀锦旗患者捅伤，致重伤在 ICU 抢救，这反映了当前医患关系的哪些问题？](http://www.movie.hkepx.cn/xiju/9888707.htm)
-- [美国家庭为什么没有防盗网](http://www.movie.hkepx.cn/xiju/8080320.htm)
-- [多款手机集体涨价，有经销商称本以为会迎来抢购潮，结果询价者寥寥无几，哪里出了问题？](http://www.play.hengshemaoyi.cn/xiju/5503009.htm)
-- [赵一鸣致歉](http://www.play.hengshemaoyi.cn/xiju/8114286.htm)
-- [河南一女子外出喝酒致3岁儿子反锁屋内身亡，被判过失致人死亡罪，如何从法律角度解读？类似悲剧能如何避免？](http://www.play.hengshemaoyi.cn/xiju/9867402.htm)
-- [连“一杆秤”都管不住算什么大品牌](http://www.daogukj.com/5414956)
-- [江西遂川万安这些涉灾信息不实](http://www.movie.hkepx.cn/movie/5135374.htm)
-- [LPL2026赛季2026赛季季后赛AL 0:3 BLG，如何评价这场比赛？](http://www.movie.hkepx.cn/movie/5537104.htm)
+- [立志成为恶兽第三集【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/5757022.htm)
+- [宝格丽小公主缺席晚宴](http://www.play.hengshemaoyi.cn/kongbu/7848326.htm)
+- [江西遂川万安这些涉灾信息不实](http://www.movie.hkepx.cn/xiju/6958589.htm)
+- [余承东建议苹果用户买华为备用机](http://www.movie.hkepx.cn/movie/7310674.htm)
+- [有没有一部公认的烂片，你觉得，其实它被严重低估了？](http://www.play.hengshemaoyi.cn/kongbu/2440700.htm)
+- [华为小米同日“上新”](http://www.play.hengshemaoyi.cn/kongbu/6463071.htm)
+- [张家齐恋爱被前男友当炫耀资本](http://www.daogukj.com/uiqoxaho/)
+- [青岛保时捷女销冠目前排名全球第一](http://www.movie.hkepx.cn/xiju/9888707.htm)
+- [郑钦文说逆转不是运气](http://www.movie.hkepx.cn/xiju/8080320.htm)
+- [女子称在餐厅被4岁男童摸臀监控曝光](http://www.play.hengshemaoyi.cn/xiju/5503009.htm)
+- [女篮世界杯中国队大比分击败意大利](http://www.play.hengshemaoyi.cn/xiju/8114286.htm)
+- [《我真没招了》](http://www.play.hengshemaoyi.cn/xiju/9867402.htm)
+- [郑钦文美网挑战莱巴金娜](http://www.daogukj.com/5414956)
+- [男童被指摸臀父母要求女子道歉](http://www.movie.hkepx.cn/movie/5135374.htm)
+- [早春晴朗](http://www.movie.hkepx.cn/movie/5537104.htm)
 - [让青春在科技强国征途中闪闪发光](http://www.daogukj.com/nlpmxiub/)
-- [华为新款折叠屏手机售价19999元起](http://www.daogukj.com/9528136)
-- [福建某小区禁止新能源车驶入地下车库，要求已停车辆 10 日内移出，这合理吗？如何从法律角度解读？](http://www.movie.hkepx.cn/xiju/7046583.htm)
-- [雷军展示“折叠机的坟场”](http://www.movie.hkepx.cn/movie/7006918.htm)
-- [如何评价 9 月 7 日发布的小米澎程 SUV？](http://www.play.hengshemaoyi.cn/kongbu/0001475.htm)
-- [废品回收被中国人做成万亿级产业](http://www.play.hengshemaoyi.cn/xiju/7201519.htm)
-- [婚内强奸案男方姐姐称婚内不算强奸](http://www.movie.hkepx.cn/xiju/0892442.htm)
-- [天灾降临！前方道路被龙卷风全部摧毁！我们该如何应对！！「缆车惊变100天#2」](http://www.daogukj.com/vukboudm/)
-- [南宁铁路通报旅客跳轨身亡](http://www.movie.hkepx.cn/movie/9956763.htm)
-- [“两年前的郑钦文回来了”](http://www.daogukj.com/6468305)
-- [余承东建议苹果用户买华为当备用机](http://www.movie.hkepx.cn/xiju/5050923.htm)
-- [湖南卫视一只“AI猴子”闹出133亿](http://www.play.hengshemaoyi.cn/kongbu/1188761.htm)
-- [如何评价武侠剧《金色》大结局？](http://www.daogukj.com/gueipuzl/)
-- [张雅琪后继有人了](http://www.daogukj.com/0647494)
-- [女子扔刀刚好刺死前夫获刑3年2个月](http://www.play.hengshemaoyi.cn/xiju/5125908.htm)
-- [【终末地1.5】全网最强基建！划时代创新科技！颠覆你对基建深度的认知！](http://www.movie.hkepx.cn/movie/9717231.htm)
-- [郑钦文即时排名逼近前50](http://www.play.hengshemaoyi.cn/kongbu/0333129.htm)
-- [梅艳芳大哥称已申请禁令阻止梅妈火化](http://www.play.hengshemaoyi.cn/xiju/0914168.htm)
-- [失业者假装上班挤满图书馆](http://www.daogukj.com/0263464)
+- [熟悉的中国女篮回来了](http://www.daogukj.com/9528136)
+- [失业者假装上班挤满图书馆](http://www.movie.hkepx.cn/xiju/7046583.htm)
+- [中国女篮20分大胜意大利世界杯出线](http://www.movie.hkepx.cn/movie/7006918.htm)
+- [雷军“哭诉”：内存实在太贵](http://www.play.hengshemaoyi.cn/kongbu/0001475.htm)
+- [刘德华幽默带货：三折叠不好用找余总](http://www.play.hengshemaoyi.cn/xiju/7201519.htm)
+- [特斯拉推出「0 稀土」电机，这对中国稀土产业意味着什么？](http://www.movie.hkepx.cn/xiju/0892442.htm)
+- [高燃回顾郑钦文惊天大逆转](http://www.daogukj.com/vukboudm/)
+- [早期视频，方块小镇大乱斗1](http://www.movie.hkepx.cn/movie/9956763.htm)
+- [地表42度，美国飞行员开战斗机冲上万米高空，竟是为了做冰淇淋？【AI全民制作人】](http://www.daogukj.com/6468305)
+- [祖先如果真的早入轮回了，那祈祷祖宗保佑是不是也没什么用？](http://www.movie.hkepx.cn/xiju/5050923.htm)
+- [和偷外卖的较量一番](http://www.play.hengshemaoyi.cn/kongbu/1188761.htm)
+- [美国家庭为什么没有防盗网](http://www.daogukj.com/gueipuzl/)
+- [英国政府要求民众提前存粮存水](http://www.daogukj.com/0647494)
+- [【自制动画】聊斋志异之《李伯言》](http://www.play.hengshemaoyi.cn/xiju/5125908.htm)
+- [假如你生活在十万人的宿舍](http://www.movie.hkepx.cn/movie/9717231.htm)
+- [赵心童爆冷止步首轮](http://www.play.hengshemaoyi.cn/kongbu/0333129.htm)
+- [纯享版郑钦文逆转奇迹](http://www.play.hengshemaoyi.cn/xiju/0914168.htm)
+- [乌克兰的军统和中统内斗](http://www.daogukj.com/0263464)
 
 </details>
 
 ## 原始来源
 
-- [昔日“男鞋第一股”为何被抛弃](https://www.baidu.com/s?wd=%E6%98%94%E6%97%A5%E2%80%9C%E7%94%B7%E9%9E%8B%E7%AC%AC%E4%B8%80%E8%82%A1%E2%80%9D%E4%B8%BA%E4%BD%95%E8%A2%AB%E6%8A%9B%E5%BC%83&sa=fyb_news&rsv_dl=fyb_news)
+- [被父母花高价送进矫正机构，月交费高达1.5万元，这类针对「问题成年人」的特训学校，究竟是否有存在价值？](https://www.zhihu.com/question/2078419357080863456)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 44ae6f1a1ee6bc4b119b -->
+<!-- content-fingerprint: 7b430057e9d7205c3629 -->
