@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 【2026LPL第三赛段】9月8日 LGD vs IG
+# 香港首任特首董建华逝世
 
-> 来源：哔哩哔哩热门 · 排名：第 19 位 · 热度：2280434 · 分类：电子竞技 · 更新：2026-09-09T13:08:25+08:00
+> 来源：百度热搜 · 排名：第 19 位 · 热度：5983742 · 更新：2026-09-09T17:40:53+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“【2026LPL第三赛段】9月8日 LGD vs IG”位列第 19 位，公开热度指标为 2280434，榜单分类为“电子竞技”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“香港首任特首董建华逝世”位列第 19 位，公开热度指标为 5983742。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：【2026LPL第三赛段】9月8日 LGD vs IG
+百度热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `电子竞技`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [董建华逝世 梁振英沉痛哀悼](gui-fu-shen-gong.md)
-- [我国没规定强制双休不等于单休合法](jin-shang-tian-hua.md)
-- [太子奶创始人李途纯逝世](hua-long-dian-jing.md)
-- [郑钦文连续两场上演「让五追七」，这种级别的逆转有多罕见？关键转折点在哪？](miao-bi-sheng-hua.md)
+- [广东一老人提着幼童扔车筐打骂](gui-fu-shen-gong.md)
+- [中方驳斥炒作中国“抽梯子”言论](jin-shang-tian-hua.md)
+- [都说 GPT-6-Astra 强，有没有实际点的应用案例？](hua-long-dian-jing.md)
+- [【国产YTP】会影响大脑发育的视频！](miao-bi-sheng-hua.md)
 
 ## 站内推荐
 
-- [燃油车真卖不动了吗](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [脱口秀好像真的没人看了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [有了低保就一定要活成穷人样子么](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [为什么近代西方推理小说在设计军人形象时总喜欢把军衔设定为上校?](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [RTX 5060首发：人人“骂” 现在：大学生⚡️概念神⚡️](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [“梅姨”被抓时带着一个男孩生活](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [加拿大总理发表全国动员应战讲话](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [早春晴朗大结局](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [新华社讣告：董建华逝世](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [苹果发布会五大亮点](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [刘雯全球收入第三的超模](http://www.movie.hkepx.cn/movie/3926125.htm)
-- [「甲醛风波」后康保白菜收购价跌至三分之一，全县紧急自救，网格员监督采收、菜农生吃白菜，能挽回信任吗？](http://www.daogukj.com/jbrqqhbh/)
-- [GPT image 2.5发布，如何评价这一模型？](http://www.daogukj.com/6283106)
-- [如何看待高考数学132分的学生在西电数学开学考只考12分，33分竟位列前6%？大学入学考是在考察什么？](http://www.play.hengshemaoyi.cn/xiju/3501535.htm)
-- [挑战0元城市生存（1.2）](http://www.daogukj.com/tfcvjhpk/)
-- [OpenAI官宣攻克千禧年七大难题的NS方程问题](http://www.daogukj.com/4841868)
-- [女子一年前点的奶茶出现在家门口](http://www.play.hengshemaoyi.cn/kongbu/6429820.htm)
+- [微信 私密朋友圈](http://www.movie.hkepx.cn/movie/3926125.htm)
+- [63岁姜文当外公了](http://www.daogukj.com/jbrqqhbh/)
+- [江西遂川泥石流已致12人遇难](http://www.daogukj.com/6283106)
+- [有没有什么已经是灭绝的动物但是古人见过甚至习以为常？](http://www.play.hengshemaoyi.cn/xiju/3501535.htm)
+- [给老外算卦｜科罗拉多](http://www.daogukj.com/tfcvjhpk/)
+- [花200000买个金丝楠树瘤，放家里藏了10年，锯开一看震惊全场](http://www.daogukj.com/4841868)
+- [英国与以色列针锋相对释放什么信号](http://www.play.hengshemaoyi.cn/kongbu/6429820.htm)
 - [服贸会今日开幕](http://www.daogukj.com/jehuxdgs/)
-- [一家三口吃自助火锅只点一份大闹餐厅](http://www.movie.hkepx.cn/xiju/1384580.htm)
-- [栾念求婚成功](http://www.daogukj.com/qyeqjnqv/)
-- [一家三口吃单人锅只点一份大闹餐厅](http://www.movie.hkepx.cn/movie/7212048.htm)
-- [董建华父亲的一句话让他记忆深刻](http://www.movie.hkepx.cn/xiju/5780029.htm)
-- [印度女运动员因外貌遭网暴](http://www.daogukj.com/efezhgld/)
-- [爆肝六个月！40万字详解对越自卫反击战秘闻，我们对越南都做了什么？](http://www.play.hengshemaoyi.cn/kongbu/8328027.htm)
-- [女子支付宝账户被哈啰盗刷6551元](http://www.movie.hkepx.cn/xiju/5360773.htm)
-- [商业鬼才](http://www.movie.hkepx.cn/movie/9566975.htm)
-- [回顾董建华两次宣誓就任](http://www.daogukj.com/8649041)
-- [郑钦文：我的巅峰期还在后面](http://www.daogukj.com/zvuykujr/)
-- [第一集](http://www.daogukj.com/smataala/)
-- [苹果现在才做折叠屏晚吗](http://www.daogukj.com/mzqlfhhq/)
-- [西电学生回应数学开学考](http://www.play.hengshemaoyi.cn/kongbu/8184754.htm)
-- [董建华逝世 梁振英沉痛哀悼](http://www.movie.hkepx.cn/movie/8042143.htm)
-- [【招笑版】新植物8:嘴巴很大花](http://www.play.hengshemaoyi.cn/xiju/7145463.htm)
-- [苹果折叠屏 iPhone Duo](http://www.play.hengshemaoyi.cn/kongbu/4548535.htm)
-- [“梅姨”落网时住在广州10平出租屋](http://www.daogukj.com/0313251)
-- [怎么看 DeepSeek Flash 系列9月10日将再调整定价，除输出外回归8月17日前价格？](http://www.play.hengshemaoyi.cn/kongbu/0820222.htm)
-- [董建华曾称“一国两制”不容失败](http://www.daogukj.com/btolggbq/)
-- [我国没规定强制双休不等于单休合法](http://www.play.hengshemaoyi.cn/xiju/2703241.htm)
-- [11 月 1 日起企业向个人付款要代扣增值税了，自由职业者和企业主分别需要注意什么？](http://www.play.hengshemaoyi.cn/xiju/1475778.htm)
-- [被台湾省人点赞10万的简中文豪](http://www.play.hengshemaoyi.cn/xiju/4475779.htm)
-- [孙悟空大闹天宫时，如来佛祖为什么那么听话，玉帝一"传旨"他就来？](http://www.play.hengshemaoyi.cn/xiju/3969235.htm)
-- [【真实锐评】IG战胜LGD获得冒泡赛！闹麻了，能赢BLG吗 能赢AL吗 世界赛能赢LCK拿冠军吗！](http://www.play.hengshemaoyi.cn/kongbu/1797022.htm)
-- [“泡水鞋”叫卖刷屏 真相如何？](http://www.movie.hkepx.cn/xiju/9886322.htm)
-- [复方甘草片 低钾血](http://www.play.hengshemaoyi.cn/xiju/1914744.htm)
-- [新华社讣告：董建华逝世](http://www.movie.hkepx.cn/movie/2301491.htm)
-- [航天员在太空烤上了小蛋糕](http://www.play.hengshemaoyi.cn/xiju/2353249.htm)
-- [新三国up锐评楚汉传奇17：丞相，我太想进步了！](http://www.daogukj.com/fownzino/)
-- [黑河技师学院迎来大批俄罗斯留学生](http://www.play.hengshemaoyi.cn/xiju/3652466.htm)
-- [RTX 5060首发：人人“骂” 现在：大学生⚡️概念神⚡️](http://www.daogukj.com/7447842)
-- [燃油车真卖不动了吗](http://www.daogukj.com/kzpjmnze/)
-- [女孩被邻居夫妻分尸 案件细节揭露](http://www.play.hengshemaoyi.cn/kongbu/4160936.htm)
-- [这段话杀死了内耗型人格](http://www.daogukj.com/5391271)
-- [宁德时代股价大跌，为啥有人说是小米汽车推出龙甲电池导致的？未来「去宁德化」会不会成为车企的一种趋势？](http://www.play.hengshemaoyi.cn/xiju/1037193.htm)
-- [荣耀Magic9系列定档9月28日](http://www.daogukj.com/4166842)
-- [很多人认为本地部署一个大模型，就实现token自由，就可以干活了，真的吗？](http://www.movie.hkepx.cn/xiju/6638941.htm)
-- [发烧时明明体温在升高，人为什么反而会冷得发抖？](http://www.play.hengshemaoyi.cn/kongbu/4151588.htm)
-- [阎维文送别龚爽](http://www.daogukj.com/jguwcjlw/)
+- [郑钦文连续两场上演「让五追七」，这种级别的逆转有多罕见？关键转折点在哪？](http://www.movie.hkepx.cn/xiju/1384580.htm)
+- [西安大雁塔投物女子已被警方找到](http://www.daogukj.com/qyeqjnqv/)
+- [小样，我这不直接拿下你~](http://www.movie.hkepx.cn/movie/7212048.htm)
+- [《阴阳师》石长姬CG丨拾光永恒（CV：小清水亚美）](http://www.movie.hkepx.cn/xiju/5780029.htm)
+- [高一新生入学次日身亡](http://www.daogukj.com/efezhgld/)
+- [这个全球最大的游戏展上，国产游戏已经彻底疯狂了！](http://www.play.hengshemaoyi.cn/kongbu/8328027.htm)
+- [郑钦文一年狂赚1.5亿元](http://www.movie.hkepx.cn/xiju/5360773.htm)
+- [多部门印发通知，扩大灵活就业人员等群体基本医保参保规模，哪些要点值得关注？](http://www.movie.hkepx.cn/movie/9566975.htm)
+- [巴基斯坦警方喜提50辆中国新能源汽车](http://www.daogukj.com/8649041)
+- [陈伟霆何穗一家三口同框](http://www.daogukj.com/zvuykujr/)
+- [零食店开始集体"动手脚"，网友：不要把我们当傻子，好吗？](http://www.daogukj.com/smataala/)
+- [新iPhone未发先炒 代抢费最高上千](http://www.daogukj.com/mzqlfhhq/)
+- [人民日报锐评一边高消费一边领低保](http://www.play.hengshemaoyi.cn/kongbu/8184754.htm)
+- [广东一老人提着幼童扔车筐打骂](http://www.movie.hkepx.cn/movie/8042143.htm)
+- [想让车连续弹射，你得先冷下来。。。【X.PIN】](http://www.play.hengshemaoyi.cn/xiju/7145463.htm)
+- [宁德时代回应“车间员工过激行为”](http://www.play.hengshemaoyi.cn/kongbu/4548535.htm)
+- [尼古拉斯凯奇房塌了](http://www.daogukj.com/0313251)
+- [“泡水鞋”叫卖刷屏 真相如何？](http://www.play.hengshemaoyi.cn/kongbu/0820222.htm)
+- [印尼：中方同意延长雅万高铁还款期](http://www.daogukj.com/btolggbq/)
+- [中方驳斥炒作中国“抽梯子”言论](http://www.play.hengshemaoyi.cn/xiju/2703241.htm)
+- [很多人认为本地部署一个大模型，就实现token自由，就可以干活了，真的吗？](http://www.play.hengshemaoyi.cn/xiju/1475778.htm)
+- [泥石流过去就没事了？不可信](http://www.play.hengshemaoyi.cn/xiju/4475779.htm)
+- [网友称自己上班时突然不认识字了，连数字也不认识了，这是咋回事？能认定为工伤吗？](http://www.play.hengshemaoyi.cn/xiju/3969235.htm)
+- [iPhone Duo 售价](http://www.play.hengshemaoyi.cn/kongbu/1797022.htm)
+- [赖冠霖疑似结婚了](http://www.movie.hkepx.cn/xiju/9886322.htm)
+- [iPhone18系列](http://www.play.hengshemaoyi.cn/xiju/1914744.htm)
+- [男子烟龄28年肺全黑确诊癌症](http://www.movie.hkepx.cn/movie/2301491.htm)
+- [男子熬夜猝死 生前账号叫“早些睡”](http://www.play.hengshemaoyi.cn/xiju/2353249.htm)
+- [星宇股份已获港股上市备案却三周仍无聆讯日程，受此次裁员风波影响有多大？会影响公司上市吗？](http://www.daogukj.com/fownzino/)
+- [赖冠霖 转行](http://www.play.hengshemaoyi.cn/xiju/3652466.htm)
+- [苹果发布会五大亮点](http://www.daogukj.com/7447842)
+- [“梅姨”被抓时带着一个男孩生活](http://www.daogukj.com/kzpjmnze/)
+- [资本弃子包贝尔，彻底塌房](http://www.play.hengshemaoyi.cn/kongbu/4160936.htm)
+- [OpenAI官宣攻克千禧年七大难题的NS方程问题](http://www.daogukj.com/5391271)
+- [南阳「老头乐」被禁止上路，怎样看待这一规定？该如何平衡老年人出行需求与交通安全？](http://www.play.hengshemaoyi.cn/xiju/1037193.htm)
+- [燃油车真卖不动了吗](http://www.daogukj.com/4166842)
+- [iG3:0速推了LGD，如何看待iG现在的状态？](http://www.movie.hkepx.cn/xiju/6638941.htm)
+- [为什么感觉台湾的卤肉饭远没有大陆的“台湾卤肉饭”好吃，这中间差异在哪里？](http://www.play.hengshemaoyi.cn/kongbu/4151588.htm)
+- [刘亦菲删除照片](http://www.daogukj.com/jguwcjlw/)
 - [2026服贸会今日开幕](http://www.movie.hkepx.cn/xiju/6322184.htm)
-- [早春晴朗大结局](http://www.play.hengshemaoyi.cn/xiju/2530472.htm)
-- [宁夏一高校宿舍配冰箱、智能马桶和密码锁，设施堪比星级酒店，高校为何开始试水高配宿舍？会成为趋势吗？](http://www.daogukj.com/5202971)
+- [宁德时代宜宾基地回应](http://www.play.hengshemaoyi.cn/xiju/2530472.htm)
+- [爆肝六个月！40万字详解对越自卫反击战秘闻，我们对越南都做了什么？](http://www.daogukj.com/5202971)
 
 </details>
 
 ## 原始来源
 
-- [【2026LPL第三赛段】9月8日 LGD vs IG](https://b23.tv/BV1sHb56xEhC)
+- [香港首任特首董建华逝世](https://www.baidu.com/s?wd=%E9%A6%99%E6%B8%AF%E9%A6%96%E4%BB%BB%E7%89%B9%E9%A6%96%E8%91%A3%E5%BB%BA%E5%8D%8E%E9%80%9D%E4%B8%96&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 527b18eefe08b7ea8998 -->
+<!-- content-fingerprint: 8ddb38356be7f77a49b1 -->
