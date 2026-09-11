@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 青岛货轮火灾25人遇难
+# 星宇股份又出错，外包报酬支付总额「约2.44万亿元」，如何看待这家公司频频出错？
 
-> 来源：今日头条热榜 · 排名：第 20 位 · 热度：4362940 · 分类：新进展 · 更新：2026-09-11T15:23:11+08:00
+> 来源：知乎热榜 · 排名：第 20 位 · 热度：59 万热度 · 分类：问答 · 更新：2026-09-11T20:16:38+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“青岛货轮火灾25人遇难”位列第 20 位，公开热度指标为 4362940，榜单分类为“新进展”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“星宇股份又出错，外包报酬支付总额「约2.44万亿元」，如何看待这家公司频频出错？”位列第 20 位，公开热度指标为 59 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：9月10日消息，星宇股份再次出现重大年报数据错误。 在星宇股份2024年年报中，公司劳务外包支付报酬总额标注为243526388.49万元，折合约2.44万亿元。而星宇股份2024年全年营业收入仅132.5亿元，外包费用数值超过公司全年营收约183.75倍，明显违背商业常识。 与之相对于的是，该笔外包工时总数863.82万小时。 星宇股份2025年年报显示，公司当年劳务外包支付报酬总额约为3.02亿元。此前，星宇股份2025年年报出现错误：董事长周晓萍65岁，儿子周宇恒58岁，两人仅差7岁。 9月9日晚，星宇股份公告称，经核查，《2025年年度报告》“第
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `新进展`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [iPhone DUO已经发布，有哪些方面是值得国内手机厂商学习的？](xu-xu-ru-sheng.md)
-- [【warma/怒九】出国！去逛全球最大的游戏展吧！](huo-ling-huo-xian.md)
-- [吴君如提醒王星越殷桃别庆祝](you-sheng-you-se.md)
-- [iPhone17Pro史上最低价](yin-ren-ru-sheng.md)
+- [⚡️ 嘉 豪 の 小 曲 ⚡️](xu-xu-ru-sheng.md)
+- [临时调控再出手 油价少涨了](huo-ling-huo-xian.md)
+- [iPhone17Pro史上最低价](you-sheng-you-se.md)
+- [男子离婚6年后发现自己被“去父留子”](yin-ren-ru-sheng.md)
 
 ## 站内推荐
 
-- [中方：调整对日签证规费](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [女子凭支付信息瑜珍2确认是梅姨](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [燃油车卖不动了加油站怎么办](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [小孩坠楼砸烂宝马车 家长要求删视频](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [9·11事件25年后哪些反恐边界正失守](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [打假网红铁头获刑8年](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [小米澎程汽车](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [一天一瓶啤酒，对身体有害吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [张子宇首次参加女篮世界杯，场均 8.8 分 5 篮板，命中率62.5%，如何评价她的表现？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [药店店员称未达业绩被罚抄整张药物说明书，药物非快消品，让员工背销售额合理吗？罚抄算职场霸凌吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [为何王者荣耀世界的美术被质疑审美过时，而内部的上千精英大佬却未察觉？](http://www.play.hengshemaoyi.cn/xiju/2367459.htm)
-- [募捐42元获奖励900元](http://www.daogukj.com/whykihfw/)
-- [宋剑仁煽动民族仇恨案一审宣判](http://www.daogukj.com/1896871)
-- [谭松韵人缘](http://www.movie.hkepx.cn/movie/7726331.htm)
-- [【糖果】人类就要冲出太阳系了！然后被宇宙嫌弃了](http://www.play.hengshemaoyi.cn/kongbu/7591988.htm)
-- [老人心梗 老伴打120时被广告卡住](http://www.movie.hkepx.cn/movie/9833785.htm)
-- [林依晨王星越5米高台跳水](http://www.movie.hkepx.cn/movie/5639163.htm)
-- [车主称坠楼砸车小孩家长态度转变](http://www.daogukj.com/2186746)
-- [星宇股份又出错，外包报酬支付总额「约2.44万亿元」，如何看待这家公司频频出错？](http://www.play.hengshemaoyi.cn/kongbu/2268018.htm)
-- [人类史上首次老人数量超过儿童，65岁以上人口占比‌10.5%‌，5岁以下不足10%，该数据意味着什么？](http://www.play.hengshemaoyi.cn/kongbu/6473132.htm)
-- [李立群吐槽AI短剧“害人”](http://www.daogukj.com/1106243)
-- [众望所归，今天带孙艺洲自律！](http://www.play.hengshemaoyi.cn/xiju/5943556.htm)
-- [影视飓风给全员发万元iPhone Duo，连实习生都有且代缴个税，你怎么看这种「别人家的公司」？](http://www.daogukj.com/9530499)
-- [如何评价贝赫和斯维纳通-戴尔猜想（BSD猜想，七大千禧难题）疑被OpenAI或Anthropic解决？](http://www.movie.hkepx.cn/xiju/0808829.htm)
-- [宝宝上学放学两副面孔](http://www.play.hengshemaoyi.cn/kongbu/8834808.htm)
-- [如何看待日本梅毒患者数量居高不下，受辉瑞影响目前青霉素短缺？分析称这与社会「三个一」有关，如何理解？](http://www.movie.hkepx.cn/xiju/0940758.htm)
-- [肖战孙菲菲 杂志](http://www.movie.hkepx.cn/movie/9022890.htm)
-- [高露圈外老公首曝光](http://www.play.hengshemaoyi.cn/kongbu/2216390.htm)
-- [白敬亭谭松韵一个叫姐一个叫哥](http://www.play.hengshemaoyi.cn/xiju/1375823.htm)
-- [35岁男子天天熬夜到凌晨突发心梗](http://www.daogukj.com/goeqgpai/)
-- [普京与莫迪11天连见两次有何意味](http://www.play.hengshemaoyi.cn/kongbu/1757591.htm)
-- [大美王朝2026：党争、测谎，挪用军饷，美国真有大明那味了！](http://www.play.hengshemaoyi.cn/kongbu/9879555.htm)
-- [中方：调整对日签证规费](http://www.play.hengshemaoyi.cn/xiju/7503553.htm)
-- [第一批用阿福的人瘦了500万斤](http://www.movie.hkepx.cn/xiju/5861166.htm)
-- [“员工在厂区裸奔”公司找到了](http://www.play.hengshemaoyi.cn/xiju/5549607.htm)
-- [【独家】时光代理人 第三季 PartOne 第6集 试探【8月国创】](http://www.play.hengshemaoyi.cn/kongbu/6769731.htm)
-- [新三国up锐评老三国17：往日种种……皆作云烟！](http://www.play.hengshemaoyi.cn/xiju/8003531.htm)
-- [小沈阳三公再当队长“天塌了”](http://www.movie.hkepx.cn/xiju/9172364.htm)
-- [章若楠说大家卸了妆都长一样](http://www.movie.hkepx.cn/movie/6262590.htm)
-- [ModelYP 小米YU7GT](http://www.play.hengshemaoyi.cn/kongbu/5906748.htm)
-- [为什么皮鞋、手表、西装、酒这些行业崩溃了？](http://www.daogukj.com/goynbzba/)
-- [林黛玉怎么从来没想过变卖自己首饰去换钱买燕窝？](http://www.daogukj.com/oqkhnwnb/)
-- [为什么人类只剩下智人这一个物种？](http://www.movie.hkepx.cn/xiju/8878997.htm)
-- [范丞丞ins发抽烟照](http://www.daogukj.com/frbhpamg/)
-- [港媒：“鬼王”雷宇扬离世](http://www.daogukj.com/8218296)
-- [媒体：29分能化作中国女篮成长养分吗](http://www.movie.hkepx.cn/xiju/3382411.htm)
-- [吴君如提醒王星越殷桃别庆祝](http://www.play.hengshemaoyi.cn/kongbu/3195197.htm)
-- [当我把“大地”穿在身上｜结合自然元素还原绝美大地女神](http://www.movie.hkepx.cn/xiju/8373508.htm)
-- [女子凭支付信息瑜珍2确认是梅姨](http://www.daogukj.com/uamigzyj/)
-- [如何评价兰州大学在中雨天气拉练新生？](http://www.daogukj.com/uevljbcs/)
-- [马斯克怒批纪录片《马斯克》](http://www.play.hengshemaoyi.cn/xiju/4322946.htm)
-- [9·11事件25年后哪些反恐边界正失守](http://www.movie.hkepx.cn/movie/3471289.htm)
-- [女子被洪水冲来的眼镜蛇咬伤身亡](http://www.movie.hkepx.cn/movie/3873340.htm)
-- [官方回应「男子称停止资助后遭受助学生质问催捐」，经查当地教育机构没有姚先生这个人，该争议会有反转吗？](http://www.daogukj.com/0908523)
-- [传奇历史人物志——达尔文](http://www.daogukj.com/7782066)
-- [iPhone17Pro史上最低价](http://www.play.hengshemaoyi.cn/kongbu/3377780.htm)
-- [《阴阳师》十周年庆典现已开启丨送你这样好的「石莲金」](http://www.play.hengshemaoyi.cn/xiju/9852587.htm)
-- [月薪1w是月薪5K的六倍](http://www.daogukj.com/njwfupeo/)
-- [网传《三体 2》蒋奇明将饰演罗辑，是真的吗？你对这一选角有何期待？](http://www.play.hengshemaoyi.cn/kongbu/1527267.htm)
-- [被坠楼小孩砸烂宝马车主：沟通不愉快](http://www.play.hengshemaoyi.cn/xiju/3775329.htm)
+- [【招笑版】新植物9:力竭豌豆【bilibilionly同人扶持计划】](http://www.play.hengshemaoyi.cn/xiju/2367459.htm)
+- [兰香如故](http://www.daogukj.com/whykihfw/)
+- [《孤独的美食家》里的日本小馆，为什么喜欢把座位直接设在厨房前？](http://www.daogukj.com/1896871)
+- [海口监狱原监狱长娄湘林获刑10年](http://www.movie.hkepx.cn/movie/7726331.htm)
+- [2030年进入世界汽车强国行列](http://www.play.hengshemaoyi.cn/kongbu/7591988.htm)
+- [携程 杀熟](http://www.movie.hkepx.cn/movie/9833785.htm)
+- [大幅上调日本公民赴华签证规费](http://www.movie.hkepx.cn/movie/5639163.htm)
+- [官方通报男子编造女生催资助](http://www.daogukj.com/2186746)
+- [【warma/怒九】出国！去逛全球最大的游戏展吧！](http://www.play.hengshemaoyi.cn/kongbu/2268018.htm)
+- [“儿童彩票”的幸运陷阱](http://www.play.hengshemaoyi.cn/kongbu/6473132.htm)
+- [艾特孙千结果井柏然回复了](http://www.daogukj.com/1106243)
+- [一家6口因儿子如厕误机起诉航司](http://www.play.hengshemaoyi.cn/xiju/5943556.htm)
+- [差一天就能看到糖花の“监狱vlog”了](http://www.daogukj.com/9530499)
+- [换一种心跳，感受世界的奇妙——《伊莫》联结玩法实机](http://www.movie.hkepx.cn/xiju/0808829.htm)
+- [网友称把前置摄像头关掉刷手机可以保护眼睛，这是真的吗？如果属实，是因为哪些原理？](http://www.play.hengshemaoyi.cn/kongbu/8834808.htm)
+- [女星钟丽淇被曝进ICU 丈夫回应](http://www.movie.hkepx.cn/xiju/0940758.htm)
+- [9·11事件迟来的审判与漫长的追偿](http://www.movie.hkepx.cn/movie/9022890.htm)
+- [刀郎问徐子尧为什么老唱自己的歌](http://www.play.hengshemaoyi.cn/kongbu/2216390.htm)
+- [“老虎”李旭被双开：贪婪无度](http://www.play.hengshemaoyi.cn/xiju/1375823.htm)
+- [「突围吧·少年」 —— 这一次，“突围”不是带出物资](http://www.daogukj.com/goeqgpai/)
+- [张子宇在 2026 女篮世界杯的表现，和美法等强队男子化打法相比，是否说明速度和投射比身高更重要？](http://www.play.hengshemaoyi.cn/kongbu/1757591.htm)
+- [看了好几遍 确认是中国军网发的](http://www.play.hengshemaoyi.cn/kongbu/9879555.htm)
+- [打假网红铁头获刑8年](http://www.play.hengshemaoyi.cn/xiju/7503553.htm)
+- [陕西夫妻送女儿去大学顺路卖苹果](http://www.movie.hkepx.cn/xiju/5861166.htm)
+- [偶遇倪妮考科目二](http://www.play.hengshemaoyi.cn/xiju/5549607.htm)
+- [梅姨深夜出没几乎不与人打交道](http://www.play.hengshemaoyi.cn/kongbu/6769731.htm)
+- [广东男子发达后抛弃妻子出轨生两娃](http://www.play.hengshemaoyi.cn/xiju/8003531.htm)
+- [武汉职业技术大学8000名新生报到](http://www.movie.hkepx.cn/xiju/9172364.htm)
+- [瀑布边蛇捕鱼全过程被拍下](http://www.movie.hkepx.cn/movie/6262590.htm)
+- [歌手白小白为“东北超”点赞](http://www.play.hengshemaoyi.cn/kongbu/5906748.htm)
+- [你一定不能错过世界上最好听的音乐——巴西音乐!丨HOPICO](http://www.daogukj.com/goynbzba/)
+- [三年之期已到，恭迎世一上归位！【第8集】](http://www.daogukj.com/oqkhnwnb/)
+- [京圈太子爷，论迹不论心](http://www.movie.hkepx.cn/xiju/8878997.htm)
+- [辅警救起落水者累到站不住](http://www.daogukj.com/frbhpamg/)
+- [中科院期刊分区表在线平台将停止运行，哪些信息值得重点关注？将对我国学术圈带来哪些影响？](http://www.daogukj.com/8218296)
+- [印度严重欺诈调查局拟调查小米，外交部回应称不了解具体情况，中印经贸合作该如何互利共赢？](http://www.movie.hkepx.cn/xiju/3382411.htm)
+- [iPhone17Pro史上最低价](http://www.play.hengshemaoyi.cn/kongbu/3195197.htm)
+- [中国的梅毒数据](http://www.movie.hkepx.cn/xiju/8373508.htm)
+- [小米澎程汽车](http://www.daogukj.com/uamigzyj/)
+- [【赛尔号】灵渊的回响主线版本PV「风暴之中，雷神降临」](http://www.daogukj.com/uevljbcs/)
+- [为啥现在很多做饭教程都是「两勺生抽一勺老抽一勺蚝油」？这是什么万能公式吗？能不能把它们也做成一种调料？](http://www.play.hengshemaoyi.cn/xiju/4322946.htm)
+- [药店店员称未达业绩被罚抄整张药物说明书，药物非快消品，让员工背销售额合理吗？罚抄算职场霸凌吗？](http://www.movie.hkepx.cn/movie/3471289.htm)
+- [如何看待红果短剧日活1.68亿已超「爱优腾芒」四家总和？为啥大众会在影视娱乐上出现这么强烈的偏好转变？](http://www.movie.hkepx.cn/movie/3873340.htm)
+- [“往鲜花饼里吐痰”系造谣](http://www.daogukj.com/0908523)
+- [中国汽车全球首次使用折叠屏](http://www.daogukj.com/7782066)
+- [男子离婚6年后发现自己被“去父留子”](http://www.play.hengshemaoyi.cn/kongbu/3377780.htm)
+- [曝TF四代出道必须成年](http://www.play.hengshemaoyi.cn/xiju/9852587.htm)
+- [野外河沟里的蚊子吸谁的血？](http://www.daogukj.com/njwfupeo/)
+- [【月行水上】SR-EX-1至SR-EX-8突袭 摆完挂机 简单好抄](http://www.play.hengshemaoyi.cn/kongbu/1527267.htm)
+- [“9·11”主谋为什么至今未被审判](http://www.play.hengshemaoyi.cn/xiju/3775329.htm)
 
 </details>
 
 ## 原始来源
 
-- [青岛货轮火灾25人遇难](https://www.toutiao.com/trending/7683415450185220150/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227683415450185220150%22%2C%22hot_board_impr_id%22%3A%2220260911152310DE327A1D4980C064BC4C%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [星宇股份又出错，外包报酬支付总额「约2.44万亿元」，如何看待这家公司频频出错？](https://www.zhihu.com/question/2081473260986819621)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6a24323d88fdb4154bbd -->
+<!-- content-fingerprint: 586e24553d5db23f1c27 -->
