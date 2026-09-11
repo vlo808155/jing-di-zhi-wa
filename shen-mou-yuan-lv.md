@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 药店店员称未达业绩被罚抄整张药物说明书，药物非快消品，让员工背销售额合理吗？罚抄算职场霸凌吗？
+# 美国CPI公布后美股拉升
 
-> 来源：知乎热榜 · 排名：第 18 位 · 热度：59 万热度 · 分类：问答 · 更新：2026-09-11T20:16:38+08:00
+> 来源：微博热搜 · 排名：第 18 位 · 热度：254120 · 分类：财经 · 更新：2026-09-12T00:34:50+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“药店店员称未达业绩被罚抄整张药物说明书，药物非快消品，让员工背销售额合理吗？罚抄算职场霸凌吗？”位列第 18 位，公开热度指标为 59 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“美国CPI公布后美股拉升”位列第 18 位，公开热度指标为 254120，榜单分类为“财经”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：还有药店员工在评论区称经常被罚下蹲，临期药物被要求自己买回家。 药物明明也不算和销售强相关的商品，药店这样做是不是太不合理了？ 这是广泛存在的现象吗？有人能说说吗
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`微博热搜` `实时热搜` `热点资讯` `财经`
 
 ## 相关热点
 
-- [【赛尔号】灵渊的回响主线版本PV「风暴之中，雷神降临」](ming-cha-qiu-hao.md)
-- [“葫芦爷爷”回应重挂葫芦](jian-wei-zhi-zhu.md)
-- [偶遇倪妮考科目二](du-ju-hui-yan.md)
-- [“老虎”李旭被双开：贪婪无度](bie-ju-jiang-xin.md)
+- [AI大佬集体松口：AGI可能已经实现了](ming-cha-qiu-hao.md)
+- [为什么打到现在，伊朗还有能力反击美国？](jian-wei-zhi-zhu.md)
+- [勇敢的人先折磨世界..](du-ju-hui-yan.md)
+- [网友最关心的不是车 是雷总去哪开门](bie-ju-jiang-xin.md)
 
 ## 站内推荐
 
-- [突然理解了一生爱出片的女人](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [陕西夫妻送女儿去大学顺路卖苹果](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [如何看待张家齐妈妈聊天记录大篇幅说教、教育短视频？为什么这会引起大家的反感？你有这样的父母吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [布伦特原油隔夜飙升超6%，也门胡塞武装占领红海战略要地哈尼什群岛，此轮国际油价会超过120美元么？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [星宇股份又出错，外包报酬支付总额「约2.44万亿元」，如何看待这家公司频频出错？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [公司中秋国庆连放13.5天发2000元](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [韦世豪遭重罚](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [携程 杀熟](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [张凌赫走了一条很笨的路](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [儿子让父亲不要再对外讲与梅姨过往](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [香港艺人“鬼王”雷宇扬离世](http://www.play.hengshemaoyi.cn/kongbu/7686149.htm)
-- [【糖果】人类就要冲出太阳系了！然后被宇宙嫌弃了](http://www.movie.hkepx.cn/movie/4579405.htm)
-- [兰香如故](http://www.movie.hkepx.cn/xiju/3169477.htm)
-- [京圈太子爷，论迹不论心](http://www.movie.hkepx.cn/xiju/8635128.htm)
-- [日本的梅毒到底严重到什么地步](http://www.play.hengshemaoyi.cn/kongbu/9338626.htm)
-- [“老虎”李旭被双开：贪婪无度](http://www.play.hengshemaoyi.cn/kongbu/1542166.htm)
-- [刀郎问徐子尧为什么老唱自己的歌](http://www.daogukj.com/0287665)
-- [「突围吧·少年」 —— 这一次，“突围”不是带出物资](http://www.movie.hkepx.cn/movie/7272745.htm)
-- [携程 杀熟](http://www.play.hengshemaoyi.cn/xiju/6780679.htm)
-- [【warma/怒九】出国！去逛全球最大的游戏展吧！](http://www.daogukj.com/4477330)
-- [偶遇倪妮考科目二](http://www.daogukj.com/0861506)
-- [如何制造海苔](http://www.daogukj.com/9767084)
-- [官方通报「男子称停止资助后遭受助学生质问催捐」为假消息，媒体曝该男子已被刑拘，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/5257500.htm)
-- [“9·11”主谋为什么至今未被审判](http://www.daogukj.com/gykfwffn/)
-- [iPhoneDuo图标三合一引争议](http://www.play.hengshemaoyi.cn/xiju/5052420.htm)
-- [差一天就能看到糖花の“监狱vlog”了](http://www.daogukj.com/xdtbrdmh/)
-- [泰国一男子因猥亵他人锦鲤被捕](http://www.daogukj.com/0346242)
-- [突然理解了一生爱出片的女人](http://www.movie.hkepx.cn/xiju/3607769.htm)
-- [上实集团原总裁周军被判死缓](http://www.play.hengshemaoyi.cn/kongbu/0133104.htm)
-- [2030年进入世界汽车强国行列](http://www.movie.hkepx.cn/xiju/7939480.htm)
-- [当我把“大地”穿在身上｜结合自然元素还原绝美大地女神](http://www.movie.hkepx.cn/xiju/0345684.htm)
-- [中科院期刊分区表在线平台将停止运行，哪些信息值得重点关注？将对我国学术圈带来哪些影响？](http://www.movie.hkepx.cn/xiju/4105891.htm)
-- [民警提示：接到陌生来电先沉默三秒](http://www.movie.hkepx.cn/xiju/7210722.htm)
-- [中国汽车全球首次使用折叠屏](http://www.movie.hkepx.cn/movie/8592737.htm)
-- [“往鲜花饼里吐痰”系造谣](http://www.play.hengshemaoyi.cn/xiju/5306630.htm)
-- [海口监狱原监狱长娄湘林获刑10年](http://www.daogukj.com/1659974)
-- [曝TF四代出道必须成年](http://www.movie.hkepx.cn/movie/0941539.htm)
-- [【赛尔号】灵渊的回响主线版本PV「风暴之中，雷神降临」](http://www.movie.hkepx.cn/movie/2635515.htm)
-- [陕西夫妻送女儿去大学顺路卖苹果](http://www.movie.hkepx.cn/xiju/6515808.htm)
-- [中方正告美方立即停止对华间谍活动](http://www.play.hengshemaoyi.cn/xiju/8816869.htm)
-- [【月行水上】SR-EX-1至SR-EX-8突袭 摆完挂机 简单好抄](http://www.daogukj.com/dvtugytg/)
-- [张子宇首次参加女篮世界杯，场均 8.8 分 5 篮板，命中率62.5%，如何评价她的表现？](http://www.movie.hkepx.cn/xiju/6349162.htm)
-- [数读三农乡村振兴新图景](http://www.daogukj.com/uiagrfmg/)
-- [货拉拉跳车案](http://www.movie.hkepx.cn/xiju/5108394.htm)
-- [【军事up主陪你看新《大决战》-02】没错 重庆谈判章节还没结束](http://www.play.hengshemaoyi.cn/kongbu/2476719.htm)
-- [女星钟丽淇被曝进ICU 丈夫回应](http://www.play.hengshemaoyi.cn/kongbu/6062295.htm)
-- [星宇股份又出错，外包报酬支付总额「约2.44万亿元」，如何看待这家公司频频出错？](http://www.play.hengshemaoyi.cn/xiju/4493695.htm)
-- [艾特孙千结果井柏然回复了](http://www.daogukj.com/tnrfqrke/)
-- [临时调控再出手 油价少涨了](http://www.movie.hkepx.cn/xiju/4346084.htm)
-- [【招笑版】新植物9:力竭豌豆【bilibilionly同人扶持计划】](http://www.movie.hkepx.cn/movie/7332141.htm)
-- [iPhone17Pro史上最低价](http://www.daogukj.com/qwdjcwxs/)
-- [辅警救起落水者累到站不住](http://www.daogukj.com/uqrxqnjs/)
-- [你一定不能错过世界上最好听的音乐——巴西音乐!丨HOPICO](http://www.play.hengshemaoyi.cn/xiju/9086559.htm)
-- [广东男子发达后抛弃妻子出轨生两娃](http://www.play.hengshemaoyi.cn/xiju/0582780.htm)
-- [一家6口因儿子如厕误机起诉航司](http://www.movie.hkepx.cn/xiju/5890662.htm)
-- [邓为说我屁股已经爆炸了](http://www.movie.hkepx.cn/movie/9155162.htm)
-- [歌手白小白为“东北超”点赞](http://www.movie.hkepx.cn/movie/7891312.htm)
-- [张子宇在 2026 女篮世界杯的表现，和美法等强队男子化打法相比，是否说明速度和投射比身高更重要？](http://www.play.hengshemaoyi.cn/xiju/9382187.htm)
-- [布伦特原油隔夜飙升超6%，也门胡塞武装占领红海战略要地哈尼什群岛，此轮国际油价会超过120美元么？](http://www.play.hengshemaoyi.cn/xiju/1231015.htm)
-- [武汉职业技术大学8000名新生报到](http://www.daogukj.com/fpcntxir/)
+- [兰香如故](http://www.play.hengshemaoyi.cn/kongbu/7686149.htm)
+- [燃油车也要“通电”试试拯救销量](http://www.movie.hkepx.cn/movie/4579405.htm)
+- [住建局副局长群内辱骂业主](http://www.movie.hkepx.cn/xiju/3169477.htm)
+- [男子编造停捐遭威胁事件被抓](http://www.movie.hkepx.cn/xiju/8635128.htm)
+- [要打针还是亲亲？](http://www.play.hengshemaoyi.cn/kongbu/9338626.htm)
+- [网友最关心的不是车 是雷总去哪开门](http://www.play.hengshemaoyi.cn/kongbu/1542166.htm)
+- [简单做个毛血旺！麻辣下饭好过瘾！配上红烧茄子和炒西瓜皮，根本满足啊](http://www.daogukj.com/0287665)
+- [长沙查封代孕手术室执法图流入代孕群](http://www.movie.hkepx.cn/movie/7272745.htm)
+- [一天已经不足24小时了](http://www.play.hengshemaoyi.cn/xiju/6780679.htm)
+- [张雪14岁儿子张擎天国际赛事首秀](http://www.daogukj.com/4477330)
+- [勇敢的人先折磨世界..](http://www.daogukj.com/0861506)
+- [宋祖德视频账号最后更新于8月5日](http://www.daogukj.com/9767084)
+- [服贸会多项硬核成果落地](http://www.movie.hkepx.cn/movie/5257500.htm)
+- [【西西里 | 官方MV 】周杰伦 MV从画面、运镜到剧情铺陈，都以电影规格打造，宛如一部浓缩版的动作电影。](http://www.daogukj.com/gykfwffn/)
+- [【徐静雨×追梦格林】贴脸开大！谁是篮球自媒体Goat？](http://www.play.hengshemaoyi.cn/xiju/5052420.htm)
+- [中方：调整对日签证规费](http://www.daogukj.com/xdtbrdmh/)
+- [女婴误吞电池26小时食道被腐蚀](http://www.daogukj.com/0346242)
+- [公司中秋国庆连放13.5天发2000元](http://www.movie.hkepx.cn/xiju/3607769.htm)
+- [「魔法画报」当事人称事件与荣耀手机无关，当时正常对外拨打了求救电话，误解为没拨通，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/0133104.htm)
+- [【月行水上】SR-EX-1至SR-EX-8突袭 摆完挂机 简单好抄](http://www.movie.hkepx.cn/xiju/7939480.htm)
+- [为啥现在很多做饭教程都是「两勺生抽一勺老抽一勺蚝油」？这是什么万能公式吗？能不能把它们也做成一种调料？](http://www.movie.hkepx.cn/xiju/0345684.htm)
+- [《逐玉》在韩国爆火](http://www.movie.hkepx.cn/xiju/4105891.htm)
+- [如何看待特朗普拒绝沙特介入也门局势的请求，拒绝打击胡塞武装？](http://www.movie.hkepx.cn/xiju/7210722.htm)
+- [觉得上海不好玩，是因为我没钱吗？](http://www.movie.hkepx.cn/movie/8592737.htm)
+- [9·11主谋为何至今未被审判](http://www.play.hengshemaoyi.cn/xiju/5306630.htm)
+- [打假网红铁头获刑8年](http://www.daogukj.com/1659974)
+- [野外河沟里的蚊子吸谁的血？](http://www.movie.hkepx.cn/movie/0941539.htm)
+- [AI大佬集体松口：AGI可能已经实现了](http://www.movie.hkepx.cn/movie/2635515.htm)
+- [韦世豪遭重罚](http://www.movie.hkepx.cn/xiju/6515808.htm)
+- [9月中旬热门演唱会推荐](http://www.play.hengshemaoyi.cn/xiju/8816869.htm)
+- [日本的梅毒到底严重到什么地步](http://www.daogukj.com/dvtugytg/)
+- [田朴珺陪75岁王石参加Hyrox](http://www.movie.hkepx.cn/xiju/6349162.htm)
+- [2030年进入世界汽车强国行列](http://www.daogukj.com/uiagrfmg/)
+- [月之暗面Kimi K2.8 Preview模型9月11日上线kimi code，如何评价其表现？](http://www.movie.hkepx.cn/xiju/5108394.htm)
+- [太子奶案追责](http://www.play.hengshemaoyi.cn/kongbu/2476719.htm)
+- [“实习生往鲜花饼里吐痰”不实](http://www.play.hengshemaoyi.cn/kongbu/6062295.htm)
+- [儿子让父亲不要再对外讲与梅姨过往](http://www.play.hengshemaoyi.cn/xiju/4493695.htm)
+- [校长来啦](http://www.daogukj.com/tnrfqrke/)
+- [如果孩子这辈子注定考不上985/211，只能做个普通体力劳动者，那我拼命鸡娃，买学区房的意义是什么？](http://www.movie.hkepx.cn/xiju/4346084.htm)
+- [SM练习生李松河10年未出道](http://www.movie.hkepx.cn/movie/7332141.htm)
+- [千 万 别 玩 汽 车 冰 壶 ！ ！](http://www.daogukj.com/qwdjcwxs/)
+- [lululemon为什么卖不动了](http://www.daogukj.com/uqrxqnjs/)
+- [买油车正在成为少数人的选择吗](http://www.play.hengshemaoyi.cn/xiju/9086559.htm)
+- [我有套房子，同事一直要求我卖掉或者租出去，我该怎么办？](http://www.play.hengshemaoyi.cn/xiju/0582780.htm)
+- [民警提示用“三秒沉默法”防AI诈骗](http://www.movie.hkepx.cn/xiju/5890662.htm)
+- [如何制造海苔](http://www.movie.hkepx.cn/movie/9155162.htm)
+- [投资150万加盟开火锅自助4个月赔光](http://www.movie.hkepx.cn/movie/7891312.htm)
+- [被罩和衣服一起洗belike](http://www.play.hengshemaoyi.cn/xiju/9382187.htm)
+- [张凌赫走了一条很笨的路](http://www.play.hengshemaoyi.cn/xiju/1231015.htm)
+- [差一天就能看到糖花の“监狱vlog”了](http://www.daogukj.com/fpcntxir/)
 
 </details>
 
 ## 原始来源
 
-- [药店店员称未达业绩被罚抄整张药物说明书，药物非快消品，让员工背销售额合理吗？罚抄算职场霸凌吗？](https://www.zhihu.com/question/2080669202235352280)
+- [美国CPI公布后美股拉升](https://s.weibo.com/weibo?q=%E7%BE%8E%E5%9B%BDCPI%E5%85%AC%E5%B8%83%E5%90%8E%E7%BE%8E%E8%82%A1%E6%8B%89%E5%8D%87)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f83c00f9b10bb492e750 -->
+<!-- content-fingerprint: 7227959ca46f3cabd6c0 -->
