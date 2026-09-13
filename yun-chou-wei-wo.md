@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 莎拉波娃为莱巴金娜颁奖
+# 高糖VS戒糖14天！真的差别很大吗？
 
-> 来源：今日头条热榜 · 排名：第 18 位 · 热度：2528893 · 分类：热门事件 · 更新：2026-09-13T09:02:58+08:00
+> 来源：哔哩哔哩热门 · 排名：第 18 位 · 热度：2202758 · 分类：科学科普 · 更新：2026-09-13T14:01:02+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“莎拉波娃为莱巴金娜颁奖”位列第 18 位，公开热度指标为 2528893，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“高糖VS戒糖14天！真的差别很大吗？”位列第 18 位，公开热度指标为 2202758，榜单分类为“科学科普”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：戒糖真的会让人变健康，甚至让皮肤变好吗？这一次，我们找来了两位同事，一位严格控糖，一位想吃多少就吃多少，看看14天之后，她们的身体到底会发生什么变化？如果这期视频对你有帮助，请多多支持我们，并把视频分享给你的朋友们一起看看～*本期内容非严谨实验，仅供参考
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `科学科普`
 
 ## 相关热点
 
-- [苹果高管称折叠屏比例泄密很遗憾，竞争对手拿到了屏幕比例，泄密为何难以防范？将对行业造成哪些影响？](shen-mou-yuan-lv.md)
-- [【独家】《百日成王》第24集 还有人在等着我【7月国创】](ming-cha-qiu-hao.md)
-- [1300张票1000张黄牛 罗永浩吐槽](jian-wei-zhi-zhu.md)
-- [刘畊宏参加披哥掉粉近40万](du-ju-hui-yan.md)
+- [年轻人开始规划提前退休了](shen-mou-yuan-lv.md)
+- [敬一丹最后一期主持没有说再见](ming-cha-qiu-hao.md)
+- [博主：丁俊晖不欠中国斯诺克什么](jian-wei-zhi-zhu.md)
+- [苹果高管称折叠屏比例泄密很遗憾，竞争对手拿到了屏幕比例，泄密为何难以防范？将对行业造成哪些影响？](du-ju-hui-yan.md)
 
 ## 站内推荐
 
-- [男生去年考上北大放弃今年又考进北大](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [敬一丹女儿发布讣告](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [女选手大便失禁完赛HYROX引争议](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [刀郎：没有什么所谓的刀家班](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [沙特两次请求 美仍拒绝出手打击胡塞](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [《魔兽世界》：“无限”宣传动画 《崭新的天地》](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [男生去年考上北大放弃 今年又进北大](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [祝绪丹 杨幂](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [如何评价谭松韵、刘学义主演的古装剧《兰香如故》？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [我一拍讲桌，课堂就跳转到了起点晋江番茄](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [“一饭温情相赠，千里以报恩深.”【红色高跟鞋DJ-降调】【涌泉相报の小曲】](http://www.daogukj.com/ujmpetju/)
-- [如何看待胡塞武装突然势如破竹控制曼德海峡和红海南部？这对当前局势有哪些影响？](http://www.movie.hkepx.cn/xiju/2326006.htm)
-- [【独家】《百日成王》第24集 还有人在等着我【7月国创】](http://www.daogukj.com/fklrdyry/)
-- [赵雷当爸爸了](http://www.daogukj.com/fcqoynal/)
-- [孙千早春晴朗开会胡说八道](http://www.movie.hkepx.cn/movie/7286781.htm)
-- [面试时听到HR重点强调 [我们公司注重人文关怀] ，暗示着什么？](http://www.movie.hkepx.cn/xiju/5270399.htm)
-- [探访野生狗奶原产地，味道居然还不错](http://www.play.hengshemaoyi.cn/xiju/5019563.htm)
-- [为什么同为顶流网文网站，起点全力打击AI文，扶持人类写手，番茄新规却似乎在打击人类写手，扶持AI文？](http://www.play.hengshemaoyi.cn/xiju/6772680.htm)
-- [微信：别取这种名字会封号](http://www.play.hengshemaoyi.cn/kongbu/4064427.htm)
-- [夏季的温馨碎片，重新剪到一起，准备再赚一次流量](http://www.play.hengshemaoyi.cn/kongbu/8483720.htm)
-- [莱巴金娜美网2比1萨巴伦卡](http://www.play.hengshemaoyi.cn/kongbu/8579970.htm)
-- [iPhone18Pro 苹果](http://www.movie.hkepx.cn/xiju/0134223.htm)
-- [《未眠野》是否抄袭《塞尔达》？](http://www.play.hengshemaoyi.cn/kongbu/4502768.htm)
-- [央视知名主持人敬一丹去世](http://www.movie.hkepx.cn/movie/9639468.htm)
-- [印象之外｜易立竞对话埃安张雄：贴上标签只要三秒，撕掉要花多久？](http://www.daogukj.com/eugwmshe/)
-- [亲戚借了网贷，还不起了，想找我帮忙，她不想告诉家人，数额巨大，我该怎么办？](http://www.daogukj.com/1626617)
-- [沙特两次请求 美仍拒绝出手打击胡塞](http://www.movie.hkepx.cn/movie/2260283.htm)
-- [50秒回顾敬一丹的新闻人生](http://www.movie.hkepx.cn/xiju/0424593.htm)
-- [一支拖鞋军正在改写中东格局](http://www.play.hengshemaoyi.cn/xiju/5090288.htm)
-- [16岁孙心然美网青少年夺冠](http://www.daogukj.com/3625115)
-- [1300张票1000张黄牛 罗永浩吐槽](http://www.daogukj.com/jieawbfe/)
-- [如何看待25位菲奖得主发布联合声明《AI在数学领域的严重错位》？是否意味着传统数学研究模式的崩溃？](http://www.play.hengshemaoyi.cn/xiju/1843269.htm)
-- [莱巴金娜2-1萨巴伦卡首夺美网冠军](http://www.movie.hkepx.cn/movie/9978600.htm)
-- [海姆立克急救法变了](http://www.movie.hkepx.cn/movie/6924230.htm)
-- [敬一丹3个月前突发急性脑出血](http://www.daogukj.com/etibyexa/)
-- [吃得越狠老得越慢](http://www.play.hengshemaoyi.cn/kongbu/7016583.htm)
-- [弹壳说唱巅峰对决总冠军](http://www.movie.hkepx.cn/xiju/6012346.htm)
-- [中国将于2027年接任金砖主席国](http://www.movie.hkepx.cn/xiju/3257128.htm)
-- [光合作用：一次意外吞噬，改变了整个地球](http://www.play.hengshemaoyi.cn/kongbu/4442696.htm)
-- [《原神》7.1版本「往冥府的安魂歌」前瞻特别节目](http://www.play.hengshemaoyi.cn/kongbu/3696154.htm)
-- [为什么你镇不住你的下属？](http://www.daogukj.com/8707603)
-- [世卫预警全球癌症病例2050年可能激增67%，将上升至近3500万例，这意味着什么？有哪些预防措施？](http://www.movie.hkepx.cn/xiju/1792227.htm)
-- [上海一幼儿园收集家长职务信息不实](http://www.movie.hkepx.cn/xiju/1821928.htm)
-- [雷军为首批小米澎程车主开车门](http://www.play.hengshemaoyi.cn/xiju/7826824.htm)
-- [把尸体做成陷阱，假意投降却上来自爆，二战日军到底有多疯狂阴险](http://www.play.hengshemaoyi.cn/kongbu/4982284.htm)
-- [文字失语症](http://www.movie.hkepx.cn/xiju/2461964.htm)
-- [刘宇宁直播隔壁又打起来了](http://www.movie.hkepx.cn/movie/7422271.htm)
-- [萨巴伦卡输球气到摔拍](http://www.play.hengshemaoyi.cn/kongbu/8190186.htm)
-- [敬一丹去世](http://www.play.hengshemaoyi.cn/kongbu/3600255.htm)
-- [男生去年考上北大放弃今年又考进北大](http://www.movie.hkepx.cn/movie/9483466.htm)
-- [宁波大学校长雨中34秒发言火了](http://www.play.hengshemaoyi.cn/kongbu/5693401.htm)
-- [是什么导致了当下社会人情味淡薄？](http://www.daogukj.com/wstcuheo/)
-- [刘畊宏参加披哥掉粉近40万](http://www.movie.hkepx.cn/movie/3882558.htm)
-- [为什么几乎不存在完美藏尸](http://www.movie.hkepx.cn/movie/0855056.htm)
-- [2026哈尔滨马拉松开跑，赛事现场7公里就「开席」，红肠锅包肉能吃到终点，为啥哈马的补给这么好？](http://www.daogukj.com/wflinrtr/)
-- [名校硕士五轮面试全过却因第一学历专科遭拒，为何不能从一开始就说明学历要求？如此看重第一学历合理吗？](http://www.daogukj.com/4055553)
-- [“麻袋女孩”到中南大报到](http://www.play.hengshemaoyi.cn/kongbu/5702984.htm)
-- [假如你是一个雪饼](http://www.movie.hkepx.cn/movie/9880116.htm)
-- [最不想沾边的词汇出现了](http://www.daogukj.com/ujvkpjtv/)
-- [萨巴伦卡摔烂球拍](http://www.play.hengshemaoyi.cn/kongbu/4315002.htm)
+- [勇哥餐饮事件，博主线下调查发现火锅店实为两班倒，并非员工单人工作17小时，这一调查结果能否平息争议？](http://www.daogukj.com/ujmpetju/)
+- [中国人能飞](http://www.movie.hkepx.cn/xiju/2326006.htm)
+- [敬一丹最后一期主持没有说再见](http://www.daogukj.com/fklrdyry/)
+- [小七龄童去世：系六小龄童堂兄](http://www.daogukj.com/fcqoynal/)
+- [73岁赵雅芝首度登临高定秀场](http://www.movie.hkepx.cn/movie/7286781.htm)
+- [【假装讲电影】笑死！黑帮集体跳槽干物业！结果发现物业更黑啊！！！](http://www.movie.hkepx.cn/xiju/5270399.htm)
+- [成名之作，龙凤胎王世佳，王世博，谁能看清楚他叔叔身上的四个字，算您厉害。](http://www.play.hengshemaoyi.cn/xiju/5019563.htm)
+- [敬一丹账号讣告：感谢这世界让我走过](http://www.play.hengshemaoyi.cn/xiju/6772680.htm)
+- [“是他撞的你吗”“不是 他是好心”](http://www.play.hengshemaoyi.cn/kongbu/4064427.htm)
+- [地图上的这条街，香港和深圳各管一半？！](http://www.play.hengshemaoyi.cn/kongbu/8483720.htm)
+- [大衣哥坦言羡慕有文化的年轻人](http://www.play.hengshemaoyi.cn/kongbu/8579970.htm)
+- [受害人和嫌疑人同时走进派出所](http://www.movie.hkepx.cn/xiju/0134223.htm)
+- [刀郎线上演唱会开播1小时观看近千万](http://www.play.hengshemaoyi.cn/kongbu/4502768.htm)
+- [倪萍得知敬一丹去世 哭到浑身发抖](http://www.movie.hkepx.cn/movie/9639468.htm)
+- [法医删强奸案DNA只为保绩效](http://www.daogukj.com/eugwmshe/)
+- [84岁老人独自到店为自己挑选寿衣](http://www.daogukj.com/1626617)
+- [我一拍讲桌，课堂就跳转到了起点晋江番茄](http://www.movie.hkepx.cn/movie/2260283.htm)
+- [夏季的温馨碎片，重新剪到一起，准备再赚一次流量](http://www.movie.hkepx.cn/xiju/0424593.htm)
+- [敬一丹去世](http://www.play.hengshemaoyi.cn/xiju/5090288.htm)
+- [套假牌，超速200+，自称德国不限速。难度2星](http://www.daogukj.com/3625115)
+- [博主：丁俊晖不欠中国斯诺克什么](http://www.daogukj.com/jieawbfe/)
+- [如何看胡塞大军1天推进上百公里](http://www.play.hengshemaoyi.cn/xiju/1843269.htm)
+- [刀郎音乐会一首没唱](http://www.movie.hkepx.cn/movie/9978600.htm)
+- [脑出血急救 记住这几步](http://www.movie.hkepx.cn/movie/6924230.htm)
+- [探访野生狗奶原产地，味道居然还不错](http://www.daogukj.com/etibyexa/)
+- [上车饺子下车面具象化了](http://www.play.hengshemaoyi.cn/kongbu/7016583.htm)
+- [蔡磊悼念敬一丹：再也收不到她的信息](http://www.movie.hkepx.cn/xiju/6012346.htm)
+- [女生在飞机上看到震撼的大国基建](http://www.movie.hkepx.cn/xiju/3257128.htm)
+- [为什么很多小孩要报班学跳绳、不会跳楼梯，和感统失调有关吗？现在玩耍跑跳的时间少了，会影响孩子发育吗？](http://www.play.hengshemaoyi.cn/kongbu/4442696.htm)
+- [送别敬一丹老师一路走好](http://www.play.hengshemaoyi.cn/kongbu/3696154.htm)
+- [如何评价 BlizzCon 2026 宣布《星际争霸》将推出“开放世界射击游戏”并定档 2030 年？](http://www.daogukj.com/8707603)
+- [六小龄童堂兄小七龄童去世](http://www.movie.hkepx.cn/xiju/1792227.htm)
+- [加糖制作的红茶，能喝出来吗？](http://www.movie.hkepx.cn/xiju/1821928.htm)
+- [2026年世界田径终极冠军赛，北口榛花68米92力压严子怡夺冠，怎么评价严子怡遭遇的本赛季首场失利？](http://www.play.hengshemaoyi.cn/xiju/7826824.htm)
+- [刘畊宏参加《披哥》后掉粉近40万](http://www.play.hengshemaoyi.cn/kongbu/4982284.htm)
+- [“一饭温情相赠，千里以报恩深.”【红色高跟鞋DJ-降调】【涌泉相报の小曲】](http://www.movie.hkepx.cn/xiju/2461964.htm)
+- [国产电影投资逻辑转向，动画片增加，真人片成本两三千万，明星价值缩水，过亿项目锐减，如何解读这一变化？](http://www.movie.hkepx.cn/movie/7422271.htm)
+- [把尸体做成陷阱，假意投降却上来自爆，二战日军到底有多疯狂阴险](http://www.play.hengshemaoyi.cn/kongbu/8190186.htm)
+- [敬一丹抢救期间蔡磊疯狂钻研脑出血](http://www.play.hengshemaoyi.cn/kongbu/3600255.htm)
+- [《魔兽世界》：“无限”宣传动画 《崭新的天地》](http://www.movie.hkepx.cn/movie/9483466.htm)
+- [香港海面惊现女尸](http://www.play.hengshemaoyi.cn/kongbu/5693401.htm)
+- [多车队宣布永久退出中国GT](http://www.daogukj.com/wstcuheo/)
+- [苹果高管称折叠屏比例泄密很遗憾，竞争对手拿到了屏幕比例，泄密为何难以防范？将对行业造成哪些影响？](http://www.movie.hkepx.cn/movie/3882558.htm)
+- [iPhone18Pro系列全球售价对比，256G国行9999元，美国仅8000元，为什么有这么大差别？](http://www.movie.hkepx.cn/movie/0855056.htm)
+- [女童被狗咬伤面部 狗主人已被刑拘](http://www.daogukj.com/wflinrtr/)
+- [这个暑期旅游还有哪些新趋势](http://www.daogukj.com/4055553)
+- [刘畊宏自曝参加披哥掉粉近40万](http://www.play.hengshemaoyi.cn/kongbu/5702984.htm)
+- [易中天说三国里最聪明的人是贾诩，而不是诸葛亮，是否有点过了？](http://www.movie.hkepx.cn/movie/9880116.htm)
+- [为什么酒店标间两张床的价格反而会低于一张床的大床房的价格，这背后的定价逻辑是什么？](http://www.daogukj.com/ujvkpjtv/)
+- [魏大勋孙千有罪之身路透](http://www.play.hengshemaoyi.cn/kongbu/4315002.htm)
 
 </details>
 
 ## 原始来源
 
-- [莎拉波娃为莱巴金娜颁奖](https://www.toutiao.com/trending/7684542640469884970/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227684542640469884970%22%2C%22hot_board_impr_id%22%3A%2220260913090256447E7EB078EA6686376F%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [高糖VS戒糖14天！真的差别很大吗？](https://b23.tv/BV1enYL6SEtU)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: b26d07b387e292653e39 -->
+<!-- content-fingerprint: 888995ba0f4083b69ca1 -->
