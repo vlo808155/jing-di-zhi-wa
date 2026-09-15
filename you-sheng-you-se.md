@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 特朗普急了 致电黄仁勋斥责AI危险论
+# 塔克拉玛干沙漠发现大型地下水水源
 
-> 来源：百度热搜 · 排名：第 20 位 · 热度：5901432 · 更新：2026-09-15T14:41:00+08:00
+> 来源：今日头条热榜 · 排名：第 21 位 · 热度：697629 · 更新：2026-09-15T20:11:18+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“特朗普急了 致电黄仁勋斥责AI危险论”位列第 20 位，公开热度指标为 5901432。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“塔克拉玛干沙漠发现大型地下水水源”位列第 21 位，公开热度指标为 697629。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：北京时间9月15日，据彭博社报道，英伟达CEO黄仁勋周一在参加一场小组讨论时，现场接听了美国总统特朗普打来的电话，让特朗普有机会将AI危险论斥为“骗局”。
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [女婴月子中心身亡多部门介入调查](yin-ren-ru-sheng.md)
-- [心动9第七期就亲上了](jing-di-zhi-wa.md)
-- [疑似演唱会求婚当事人称已报警](hai-kuo-tian-kong.md)
-- [日本为啥很少有米线之类的米加工品？](gao-zhan-yuan-zhu.md)
+- [玩《鬼武者》2 小时仍未掌握「一闪」，这个技巧的诀窍是什么？](yin-ren-ru-sheng.md)
+- [什么是洲同学？洲同学就是洲同学！](jing-di-zhi-wa.md)
+- [2亿灵活就业者社保不足 症结在哪](hai-kuo-tian-kong.md)
+- [张元英把手臂汗毛P掉了](gao-zhan-yuan-zhu.md)
 
 ## 站内推荐
 
-- [女子拍到骇人巨型蜗牛引热议，它可能是哪种物种？会带来哪些潜在风险？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [「员工裸奔拉屎事件」起因是办离职时间没达成一致，为什么会在这一环节有矛盾？一般会走怎样的申诉沟通渠道？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
-- [罗永浩吐槽后，野人先生沉默被夸听劝，西贝硬刚被指陷入自证，沉默一定安全吗？面对质疑，怎么判断是否回应？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [如何看待东南大学电子学院预推免结果，高绩点保研本院失败，顶尖学院为何「看不上」自己培养的学生？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [“死亡不是终点，遗忘才是。” | 《老秦》原创AI短片【AI全民制作人】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [《上吊比赛》](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
+- [「小白」天玑9600 Pro性能首测：能效亮眼 稳中有进！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [央视网评弹窗广告屡禁不止](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [樊振东未参赛登亚运会海报原因](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [浙大教授回应飘逸刘海：我本色表现](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [于东来回应“四年合同制”](http://www.daogukj.com/xpqxgjcv/)
-- [手机价格够买全屋家电了](http://www.play.hengshemaoyi.cn/xiju/9504622.htm)
-- [本科生扎堆回炉读技校](http://www.movie.hkepx.cn/movie/6749947.htm)
-- [马珊珊任沈阳市副市长、代理市长](http://www.play.hengshemaoyi.cn/xiju/4948083.htm)
-- [微信AI 隐私](http://www.movie.hkepx.cn/xiju/7607655.htm)
-- [日本为啥很少有米线之类的米加工品？](http://www.play.hengshemaoyi.cn/xiju/5325575.htm)
-- [全网首发！二周年彩蛋解密完成！每个鸟窝都是入口！难度大大降低！这些东西速买！要爆！](http://www.play.hengshemaoyi.cn/kongbu/9379279.htm)
-- [卫健委新出生人口800万左右](http://www.daogukj.com/egbjfccc/)
-- [网友称空管开始试点劳务派遣模式，是真的吗？会带来哪些潜在风险或影响？](http://www.movie.hkepx.cn/movie/2907268.htm)
-- [8岁女童被男孩推倒后用电话手表报警](http://www.movie.hkepx.cn/xiju/1786474.htm)
-- [汐见琴音——S.E.E.S.的活泼少女队长| P5X x P3P联动即将开启](http://www.play.hengshemaoyi.cn/kongbu/3660768.htm)
-- [如何看待东南大学电子学院预推免结果，高绩点保研本院失败，顶尖学院为何「看不上」自己培养的学生？](http://www.movie.hkepx.cn/xiju/4183202.htm)
-- [涉嫌猎杀玳瑁中国籍教练发声](http://www.play.hengshemaoyi.cn/kongbu/6256469.htm)
-- [12306回应男子高铁喝白酒](http://www.movie.hkepx.cn/xiju/5108742.htm)
-- [驯化西瓜：一颗苦涩有毒的野瓜，如何成为世界顶流](http://www.movie.hkepx.cn/xiju/7519171.htm)
-- [井柏然写字孙千画画](http://www.movie.hkepx.cn/movie/2577743.htm)
-- [血观音 翻红](http://www.movie.hkepx.cn/xiju/8256350.htm)
-- [《你以为的支教只教课时，但实际上...》](http://www.play.hengshemaoyi.cn/kongbu/3840000.htm)
-- [研究：得糖尿病的人大多离不开这4点](http://www.daogukj.com/pggpwtpd/)
-- [10后学生流行起“呆毛”发型](http://www.play.hengshemaoyi.cn/xiju/2942368.htm)
-- [名古屋亚运会海报樊振东C位](http://www.movie.hkepx.cn/movie/3592629.htm)
-- [新兵入伍现场送别人群迟迟不肯离开](http://www.play.hengshemaoyi.cn/xiju/8731518.htm)
-- [女婴月子中心身亡多部门介入调查](http://www.play.hengshemaoyi.cn/xiju/3438881.htm)
-- [“死亡不是终点，遗忘才是。” | 《老秦》原创AI短片【AI全民制作人】](http://www.daogukj.com/rvtjhukc/)
-- [特朗普电话为何没阻止英伟达股价大跌](http://www.play.hengshemaoyi.cn/kongbu/3059344.htm)
-- [网友说再高端的场所给服务人员低工资也是低端场所，你怎么看这一说法？](http://www.movie.hkepx.cn/movie/8044035.htm)
-- [全网首发！感谢大家参与！二周年彩蛋我们解出来啦！大战场篇完事！三角洲真的太阴了！](http://www.movie.hkepx.cn/movie/0744393.htm)
-- [独身女子离世 叔姑舅姨9人争遗产](http://www.play.hengshemaoyi.cn/xiju/2844176.htm)
-- [和五月天阿信见了他](http://www.play.hengshemaoyi.cn/kongbu/4388909.htm)
-- [中国男子涉嫌在印尼猎杀濒危玳瑁](http://www.play.hengshemaoyi.cn/kongbu/7258246.htm)
-- [国家卫健委呼吁大家要多锻炼](http://www.movie.hkepx.cn/movie/3477880.htm)
-- [老板娘称被公职人员强奸最新进展](http://www.daogukj.com/mxxaaoqi/)
-- [被罗永浩吐槽后，野人先生反而涨粉 3 万，如何评价野人先生的应对策略？](http://www.movie.hkepx.cn/xiju/0410176.htm)
-- [塔克拉玛干沙漠发现大型地下水水源](http://www.play.hengshemaoyi.cn/kongbu/4983709.htm)
-- [Anthropic一研究员辞职示警称AI可能在未来十年内毁灭人类，巨头拿人类生命作赌，如何看待该观点？](http://www.play.hengshemaoyi.cn/xiju/9262750.htm)
-- [日本年轻人开始流行“梅毒妆”：身上点满红斑，假装自己感染了](http://www.play.hengshemaoyi.cn/kongbu/4671141.htm)
-- [如何看待 DeepSeek 刘胜与的《我不得不把才华埋葬在昨天》？](http://www.movie.hkepx.cn/movie/8349964.htm)
-- [4岁女孩玩金箍棒捅坏家中万元电视](http://www.daogukj.com/4716922)
-- [老头乐 上牌上路](http://www.movie.hkepx.cn/movie/5393498.htm)
-- [英国会“分家”吗](http://www.movie.hkepx.cn/movie/5460085.htm)
-- [女子买的“八角”数出13个角竟有剧毒](http://www.play.hengshemaoyi.cn/xiju/3011100.htm)
-- [女婴身亡月子中心产妇全部搬离](http://www.play.hengshemaoyi.cn/xiju/4637538.htm)
-- [男子苦钓三天钓起118斤大青鱼](http://www.movie.hkepx.cn/movie/8940560.htm)
-- [被嫌弃的手臂赘肉是“长寿肉”](http://www.movie.hkepx.cn/movie/0831513.htm)
-- [外籍游客爱上中国秋日深度游](http://www.daogukj.com/cmhomvpy/)
-- [肖战孙菲菲 VOGUE银十](http://www.play.hengshemaoyi.cn/kongbu/7216702.htm)
-- [女子拍到骇人巨型蜗牛引热议，它可能是哪种物种？会带来哪些潜在风险？](http://www.play.hengshemaoyi.cn/xiju/1028140.htm)
-- [什么是洲同学？洲同学就是洲同学！](http://www.movie.hkepx.cn/movie/1414994.htm)
+- [上海诚邀时代少年团](http://www.daogukj.com/xpqxgjcv/)
+- [关个弹窗广告咋这么难](http://www.play.hengshemaoyi.cn/xiju/9504622.htm)
+- [最低工资标准上调 这些待遇跟着涨](http://www.movie.hkepx.cn/movie/6749947.htm)
+- [苹果正式推送 iOS 27，本次更新主打液态玻璃 UI 进阶，还有哪些亮点值得关注？你会更新吗？](http://www.play.hengshemaoyi.cn/xiju/4948083.htm)
+- [【独家/完结】《百日成王》第25集 现在我要夺回失去的一切！【7月国创】](http://www.movie.hkepx.cn/xiju/7607655.htm)
+- [张元英把手臂汗毛P掉了](http://www.play.hengshemaoyi.cn/xiju/5325575.htm)
+- [亚马尔称今年我配得上金球奖，「我和姆巴佩是世界上最好的两名球员」，如何看待亚马尔提到的金球奖归属问题？](http://www.play.hengshemaoyi.cn/kongbu/9379279.htm)
+- [你在恐怖片里看到吐的四大烂梗，每一个在当年都是神来之笔！](http://www.daogukj.com/egbjfccc/)
+- [杨洋李沁谈了五年](http://www.movie.hkepx.cn/movie/2907268.htm)
+- [看到AI不停攻克各种数学难题，有一些害怕了，以后还需要人类数学家吗？](http://www.movie.hkepx.cn/xiju/1786474.htm)
+- [新出生人口维持在800万左右](http://www.play.hengshemaoyi.cn/kongbu/3660768.htm)
+- [樊振东未参赛登亚运会海报原因](http://www.movie.hkepx.cn/xiju/4183202.htm)
+- [金正恩：始终不变地支持普京和俄人民](http://www.play.hengshemaoyi.cn/kongbu/6256469.htm)
+- [湘雅医学院教师PPT称23年未见父母](http://www.movie.hkepx.cn/xiju/5108742.htm)
+- [教师PPT写23年未见父母每天睡2小时](http://www.movie.hkepx.cn/xiju/7519171.htm)
+- [《你以为的支教只教课时，但实际上...》](http://www.movie.hkepx.cn/movie/2577743.htm)
+- [与印度人聊聊种姓制、恒河水、挂火车、仿制药、补习班、IT外包、彩礼嫁妆、干净又卫生……网络刻板印象是真是假？| 地球观察局EP01 【视频播客】](http://www.movie.hkepx.cn/xiju/8256350.htm)
+- [以前用来“喂猪”现在是“高端蔬菜”](http://www.play.hengshemaoyi.cn/kongbu/3840000.htm)
+- [如何看待英伟达、Palantir等金主集体限制Anthropic Claude使用？](http://www.daogukj.com/pggpwtpd/)
+- [一线城市房价涨了](http://www.play.hengshemaoyi.cn/xiju/2942368.htm)
+- [赛博修仙！我们给古代攻城车上了亿点点科技！](http://www.movie.hkepx.cn/movie/3592629.htm)
+- [景区称30岁以上老人免费领登山杖](http://www.play.hengshemaoyi.cn/xiju/8731518.htm)
+- [玩《鬼武者》2 小时仍未掌握「一闪」，这个技巧的诀窍是什么？](http://www.play.hengshemaoyi.cn/xiju/3438881.htm)
+- [浙大教授回应飘逸刘海：我本色表现](http://www.daogukj.com/rvtjhukc/)
+- [理想等车企加速「去宁化」，其背后原因是什么？对行业有何影响？](http://www.play.hengshemaoyi.cn/kongbu/3059344.htm)
+- [女子要求30万彩礼备注自愿赠与后悔婚](http://www.movie.hkepx.cn/movie/8044035.htm)
+- [黎明当选四川雅安市市长](http://www.movie.hkepx.cn/movie/0744393.htm)
+- [网友称空管开始试点劳务派遣模式，是真的吗？会带来哪些潜在风险或影响？](http://www.play.hengshemaoyi.cn/xiju/2844176.htm)
+- [乌外长：乌愿与俄达成能源停火协议](http://www.play.hengshemaoyi.cn/kongbu/4388909.htm)
+- [王健林又卖掉一个47亿资产，万达旗下盈方体育将HYROX多数股权卖给LVMH旗下机构，这意味着什么？](http://www.play.hengshemaoyi.cn/kongbu/7258246.htm)
+- [中国厂商推出改造版 RTX5090 显卡，售价 2.6 万元，你觉得「良心」吗？](http://www.movie.hkepx.cn/movie/3477880.htm)
+- [七旬老太入冰棺后又睁眼“复活”](http://www.daogukj.com/mxxaaoqi/)
+- [受贿5742万 毕井泉获刑14年](http://www.movie.hkepx.cn/xiju/0410176.htm)
+- [为什么重庆可以在山上建设城市，深圳香港不可以？](http://www.play.hengshemaoyi.cn/kongbu/4983709.htm)
+- [陈伟霆何穗为儿子办周岁宴](http://www.play.hengshemaoyi.cn/xiju/9262750.htm)
+- [20元就能克隆一个人的声音](http://www.play.hengshemaoyi.cn/kongbu/4671141.htm)
+- [五分钟充电大挑战，看看谁的闪充体验更胜一筹？](http://www.movie.hkepx.cn/movie/8349964.htm)
+- [既然多巴胺使人快乐，那我开发多巴胺口服液，岂不是发财了？](http://www.daogukj.com/4716922)
+- [新能源汽车 燃油车](http://www.movie.hkepx.cn/movie/5393498.htm)
+- [王楚钦带队征战亚运会 身兼三项](http://www.movie.hkepx.cn/movie/5460085.htm)
+- [刘雯手机壁纸是井柏然](http://www.play.hengshemaoyi.cn/xiju/3011100.htm)
+- [娜扎被宋祖儿嘘过](http://www.play.hengshemaoyi.cn/xiju/4637538.htm)
+- [为什么《笑傲江湖》中岳不群在网络的风评这几年变好了？](http://www.movie.hkepx.cn/movie/8940560.htm)
+- [如何看待女子称被公职人员推入自家烧烤店厕所强奸，县公安局不予立案，市公安局复核认定有犯罪事实？](http://www.movie.hkepx.cn/movie/0831513.htm)
+- [分享你的互联网福尔摩斯时刻](http://www.daogukj.com/cmhomvpy/)
+- [亲证](http://www.play.hengshemaoyi.cn/kongbu/7216702.htm)
+- [《上吊比赛》](http://www.play.hengshemaoyi.cn/xiju/1028140.htm)
+- [携程510万太空船票已售681份](http://www.movie.hkepx.cn/movie/1414994.htm)
 - [童年的捕虫网，依然在我们的手里——《伊莫》PC端预下载现已开启！](http://www.daogukj.com/2345067)
-- [美国首次承认具备太空进攻能力](http://www.movie.hkepx.cn/movie/8392048.htm)
+- [从经济学意义上来说，到底是“物美价廉”靠谱？还是“一分钱，一分货”靠谱？](http://www.movie.hkepx.cn/movie/8392048.htm)
 
 </details>
 
 ## 原始来源
 
-- [特朗普急了 致电黄仁勋斥责AI危险论](https://www.baidu.com/s?wd=%E7%89%B9%E6%9C%97%E6%99%AE%E6%80%A5%E4%BA%86+%E8%87%B4%E7%94%B5%E9%BB%84%E4%BB%81%E5%8B%8B%E6%96%A5%E8%B4%A3AI%E5%8D%B1%E9%99%A9%E8%AE%BA&sa=fyb_news&rsv_dl=fyb_news)
+- [塔克拉玛干沙漠发现大型地下水水源](https://www.toutiao.com/trending/7684837223196229683/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227684837223196229683%22%2C%22hot_board_impr_id%22%3A%2220260915201118AAB217EEF793633BBD81%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 5badc5ae2174c65ecd08 -->
+<!-- content-fingerprint: 915fe52f77daa8556dfa -->

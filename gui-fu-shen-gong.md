@@ -1,35 +1,35 @@
 [热点索引](README.md)
 
-# 被罗永浩吐槽后，野人先生反而涨粉 3 万，如何评价野人先生的应对策略？
+# 受贿5742万 毕井泉获刑14年
 
-> 来源：知乎热榜 · 排名：第 19 位 · 热度：140 万热度 · 分类：问答 · 更新：2026-09-15T14:41:00+08:00
+> 来源：百度热搜 · 排名：第 19 位 · 热度：6001750 · 更新：2026-09-15T20:11:18+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“被罗永浩吐槽后，野人先生反而涨粉 3 万，如何评价野人先生的应对策略？”位列第 19 位，公开热度指标为 140 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“受贿5742万 毕井泉获刑14年”位列第 19 位，公开热度指标为 6001750。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：9月12日下午，罗永浩发博说在机场尝了最近爆火的冰淇淋品牌野人先生，"很一般，考虑到价格甚至可以说难吃，它是怎么火起来的"，还补刀"比钟薛高难吃多了，怀念钟薛高"。他特意在文末标注：这只是消费者的正常评价，"请千万不要惹我"。 罗永浩吐槽野人先生事件后，野人先生账号当天涨粉3万、近30天涨粉40万，目前品牌官方尚未回应。工作人员表示会将问题反馈领导。评论区网友：不要回复。（中国蓝新闻）从西贝硬刚到野人先生沉默,罗永浩一开口,餐饮品牌学会不要回答_ZAKER新闻
+来源公开摘要显示：2026年9月15日，山东省济南市中级人民法院一审公开宣判十四届全国政协原常委毕井泉受贿案，判处其有期徒刑十四年并处罚金五百万元。经查，其于1995年至2025年非法收受财物共计5742万余元。此前，法院于同年6月24日开庭审理，毕井泉当庭认罪悔罪。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [抱团女王，爱男轻女，杨洋之怒？人际关系乱成一锅粥【花学第1.5回】](jin-shang-tian-hua.md)
-- [哈萨克斯坦执勤女警遭公主抱被开除](hua-long-dian-jing.md)
-- [徐帆 你这个不负责任的东西](miao-bi-sheng-hua.md)
-- [苹果回应iPhone 18 Pro破发](sheng-dong-huo-po.md)
+- [亲妈嫁给丈夫爸爸变婆婆](jin-shang-tian-hua.md)
+- [美要求乌停止袭击俄柴油设施有何考量](hua-long-dian-jing.md)
+- [克苏鲁式的网文目前只有诡秘之主被广泛认可，是我们没有找到对的方向吗？](miao-bi-sheng-hua.md)
+- [手把手教你复刻《百万英镑》牛排套餐，一口锅就能煎完！](sheng-dong-huo-po.md)
 
 ## 站内推荐
 
-- [我国人口总量14.05亿](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
-- [一线城市房价涨了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
-- [星穹铁道星神阿哈](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
-- [血观音 翻红](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
-- [疑似演唱会求婚当事人称已报警](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
+- [平台月付将退出支付选项](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
+- [俄方：愿意进行新一轮乌克兰问题谈判](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
+- [「大学生生活费才3000」引发讨论，有人说不够花有人说很多，你怎么看？你上大学每月生活费是多少？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
+- [与印度人聊聊种姓制、恒河水、挂火车、仿制药、补习班、IT外包、彩礼嫁妆、干净又卫生……网络刻板印象是真是假？| 地球观察局EP01 【视频播客】](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
+- [2亿灵活就业者社保不足 症结在哪](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
 
 ## 相关资讯
 
@@ -37,62 +37,62 @@
 <summary>展开更多相关内容</summary>
 
 - [童年的捕虫网，依然在我们的手里——《伊莫》PC端预下载现已开启！](http://www.play.hengshemaoyi.cn/kongbu/5808339.htm)
-- [雷军脚踹宇树机器人](http://www.daogukj.com/1739906)
-- [塔克拉玛干沙漠发现大型地下水水源](http://www.daogukj.com/6935812)
-- [孙颖莎回应出征亚运会](http://www.daogukj.com/pmpkacrd/)
-- [新兵入伍现场送别人群迟迟不肯离开](http://www.play.hengshemaoyi.cn/kongbu/2438192.htm)
-- [峰哥亡命越南，河内一天逛吃vlog](http://www.play.hengshemaoyi.cn/kongbu/7293063.htm)
-- [和五月天阿信见了他](http://www.play.hengshemaoyi.cn/xiju/4857183.htm)
-- [女婴月子中心身亡多部门介入调查](http://www.movie.hkepx.cn/xiju/7889734.htm)
-- [锵锵锵](http://www.play.hengshemaoyi.cn/kongbu/0667195.htm)
-- [女婴身亡月子中心产妇全部搬离](http://www.play.hengshemaoyi.cn/kongbu/1579498.htm)
-- [985本硕毕业后，30岁小伙重读本科，成功入住宿舍，跟大家介绍我的新家](http://www.movie.hkepx.cn/movie/0667278.htm)
-- [马珊珊任沈阳市副市长、代理市长](http://www.movie.hkepx.cn/movie/2598628.htm)
-- [杨洋李沁谈了五年](http://www.daogukj.com/vbrxejif/)
-- [月饼200元以上不好卖了](http://www.play.hengshemaoyi.cn/xiju/6786751.htm)
-- [胖东来“不续聘”违法吗？律师解读](http://www.daogukj.com/kpifomse/)
-- [如何看待 DeepSeek 刘胜与的《我不得不把才华埋葬在昨天》？](http://www.daogukj.com/1805907)
-- [8岁女童被男孩推倒后用电话手表报警](http://www.daogukj.com/0272216)
-- [女子拍到骇人巨型蜗牛引热议，它可能是哪种物种？会带来哪些潜在风险？](http://www.play.hengshemaoyi.cn/xiju/6434082.htm)
-- [什么是洲同学？洲同学就是洲同学！](http://www.play.hengshemaoyi.cn/xiju/8702577.htm)
-- [刘翔口口声声说的“第三条路”到底是什么？](http://www.daogukj.com/1001749)
-- [网友称空管开始试点劳务派遣模式，是真的吗？会带来哪些潜在风险或影响？](http://www.daogukj.com/9435306)
-- [从经济学意义上来说，到底是“物美价廉”靠谱？还是“一分钱，一分货”靠谱？](http://www.play.hengshemaoyi.cn/kongbu/5701265.htm)
-- [英国会“分家”吗](http://www.movie.hkepx.cn/xiju/3842120.htm)
-- [特朗普急了 致电黄仁勋斥责AI危险论](http://www.movie.hkepx.cn/xiju/7251868.htm)
-- [日本年轻人开始流行“梅毒妆”：身上点满红斑，假装自己感染了](http://www.movie.hkepx.cn/movie/8872274.htm)
-- [井柏然写字孙千画画](http://www.daogukj.com/yniobcvk/)
-- [电池税正式落地对新能源车意味什么](http://www.movie.hkepx.cn/movie/0768259.htm)
-- [女子买的“八角”数出13个角竟有剧毒](http://www.daogukj.com/8746275)
-- [研究：得糖尿病的人大多离不开这4点](http://www.play.hengshemaoyi.cn/xiju/8271575.htm)
-- [华为与赛力斯确认将智选车合作模式调整为「轻资产」模式，这意味着什么？会带来哪些影响？](http://www.daogukj.com/kgtebwbx/)
-- [疑似演唱会求婚当事人称已报警](http://www.play.hengshemaoyi.cn/xiju/1497703.htm)
-- [独身女子离世 叔姑舅姨9人争遗产](http://www.movie.hkepx.cn/xiju/0744889.htm)
-- [杨洋陈都灵 等风热吻你](http://www.movie.hkepx.cn/xiju/0791643.htm)
-- [男子苦钓三天钓起118斤大青鱼](http://www.movie.hkepx.cn/movie/3601600.htm)
-- [10后学生流行起“呆毛”发型](http://www.daogukj.com/6606882)
-- [2026年国家网络安全宣传周](http://www.play.hengshemaoyi.cn/kongbu/5430461.htm)
-- [中国男子涉嫌在印尼猎杀濒危玳瑁](http://www.play.hengshemaoyi.cn/xiju/1401530.htm)
-- [美国首次承认具备太空进攻能力](http://www.play.hengshemaoyi.cn/kongbu/6874966.htm)
-- [日本为啥很少有米线之类的米加工品？](http://www.movie.hkepx.cn/xiju/0869674.htm)
-- [比亚迪高管称燃油车没有未来，如何看待这一言论？燃油车会快速退场吗？](http://www.movie.hkepx.cn/xiju/8892121.htm)
-- [手机价格够买全屋家电了](http://www.daogukj.com/3840867)
-- [汐见琴音——S.E.E.S.的活泼少女队长| P5X x P3P联动即将开启](http://www.daogukj.com/tdthozvf/)
-- [孙颖莎说伤病让自己很焦虑](http://www.movie.hkepx.cn/movie/9314467.htm)
-- [被嫌弃的手臂赘肉是“长寿肉”](http://www.daogukj.com/4927582)
-- [网友说再高端的场所给服务人员低工资也是低端场所，你怎么看这一说法？](http://www.movie.hkepx.cn/xiju/7135657.htm)
-- [中国厂商推出改造版 RTX5090 显卡，售价 2.6 万元，你觉得「良心」吗？](http://www.daogukj.com/edbsjtbr/)
-- [挑战用24小时跑完世界最长地铁线](http://www.movie.hkepx.cn/movie/3015116.htm)
-- [“四川芬达”恶搞杨坤被判赔31.5万](http://www.play.hengshemaoyi.cn/kongbu/8223902.htm)
-- [12306回应男子高铁喝白酒](http://www.daogukj.com/goublmac/)
-- [特朗普电话为何没阻止英伟达股价大跌](http://www.movie.hkepx.cn/xiju/7589973.htm)
+- [孙颖莎封训期间用大量时间恢复身体](http://www.daogukj.com/1739906)
+- [为什么重庆可以在山上建设城市，深圳香港不可以？](http://www.daogukj.com/6935812)
+- [王楚钦：本次封闭集训更多是补基础](http://www.daogukj.com/pmpkacrd/)
+- [景区称30岁以上老人免费领登山杖](http://www.play.hengshemaoyi.cn/kongbu/2438192.htm)
+- [四川辟谣高校禁连放13天假](http://www.play.hengshemaoyi.cn/kongbu/7293063.htm)
+- [乌外长：乌愿与俄达成能源停火协议](http://www.play.hengshemaoyi.cn/xiju/4857183.htm)
+- [玩《鬼武者》2 小时仍未掌握「一闪」，这个技巧的诀窍是什么？](http://www.movie.hkepx.cn/xiju/7889734.htm)
+- [香山论坛开幕美方参会级别回升意味啥](http://www.play.hengshemaoyi.cn/kongbu/0667195.htm)
+- [娜扎被宋祖儿嘘过](http://www.play.hengshemaoyi.cn/kongbu/1579498.htm)
+- [我国人口总量14.05亿](http://www.movie.hkepx.cn/movie/0667278.htm)
+- [苹果正式推送 iOS 27，本次更新主打液态玻璃 UI 进阶，还有哪些亮点值得关注？你会更新吗？](http://www.movie.hkepx.cn/movie/2598628.htm)
+- [我来接受中国朋友们的挑战啦！](http://www.daogukj.com/vbrxejif/)
+- [海底捞股价创四年半来盘中新低，大股东折价大宗减持，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/6786751.htm)
+- [比亚迪高管称燃油车没有未来，如何看待这一言论？燃油车会快速退场吗？](http://www.daogukj.com/kpifomse/)
+- [五分钟充电大挑战，看看谁的闪充体验更胜一筹？](http://www.daogukj.com/1805907)
+- [看到AI不停攻克各种数学难题，有一些害怕了，以后还需要人类数学家吗？](http://www.daogukj.com/0272216)
+- [《上吊比赛》](http://www.play.hengshemaoyi.cn/xiju/6434082.htm)
+- [携程510万太空船票已售681份](http://www.play.hengshemaoyi.cn/xiju/8702577.htm)
+- [《崩坏：星穹铁道》阿哈时刻：「星神★阿哈」](http://www.daogukj.com/1001749)
+- [杨洋李沁谈了五年](http://www.daogukj.com/9435306)
+- [“老虎”毕井泉贪5742万被判14年](http://www.play.hengshemaoyi.cn/kongbu/5701265.htm)
+- [王楚钦带队征战亚运会 身兼三项](http://www.movie.hkepx.cn/xiju/3842120.htm)
+- [塔克拉玛干沙漠发现大型地下水水源](http://www.movie.hkepx.cn/xiju/7251868.htm)
+- [20元就能克隆一个人的声音](http://www.movie.hkepx.cn/movie/8872274.htm)
+- [《你以为的支教只教课时，但实际上...》](http://www.daogukj.com/yniobcvk/)
+- [本来以为泡泡玛特赚不到我的钱](http://www.movie.hkepx.cn/movie/0768259.htm)
+- [刘雯手机壁纸是井柏然](http://www.daogukj.com/8746275)
+- [如何看待英伟达、Palantir等金主集体限制Anthropic Claude使用？](http://www.play.hengshemaoyi.cn/xiju/8271575.htm)
+- [全新【求生者】“神童”故事视频爆料：——“我们是奇迹的共谋……抑或共犯？”](http://www.daogukj.com/kgtebwbx/)
+- [2亿灵活就业者社保不足 症结在哪](http://www.play.hengshemaoyi.cn/xiju/1497703.htm)
+- [网友称空管开始试点劳务派遣模式，是真的吗？会带来哪些潜在风险或影响？](http://www.movie.hkepx.cn/xiju/0744889.htm)
+- [欧洲学者：中国白皮书是世界未来关键](http://www.movie.hkepx.cn/xiju/0791643.htm)
+- [为什么《笑傲江湖》中岳不群在网络的风评这几年变好了？](http://www.movie.hkepx.cn/movie/3601600.htm)
+- [一线城市房价涨了](http://www.daogukj.com/6606882)
+- [关键词解锁服贸会上的经济新机遇](http://www.play.hengshemaoyi.cn/kongbu/5430461.htm)
+- [王健林又卖掉一个47亿资产，万达旗下盈方体育将HYROX多数股权卖给LVMH旗下机构，这意味着什么？](http://www.play.hengshemaoyi.cn/xiju/1401530.htm)
+- [从经济学意义上来说，到底是“物美价廉”靠谱？还是“一分钱，一分货”靠谱？](http://www.play.hengshemaoyi.cn/kongbu/6874966.htm)
+- [张元英把手臂汗毛P掉了](http://www.movie.hkepx.cn/xiju/0869674.htm)
+- [211毕业生卖二手机年营业额两千万](http://www.movie.hkepx.cn/xiju/8892121.htm)
+- [关个弹窗广告咋这么难](http://www.daogukj.com/3840867)
+- [新出生人口维持在800万左右](http://www.daogukj.com/tdthozvf/)
+- [自费支教老师回应被叫男版张桂梅](http://www.movie.hkepx.cn/movie/9314467.htm)
+- [如何看待女子称被公职人员推入自家烧烤店厕所强奸，县公安局不予立案，市公安局复核认定有犯罪事实？](http://www.daogukj.com/4927582)
+- [女子要求30万彩礼备注自愿赠与后悔婚](http://www.movie.hkepx.cn/xiju/7135657.htm)
+- [全网首发！感谢大家参与！二周年彩蛋我们解出来啦！大战场篇完事！三角洲真的太阴了！](http://www.daogukj.com/edbsjtbr/)
+- [毕井泉获刑 曾因问题疫苗案引咎辞职](http://www.movie.hkepx.cn/movie/3015116.htm)
+- [如果侯亮平在山水集团被花斑虎打死或者在结尾被祁同伟打死，剧情会如何发展？](http://www.play.hengshemaoyi.cn/kongbu/8223902.htm)
+- [湘雅医学院教师PPT称23年未见父母](http://www.daogukj.com/goublmac/)
+- [理想等车企加速「去宁化」，其背后原因是什么？对行业有何影响？](http://www.movie.hkepx.cn/xiju/7589973.htm)
 
 </details>
 
 ## 原始来源
 
-- [被罗永浩吐槽后，野人先生反而涨粉 3 万，如何评价野人先生的应对策略？](https://www.zhihu.com/question/2083135150116664088)
+- [受贿5742万 毕井泉获刑14年](https://www.baidu.com/s?wd=%E5%8F%97%E8%B4%BF5742%E4%B8%87+%E6%AF%95%E4%BA%95%E6%B3%89%E8%8E%B7%E5%88%9114%E5%B9%B4&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 32c804ba2107a9fda44d -->
+<!-- content-fingerprint: 6764de22289f235058b7 -->
