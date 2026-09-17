@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 香港运动员带道德经参加亚运会
+# 敬一丹告别仪式挽联令人动容
 
-> 来源：微博热搜 · 排名：第 19 位 · 热度：484038 · 分类：体育 · 更新：2026-09-17T12:45:08+08:00
+> 来源：百度热搜 · 排名：第 18 位 · 热度：6084073 · 更新：2026-09-17T17:40:16+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“香港运动员带道德经参加亚运会”位列第 19 位，公开热度指标为 484038，榜单分类为“体育”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“敬一丹告别仪式挽联令人动容”位列第 18 位，公开热度指标为 6084073。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：9月17日清晨，敬一丹告别仪式在北京八宝山举行。告别仪式挽联令人动容：一生悲悯放大弱者声音，丹心坦荡传播智者思想。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `体育`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [沙特为何打不过胡塞“拖鞋军”](bie-ju-jiang-xin.md)
-- [百度搜索为什么没落了？](qiao-duo-tian-gong.md)
-- [《异环》1.4版本前瞻特别节目回顾](gui-fu-shen-gong.md)
-- [一车人都买错票车站 12306有新显示](jin-shang-tian-hua.md)
+- [印巴军舰海上相撞谁不专业](bie-ju-jiang-xin.md)
+- [成龙、洪金宝都仰仗的男人钱嘉乐，为什么就是不火？](qiao-duo-tian-gong.md)
+- [琵琶曲 l 成都超人](gui-fu-shen-gong.md)
+- [小沈阳力挺妻子沈春阳圆导演梦](jin-shang-tian-hua.md)
 
 ## 站内推荐
 
-- [各省的刻板印象这一块](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [影视飓风Tim反掰iPhone Duo](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [范玮琪7年6大失言争议](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [KPL十周年](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [曾辉在披哥胖到156斤](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [学生提议保障宵夜，食堂留言板反问「能考到年级前一百名吗」引不满，为啥大家反感该回应？学生诉求合理吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [我疯了！挑战1比1还原海绵宝宝浴室，打造专属菠萝屋](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [《异环》1.4版本PV「祷歌为谁而诵」](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [各省的刻板印象这一块](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [胡歌被排到了第八位](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [王鹤棣方称已就网传不实聊天记录报警并完成取证，静和医疗否认王鹤棣曾就诊，到底发生了什么？](http://www.daogukj.com/7203067)
-- [昔日「彩电大王」康佳要退市了，去年巨亏 126 亿元，扣非净利润连亏 15 年，是如何走到今天这步的？](http://www.daogukj.com/gowgjlqg/)
-- [iPhone18 Pro性能分析：五年来最强的芯片升级！](http://www.daogukj.com/7329084)
-- [手搓电影《目不转睛》](http://www.daogukj.com/tafakdgo/)
-- [国乒、中国体操队被困名古屋亚运机场，现场只提供水无食品，为什么会这样？暴露出亚运会组织方的哪些问题？](http://www.play.hengshemaoyi.cn/kongbu/6822731.htm)
-- [曾辉在披哥胖到156斤](http://www.movie.hkepx.cn/movie/9763774.htm)
+- [严浩翔鞋底薄成啥了](http://www.daogukj.com/7203067)
+- [美联储加息25点对股市黄金有何影响](http://www.daogukj.com/gowgjlqg/)
+- [超音速客机未来北京飞上海可能只需半小时，普通人还要等多久才能坐上？该技术商业化应用面临哪些挑战？](http://www.daogukj.com/7329084)
+- [霉霉丈夫遭遇庞氏骗局](http://www.daogukj.com/tafakdgo/)
+- [辽宁省政协原副主席戴玉林被查](http://www.play.hengshemaoyi.cn/kongbu/6822731.htm)
+- [胡歌被排到了第八位](http://www.movie.hkepx.cn/movie/9763774.htm)
 - [是风在一直刮](http://www.movie.hkepx.cn/movie/5499528.htm)
-- [美联储加息对日本有何影响](http://www.movie.hkepx.cn/xiju/2091376.htm)
+- [影视飓风 敢说](http://www.movie.hkepx.cn/xiju/2091376.htm)
 - [机顶盒将成为历史](http://www.movie.hkepx.cn/movie/3384485.htm)
-- [美联储预计年底前还将加息一次，12 位官员预计今年还将加息 25 个基点，这次加息周期会有多长？](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
-- [炽日将烬 // 2026无畏契约全球冠军赛主题曲](http://www.daogukj.com/0541072)
-- [高市内阁全体阁僚提交辞呈](http://www.daogukj.com/jyvgfrcg/)
-- [亚运会中国代表团自带食材水源不实](http://www.daogukj.com/3891590)
-- [百度搜索为什么没落了？](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
-- [影视飓风Tim反掰iPhoneDuo被质疑](http://www.movie.hkepx.cn/xiju/8805715.htm)
-- [沙特为何打不过胡塞“拖鞋军”](http://www.daogukj.com/5398424)
-- [电视机将内置机顶盒功能](http://www.movie.hkepx.cn/xiju/6277332.htm)
-- [美联储突然加息意味着什么](http://www.movie.hkepx.cn/xiju/7873556.htm)
-- [举手式睡姿是身体在求救](http://www.play.hengshemaoyi.cn/xiju/9370456.htm)
-- [儿子用豆包选下葬母亲黄道吉日，因葬礼后亲戚遇车祸重伤决定起诉豆包，如何从法律角度解读？](http://www.daogukj.com/nzepuewx/)
-- [景甜风波后首个封面](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
-- [众多央视主持人悼念送别敬一丹](http://www.movie.hkepx.cn/movie/0752879.htm)
-- [【何同学】很大胆。iPhone 18 Pro首发体验](http://www.movie.hkepx.cn/xiju/3642771.htm)
-- [《鸣潮》动画短片 | 寻心](http://www.daogukj.com/5617601)
-- [国乒被困日本机场 孙颖莎直接开练](http://www.daogukj.com/8998145)
-- [时隔3年多美联储加息25个基点](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
-- [影视飓风Tim反掰iPhone Duo](http://www.movie.hkepx.cn/xiju/8984384.htm)
-- [iPhone Duo息屏折痕效果表现如何](http://www.movie.hkepx.cn/xiju/1180114.htm)
+- [AI危机来了吗](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
+- [多地严控手机进校园，一刀切禁止手机，到底是保护孩子，还是隔绝了必要的学习工具？](http://www.daogukj.com/0541072)
+- [女生称同济大学痛经请假需脱裤检查](http://www.daogukj.com/jyvgfrcg/)
+- [炽日将烬 // 2026无畏契约全球冠军赛主题曲](http://www.daogukj.com/3891590)
+- [成龙、洪金宝都仰仗的男人钱嘉乐，为什么就是不火？](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
+- [举手式睡姿是身体在求救](http://www.movie.hkepx.cn/xiju/8805715.htm)
+- [印巴军舰海上相撞谁不专业](http://www.daogukj.com/5398424)
+- [立志成为恶兽第四集【up动画】【AI全民制作人】](http://www.movie.hkepx.cn/xiju/6277332.htm)
+- [一车人都买错票车站 12306新增提醒](http://www.movie.hkepx.cn/xiju/7873556.htm)
+- [如果你出生于1992年至2003年之间](http://www.play.hengshemaoyi.cn/xiju/9370456.htm)
+- [中方回应特朗普可对买俄石油国加税](http://www.daogukj.com/nzepuewx/)
+- [天津漫展手机事件](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
+- [《鸣潮》动画短片 | 寻心](http://www.movie.hkepx.cn/movie/0752879.htm)
+- [不是不够努力：拆解后发国家工业化的结构性枷锁](http://www.movie.hkepx.cn/xiju/3642771.htm)
+- [如果任天堂是世界上最伟大的游戏公司，那么第二伟大的游戏公司是哪家？](http://www.daogukj.com/5617601)
+- [史上最没用比赛](http://www.daogukj.com/8998145)
+- [义乌开始卖飞碟了](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
+- [我疯了！挑战1比1还原海绵宝宝浴室，打造专属菠萝屋](http://www.movie.hkepx.cn/xiju/8984384.htm)
+- [亚运会中国女足爆冷战平乌兹别克斯坦](http://www.movie.hkepx.cn/xiju/1180114.htm)
 - [折叠还是直板？iPhone 18 Pro&Duo深度视频](http://www.movie.hkepx.cn/movie/0847312.htm)
-- [美联储加息对全球市场影响有多大](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
-- [【邓肯】“梅姨”案](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
-- [2岁幼童从18楼坠亡事发时窗户没关](http://www.movie.hkepx.cn/xiju/6763243.htm)
+- [华为汪涛发布业界首个NPO超节点](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
+- [访日中国大陆游客8月减少59%](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
+- [广东肇庆街头“战机迫降”？当地回应](http://www.movie.hkepx.cn/xiju/6763243.htm)
 - [美联储3年来首次加息，加息25个基点，将基准利率上调至3.75%-4.00%，会对市场有哪些影响？](http://www.movie.hkepx.cn/xiju/9186695.htm)
-- [中国运动员在日本机场干等6小时](http://www.daogukj.com/pxvooxke/)
-- [广电总局计划“十五五”推出100部好剧](http://www.movie.hkepx.cn/xiju/1116357.htm)
-- [中国人吃得起蓝莓 居然让他们气坏了](http://www.movie.hkepx.cn/xiju/0923150.htm)
-- [KPL十周年](http://www.daogukj.com/wwpryopq/)
-- [如何评价小米公开进行大语言模型Mimo V2.6的大规模强化学习训练？](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
-- [S1赛季「逐风启程」——《伊莫》PC端今日上线](http://www.movie.hkepx.cn/xiju/6581777.htm)
-- [胡歌被排到了第八位](http://www.daogukj.com/ydetypas/)
-- [儿子突然的离世父亲的天塌了](http://www.movie.hkepx.cn/xiju/1440565.htm)
-- [学生提议保障宵夜，食堂留言板反问「能考到年级前一百名吗」引不满，为啥大家反感该回应？学生诉求合理吗？](http://www.movie.hkepx.cn/movie/0748348.htm)
-- [张一鸣成亚洲首富](http://www.daogukj.com/7529047)
-- [小朋友什么行为显得没家教](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
-- [胖东来员工中秋福利：每人7箱](http://www.movie.hkepx.cn/movie/9462286.htm)
-- [影视飓风Tim称iPhoneDuo烫到握不住](http://www.movie.hkepx.cn/xiju/6577988.htm)
-- [超音速客机未来北京飞上海可能只需半小时，普通人还要等多久才能坐上？该技术商业化应用面临哪些挑战？](http://www.movie.hkepx.cn/movie/1711969.htm)
-- [小雪删除互动回复](http://www.movie.hkepx.cn/movie/1556531.htm)
-- [各地多措并举护航粮食稳产增收](http://www.play.hengshemaoyi.cn/kongbu/3467795.htm)
-- [南博受赠文物一事原院长被判有期三年，他已 81 岁，可能会监外执行吗？为何是受贿罪而非盗窃文物罪？](http://www.movie.hkepx.cn/movie/2027222.htm)
+- [关于我舍友装外国人催发货](http://www.daogukj.com/pxvooxke/)
+- [小米澎湃OS4正式版发版计划](http://www.movie.hkepx.cn/xiju/1116357.htm)
+- [大禹看了沉默，愚公看了流泪](http://www.movie.hkepx.cn/xiju/0923150.htm)
+- [各省的刻板印象这一块](http://www.daogukj.com/wwpryopq/)
+- [广电总局：AI生成节目须标识](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
+- [问一下大家，总层24，只剩18楼和5楼，选哪个比较好？](http://www.movie.hkepx.cn/xiju/6581777.htm)
+- [孩子父亲回应“幼童从18楼坠亡”](http://www.daogukj.com/ydetypas/)
+- [中国女子板球队一场没打被淘汰](http://www.movie.hkepx.cn/xiju/1440565.htm)
+- [中国运动员在日本机场干等6小时](http://www.movie.hkepx.cn/movie/0748348.htm)
+- [广电总局表示，将机顶盒功能以软件形态内置于电视机，会对行业带来哪些变化？能解决看电视麻烦的问题吗？](http://www.daogukj.com/7529047)
+- [宇树科技大涨](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
+- [英国可能解体又不太可能](http://www.movie.hkepx.cn/movie/9462286.htm)
+- [美国大模型已被日本错误历史观污染](http://www.movie.hkepx.cn/xiju/6577988.htm)
+- [女子体内取出197枚子宫肌瘤](http://www.movie.hkepx.cn/movie/1711969.htm)
+- [网传“外卖员向餐食吐口水”系摆拍](http://www.movie.hkepx.cn/movie/1556531.htm)
+- [从运河里看懂中华民族的硬核浪漫](http://www.play.hengshemaoyi.cn/kongbu/3467795.htm)
+- [浙江一猪景房8888元一晚](http://www.movie.hkepx.cn/movie/2027222.htm)
 
 </details>
 
 ## 原始来源
 
-- [香港运动员带道德经参加亚运会](https://s.weibo.com/weibo?q=%E9%A6%99%E6%B8%AF%E8%BF%90%E5%8A%A8%E5%91%98%E5%B8%A6%E9%81%93%E5%BE%B7%E7%BB%8F%E5%8F%82%E5%8A%A0%E4%BA%9A%E8%BF%90%E4%BC%9A)
+- [敬一丹告别仪式挽联令人动容](https://www.baidu.com/s?wd=%E6%95%AC%E4%B8%80%E4%B8%B9%E5%91%8A%E5%88%AB%E4%BB%AA%E5%BC%8F%E6%8C%BD%E8%81%94%E4%BB%A4%E4%BA%BA%E5%8A%A8%E5%AE%B9&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 3c6a21536bf23b284bdc -->
+<!-- content-fingerprint: 8f283f6649f1d088174d -->
