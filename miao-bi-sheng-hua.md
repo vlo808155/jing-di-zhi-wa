@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 影视飓风评测 看完不想买了
+# 立志成为恶兽第四集【up动画】【AI全民制作人】
 
-> 来源：微博热搜 · 排名：第 20 位 · 热度：32423 · 分类：数码 · 更新：2026-09-18T05:36:25+08:00
+> 来源：哔哩哔哩热门 · 排名：第 19 位 · 热度：1346920 · 分类：小剧场 · 更新：2026-09-18T07:39:07+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“影视飓风评测 看完不想买了”位列第 20 位，公开热度指标为 32423，榜单分类为“数码”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“立志成为恶兽第四集【up动画】【AI全民制作人】”位列第 19 位，公开热度指标为 1346920，榜单分类为“小剧场”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+哔哩哔哩热门本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `数码`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `小剧场`
 
 ## 相关热点
 
-- [于东来建议给家人花钱不超3成收入](sheng-dong-huo-po.md)
-- [坠亡幼童父亲举报妻子发布的视频侵犯其肖像权，他有权这么做吗？](xu-xu-ru-sheng.md)
-- [【何同学】一镜到底。iPhone 18 Pro首发体验](huo-ling-huo-xian.md)
-- [李小璐 rapper赵涛](you-sheng-you-se.md)
+- [范玮琪方否认曾说“不然就会像大S”](sheng-dong-huo-po.md)
+- [亚运会有日本选手被分配男女一屋](xu-xu-ru-sheng.md)
+- [于东来建议给家人花钱不超3成收入](huo-ling-huo-xian.md)
+- [坠亡幼童父亲举报妻子发布的视频侵犯其肖像权，他有权这么做吗？](you-sheng-you-se.md)
 
 ## 站内推荐
 
-- [我只是想煮一个鸡蛋，互联网却想教我做人❤️](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [选哪个？iPhone 18 Pro&Duo深度上手](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [友：时长越长观看越少。 我：但这里是B站诶！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [义乌开始卖飞碟了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [时隔3年多 美联储加息25个基点](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [听说你最近一段时间一直在找我？【AI全民制作人】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
+- [阿祖从军记（二）](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [人机大战](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [【边狱巴士】“今天，我杀了妈妈...”丨 主线第10章汉化（施工中）](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [甄姬：没见第一波线，第二波直接来8个？！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [[只狼深扒]白蛇真的是双头蛇吗？答案可能超乎你的想象！](http://www.play.hengshemaoyi.cn/xiju/5042626.htm)
-- [有哪些演员让你觉得第一眼惊为天人，后面觉得很普通，甚至怪怪的？](http://www.play.hengshemaoyi.cn/xiju/7956106.htm)
+- [国家统计局数据显示8月份一线城市商品住宅销售价格环比上涨，这意味着楼市出现了什么信号？](http://www.play.hengshemaoyi.cn/xiju/5042626.htm)
+- [LPL 2026 赛季资格赛TES 3-1 iG，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/xiju/7956106.htm)
 - [夏粮旺季收购基本结束](http://www.movie.hkepx.cn/movie/4841456.htm)
-- [偶像来了 国际大花](http://www.movie.hkepx.cn/xiju/7247523.htm)
-- [王毅：中美双方要筹备好下阶段高层交往](http://www.movie.hkepx.cn/movie/5948248.htm)
+- [2岁幼童18楼坠亡邻居发声](http://www.movie.hkepx.cn/xiju/7247523.htm)
+- [媒体评南京博物院原院长获刑三年](http://www.movie.hkepx.cn/movie/5948248.htm)
 - [苹果最贵手机还没开售就翻车了吗](http://www.daogukj.com/jeqkpawe/)
-- [iPhone18 Pro性能分析：五年来最强的芯片升级！](http://www.daogukj.com/4687345)
-- [阿祖从军记（二）](http://www.daogukj.com/vpnhlcyn/)
-- [918](http://www.movie.hkepx.cn/movie/1315163.htm)
-- [UFO高速飞过墨西哥城上空](http://www.daogukj.com/rwppwnza/)
-- [广东惠州公安查获42公斤散装柴油](http://www.play.hengshemaoyi.cn/kongbu/1523322.htm)
-- [如何看待前 OpenAI 研究员发布的新模型「Jev」 ？这类模型会成为 Agent 的新技术路线吗？](http://www.daogukj.com/2194242)
-- [19310918 不能忘不敢忘](http://www.play.hengshemaoyi.cn/xiju/4017132.htm)
-- [人民日报钟声：病根不除 日本没有未来](http://www.movie.hkepx.cn/xiju/3408542.htm)
-- [非遗竹编荷花小摊在深圳意外走红](http://www.daogukj.com/awgjlldl/)
-- [公考大战](http://www.play.hengshemaoyi.cn/xiju/6207562.htm)
-- [我只是想煮一个鸡蛋，互联网却想教我做人❤️](http://www.daogukj.com/mrofapbq/)
-- [30岁后找对象比赚钱还难](http://www.play.hengshemaoyi.cn/kongbu/5453073.htm)
-- [机顶盒将成为历史](http://www.play.hengshemaoyi.cn/xiju/6087046.htm)
-- [女子40天内两次脑梗 与烟雾病有关](http://www.movie.hkepx.cn/movie/8965197.htm)
-- [【绯红回响EP19】寒霜之刃【费那奇动画周×updream-AI动画征集】【up动画】](http://www.play.hengshemaoyi.cn/kongbu/7748359.htm)
+- [全新理想 i9 今晚发布，有哪些技术亮点？预计销量如何？](http://www.daogukj.com/4687345)
+- [如果能预知20年人生，你还会选择出生吗？](http://www.daogukj.com/vpnhlcyn/)
+- [生娃失明失聪女子原本是英语老师](http://www.movie.hkepx.cn/movie/1315163.htm)
+- [美股飙涨！Arm涨超8%英特尔涨超7%](http://www.daogukj.com/rwppwnza/)
+- [男子碾轧民警被核准死刑](http://www.play.hengshemaoyi.cn/kongbu/1523322.htm)
+- [我有学历，有经验，但是迟迟得不到晋升，该怎么办呢？](http://www.daogukj.com/2194242)
+- [[只狼深扒]白蛇真的是双头蛇吗？答案可能超乎你的想象！](http://www.play.hengshemaoyi.cn/xiju/4017132.htm)
+- [铭记历史 吾辈自强](http://www.movie.hkepx.cn/xiju/3408542.htm)
+- [友：时长越长观看越少。 我：但这里是B站诶！](http://www.daogukj.com/awgjlldl/)
+- [偶像来了 国际大花](http://www.play.hengshemaoyi.cn/xiju/6207562.htm)
+- [听说你最近一段时间一直在找我？【AI全民制作人】](http://www.daogukj.com/mrofapbq/)
+- [32万岚图新车十天频发故障](http://www.play.hengshemaoyi.cn/kongbu/5453073.htm)
+- [一车人都买错票车站 12306新增提醒](http://www.play.hengshemaoyi.cn/xiju/6087046.htm)
+- [九一八事变爆发95年](http://www.movie.hkepx.cn/movie/8965197.htm)
+- [小孩哥手搓语文书太有才了](http://www.play.hengshemaoyi.cn/kongbu/7748359.htm)
 - [苏轼在黄州如此凄惨，为何还很快乐？](http://www.movie.hkepx.cn/xiju/0862966.htm)
 - [戚薇：不想被时代碾过去 就跳上火车](http://www.play.hengshemaoyi.cn/kongbu/9726074.htm)
-- [时隔3年多 美联储加息25个基点](http://www.movie.hkepx.cn/movie/4830470.htm)
-- [坠亡幼童父亲举报妻子发布的视频侵犯其肖像权，他有权这么做吗？](http://www.play.hengshemaoyi.cn/xiju/3660611.htm)
+- [甄姬：没见第一波线，第二波直接来8个？！](http://www.movie.hkepx.cn/movie/4830470.htm)
+- [亚运会有日本选手被分配男女一屋](http://www.play.hengshemaoyi.cn/xiju/3660611.htm)
 - [杨某媛疑似在西班牙读博](http://www.daogukj.com/7984737)
-- [敬一丹告别仪式](http://www.movie.hkepx.cn/movie/5738447.htm)
-- [全款买房的人越来越多了](http://www.daogukj.com/cjltxhnp/)
-- [女子直播遭400多斤发情公鹿偷袭](http://www.play.hengshemaoyi.cn/kongbu/7175788.htm)
-- [百度搜索为什么没落了？](http://www.movie.hkepx.cn/movie/4124367.htm)
-- [山东菏泽首位女市长李春英辞职](http://www.play.hengshemaoyi.cn/xiju/7951635.htm)
-- [张一鸣身家突破 1050 亿美元首次成亚洲首富，如何评价其商业成就？](http://www.play.hengshemaoyi.cn/xiju/9311263.htm)
-- [史上最没用比赛](http://www.daogukj.com/qhynwuoo/)
-- [如果存在一个100%深海覆盖的海洋星球，对人类来说会不会非常恐怖？里面会发展出什么生命吗？](http://www.play.hengshemaoyi.cn/xiju/2836720.htm)
+- [国产榴莲大丰收](http://www.movie.hkepx.cn/movie/5738447.htm)
+- [英特尔市值一夜暴涨2729亿元](http://www.daogukj.com/cjltxhnp/)
+- [56岁保安遭业主拳击头部后死亡](http://www.play.hengshemaoyi.cn/kongbu/7175788.htm)
+- [小猫突然把小狗的头扶正了](http://www.movie.hkepx.cn/movie/4124367.htm)
+- [亚运会半决赛中国男篮对阵日本](http://www.play.hengshemaoyi.cn/xiju/7951635.htm)
+- [学生称同济大学痛经请假需脱裤检查，校医院称检查由医生视情况决定，学校有权这么做吗？有更好解决办法吗？](http://www.play.hengshemaoyi.cn/xiju/9311263.htm)
+- [探访“梅姨案”模拟画像师：和本人相似度高达九成？ | 今天上个什么班EP01【视频播客】](http://www.daogukj.com/qhynwuoo/)
+- [日本亚运会住宿条件遭吐槽，真实情况如何？原因是什么？](http://www.play.hengshemaoyi.cn/xiju/2836720.htm)
 - [孙颖莎谈第一次住邮轮](http://www.daogukj.com/0046089)
-- [如果你离职了，还会联系以前的领导吗？](http://www.play.hengshemaoyi.cn/kongbu/6160337.htm)
-- [选哪个？iPhone 18 Pro&Duo深度上手](http://www.play.hengshemaoyi.cn/kongbu/7581667.htm)
-- [一车人都买错票车站 12306新增提醒](http://www.movie.hkepx.cn/movie/1557680.htm)
-- [国乒、国羽、中国体操队被困名古屋机场，现场只提供水无食品，为什么会这样？暴露出亚运会组织方的哪些问题？](http://www.movie.hkepx.cn/movie/5183784.htm)
-- [猪景房8888元一晚还送一头猪](http://www.movie.hkepx.cn/xiju/8111897.htm)
+- [南京博物院引发关注的画作中，仍有 1 幅下落不明，可能去哪儿了？还能追回来吗？](http://www.play.hengshemaoyi.cn/kongbu/6160337.htm)
+- [阿祖从军记（二）](http://www.play.hengshemaoyi.cn/kongbu/7581667.htm)
+- [国安部披露AI抱团“劫持”网站](http://www.movie.hkepx.cn/movie/1557680.htm)
+- [如果存在一个100%深海覆盖的海洋星球，对人类来说会不会非常恐怖？里面会发展出什么生命吗？](http://www.movie.hkepx.cn/movie/5183784.htm)
+- [机顶盒将成为历史](http://www.movie.hkepx.cn/xiju/8111897.htm)
 - [婚服29.9元婚车自家车 极简婚礼火了](http://www.play.hengshemaoyi.cn/kongbu/4378701.htm)
-- [中国团队发现5.18亿年前“玉净虫”](http://www.daogukj.com/7904792)
-- [一样的父母一样的教，大儿子考上好大学，小儿子却染了黄头发，为什么会有这么大差别？](http://www.movie.hkepx.cn/xiju/7283893.htm)
-- [大禹看了沉默，愚公看了流泪](http://www.daogukj.com/4389315)
-- [义乌开始卖飞碟了](http://www.movie.hkepx.cn/xiju/0722929.htm)
-- [如果你出生于1992年至2003年之间](http://www.play.hengshemaoyi.cn/kongbu/4443491.htm)
-- [国内手机“无卡时代”更进一步](http://www.daogukj.com/4354382)
-- [有没有好吃的美食推荐呀？](http://www.daogukj.com/4226089)
-- [不是不够努力：拆解后发国家工业化的结构性枷锁](http://www.movie.hkepx.cn/xiju/3342028.htm)
-- [男子被宣告死亡8年后重新出现](http://www.daogukj.com/jkvkxuzz/)
+- [全款买房的人越来越多了](http://www.daogukj.com/7904792)
+- [人民日报：病根不除日本没有未来](http://www.movie.hkepx.cn/xiju/7283893.htm)
+- [美联储宣布加息 25 个基点，时隔三年再度加息，对全球经济有哪些影响？全球资产价格会有怎样的连锁反应？](http://www.daogukj.com/4389315)
+- [【边狱巴士】“今天，我杀了妈妈...”丨 主线第10章汉化（施工中）](http://www.movie.hkepx.cn/xiju/0722929.htm)
+- [日本玉米便当](http://www.play.hengshemaoyi.cn/kongbu/4443491.htm)
+- [公考大战](http://www.daogukj.com/4354382)
+- [俄罗斯为何要给输华天然气管道改名](http://www.daogukj.com/4226089)
+- [2026年了，还有人听《权御天下》吗？](http://www.movie.hkepx.cn/xiju/3342028.htm)
+- [国际大花李冰冰国民女主白鹿对应照片](http://www.daogukj.com/jkvkxuzz/)
 
 </details>
 
 ## 原始来源
 
-- [影视飓风评测 看完不想买了](https://s.weibo.com/weibo?q=%E5%BD%B1%E8%A7%86%E9%A3%93%E9%A3%8E%E8%AF%84%E6%B5%8B%20%E7%9C%8B%E5%AE%8C%E4%B8%8D%E6%83%B3%E4%B9%B0%E4%BA%86)
+- [立志成为恶兽第四集【up动画】【AI全民制作人】](https://b23.tv/BV1wAeH6nEtB)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 7036095593789e9f23f7 -->
+<!-- content-fingerprint: 24a8c5f6d6f74dc2a996 -->
