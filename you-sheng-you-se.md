@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 胡歌被排到了第八位
+# 大禹看了沉默，愚公看了流泪
 
-> 来源：微博热搜 · 排名：第 21 位 · 热度：306379 · 分类：剧集 · 更新：2026-09-17T17:40:16+08:00
+> 来源：哔哩哔哩热门 · 排名：第 20 位 · 热度：3727904 · 分类：日常 · 更新：2026-09-17T22:27:51+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“胡歌被排到了第八位”位列第 21 位，公开热度指标为 306379，榜单分类为“剧集”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“大禹看了沉默，愚公看了流泪”位列第 20 位，公开热度指标为 3727904，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：这是广西的、西南的、中国的平陆运河！ 2026年9月16日，位于广西的平陆运河正式通航，这是新中国第一条通江达海的大运河。 不是每个人的家园生来就面朝大海，但每片土地都应有机会通江达海。 欢迎观看由 平陆运河集团有限公司 与@星球研究所 联合制作的科普视频《平陆运河，非挖不可？》，一起见证中国人的向海之路！
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `剧集`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `日常`
 
 ## 相关热点
 
-- [一车人都买错票车站 12306新增提醒](yin-ren-ru-sheng.md)
-- [女子体内取出197枚子宫肌瘤](jing-di-zhi-wa.md)
-- [多地严控手机进校园，一刀切禁止手机，到底是保护孩子，还是隔绝了必要的学习工具？](hai-kuo-tian-kong.md)
-- [大禹看了沉默，愚公看了流泪](gao-zhan-yuan-zhu.md)
+- [村委会组织修管道塌方村副主任身亡](yin-ren-ru-sheng.md)
+- [佟丽娅称儿子常说一家三口多好](jing-di-zhi-wa.md)
+- [医生教你读懂高血压](hai-kuo-tian-kong.md)
+- [项羽出卖曹无伤，是不是短视？](gao-zhan-yuan-zhu.md)
 
 ## 站内推荐
 
-- [国乒、国羽、中国体操队被困名古屋机场，现场只提供水无食品，为什么会这样？暴露出亚运会组织方的哪些问题？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [百度搜索为什么没落了？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
-- [炽日将烬 // 2026无畏契约全球冠军赛主题曲](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [天津漫展手机事件](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [敬一丹告别仪式挽联令人动容](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [张一鸣身家突破 1050 亿美元首次成亚洲首富，如何评价其商业成就？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
+- [LPL 2026 赛季资格赛TES 3-1 iG，如何评价这场比赛？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [如何看待前 OpenAI 研究员发布的新模型「Jev」 ？这类模型会成为 Agent 的新技术路线吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [为什么「翻篇是人生最重要的能力之一」？面对不愿放下的过往，人们该如何自处？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [圆梦时刻！当偶像与你同台竞技是种什么样的体验？【贴地飞行-三代】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [广电总局表示，将机顶盒功能以软件形态内置于电视机，会对行业带来哪些变化？能解决看电视麻烦的问题吗？](http://www.daogukj.com/xpqxgjcv/)
-- [赛力斯](http://www.play.hengshemaoyi.cn/xiju/9504622.htm)
-- [美国返还58件中国文物](http://www.movie.hkepx.cn/movie/6749947.htm)
-- [超音速客机未来北京飞上海可能只需半小时，普通人还要等多久才能坐上？该技术商业化应用面临哪些挑战？](http://www.play.hengshemaoyi.cn/xiju/4948083.htm)
-- [男子被宣告死亡8年后重新出现](http://www.movie.hkepx.cn/xiju/7607655.htm)
-- [大禹看了沉默，愚公看了流泪](http://www.play.hengshemaoyi.cn/xiju/5325575.htm)
-- [从外卖员到世界冠军 他经历了什么](http://www.play.hengshemaoyi.cn/kongbu/9379279.htm)
-- [亚运会中国代表团自带检测设备？不实](http://www.daogukj.com/egbjfccc/)
-- [【何同学】很大胆。iPhone 18 Pro首发体验](http://www.movie.hkepx.cn/movie/2907268.htm)
-- [微信 三折叠](http://www.movie.hkepx.cn/xiju/1786474.htm)
-- [霉霉丈夫遭遇庞氏骗局](http://www.play.hengshemaoyi.cn/kongbu/3660768.htm)
-- [天津漫展手机事件](http://www.movie.hkepx.cn/xiju/4183202.htm)
-- [女生称同济大学痛经请假需脱裤检查](http://www.play.hengshemaoyi.cn/kongbu/6256469.htm)
-- [中国女子板球队一场没打被淘汰](http://www.movie.hkepx.cn/xiju/5108742.htm)
-- [《蓝色星原：旅谣》枫糖PV | 【枫糖的一天】](http://www.movie.hkepx.cn/xiju/7519171.htm)
-- [晚晚 泡泡玛特](http://www.movie.hkepx.cn/movie/2577743.htm)
-- [访日中国大陆游客8月减少59%](http://www.movie.hkepx.cn/xiju/8256350.htm)
-- [《原神》沃雅妮莎角色PV——「心之声」](http://www.play.hengshemaoyi.cn/kongbu/3840000.htm)
-- [高市内阁全体阁僚提交辞呈](http://www.daogukj.com/pggpwtpd/)
-- [机顶盒将成为历史](http://www.play.hengshemaoyi.cn/xiju/2942368.htm)
-- [幼童坠亡父亲或涉过失致死罪](http://www.movie.hkepx.cn/movie/3592629.htm)
-- [英国一小村庄宣布脱英建国](http://www.play.hengshemaoyi.cn/xiju/8731518.htm)
-- [一车人都买错票车站 12306新增提醒](http://www.play.hengshemaoyi.cn/xiju/3438881.htm)
-- [敬一丹告别仪式挽联令人动容](http://www.daogukj.com/rvtjhukc/)
-- [中方回应特朗普可对买俄石油国加税](http://www.play.hengshemaoyi.cn/kongbu/3059344.htm)
-- [《异环》1.4版本PV「祷歌为谁而诵」](http://www.movie.hkepx.cn/movie/8044035.htm)
-- [广西真正靠海了](http://www.movie.hkepx.cn/movie/0744393.htm)
-- [月薪1万已超过80%的人](http://www.play.hengshemaoyi.cn/xiju/2844176.htm)
-- [中国新中式女装在新加坡卖爆了](http://www.play.hengshemaoyi.cn/kongbu/4388909.htm)
-- [为什么很多小说或电视剧里都是镇北侯，怎么没有镇南侯？](http://www.play.hengshemaoyi.cn/kongbu/7258246.htm)
-- [华为汪涛发布业界首个NPO超节点](http://www.movie.hkepx.cn/movie/3477880.htm)
-- [如何看待赛力斯问界将在 2027 年 1 月 1 日正式撤出鸿蒙智行和华为专卖店？](http://www.daogukj.com/mxxaaoqi/)
-- [琵琶曲 l 成都超人](http://www.movie.hkepx.cn/xiju/0410176.htm)
+- [机顶盒将成为历史](http://www.daogukj.com/xpqxgjcv/)
+- [iOS27电池图标 丑](http://www.play.hengshemaoyi.cn/xiju/9504622.htm)
+- [楼市进入“二手房时代”](http://www.movie.hkepx.cn/movie/6749947.htm)
+- [女子生育后双目失明双耳失聪](http://www.play.hengshemaoyi.cn/xiju/4948083.htm)
+- [30岁后找对象比赚钱还难](http://www.movie.hkepx.cn/xiju/7607655.htm)
+- [项羽出卖曹无伤，是不是短视？](http://www.play.hengshemaoyi.cn/xiju/5325575.htm)
+- [不是不够努力：拆解后发国家工业化的结构性枷锁](http://www.play.hengshemaoyi.cn/kongbu/9379279.htm)
+- [陈建州拜托大家3件事](http://www.daogukj.com/egbjfccc/)
+- [苏轼在黄州如此凄惨，为何还很快乐？](http://www.movie.hkepx.cn/movie/2907268.htm)
+- [【何同学】很大胆。iPhone 18 Pro首发体验](http://www.movie.hkepx.cn/xiju/1786474.htm)
+- [《鸣潮》先约电台EP3.7——心《心月辞》](http://www.play.hengshemaoyi.cn/kongbu/3660768.htm)
+- [为什么「翻篇是人生最重要的能力之一」？面对不愿放下的过往，人们该如何自处？](http://www.movie.hkepx.cn/xiju/4183202.htm)
+- [拒绝了十五年前拒绝过我的学校](http://www.play.hengshemaoyi.cn/kongbu/6256469.htm)
+- [王毅同美国国务卿鲁比奥通电话](http://www.movie.hkepx.cn/xiju/5108742.htm)
+- [阿祖从军记（二）](http://www.movie.hkepx.cn/xiju/7519171.htm)
+- [SK海力士、美光科技均涨超5%](http://www.movie.hkepx.cn/movie/2577743.htm)
+- [武大口腔手术纠纷](http://www.movie.hkepx.cn/xiju/8256350.htm)
+- [【独家】时光代理人 第三季 PartOne 第7集 唐人街探案【8月国创】](http://www.play.hengshemaoyi.cn/kongbu/3840000.htm)
+- [猪景房8888元一晚还送一头猪](http://www.daogukj.com/pggpwtpd/)
+- [中美外长通电话](http://www.play.hengshemaoyi.cn/xiju/2942368.htm)
+- [亚运会](http://www.movie.hkepx.cn/movie/3592629.htm)
+- [殷桃回应嫌弃邓为](http://www.play.hengshemaoyi.cn/xiju/8731518.htm)
+- [村委会组织修管道塌方村副主任身亡](http://www.play.hengshemaoyi.cn/xiju/3438881.htm)
+- [圆梦时刻！当偶像与你同台竞技是种什么样的体验？【贴地飞行-三代】](http://www.daogukj.com/rvtjhukc/)
+- [王毅：中美双方要筹备好下阶段高层交往](http://www.play.hengshemaoyi.cn/kongbu/3059344.htm)
+- [有哪些演员让你觉得第一眼惊为天人，后面觉得很普通，甚至怪怪的？](http://www.movie.hkepx.cn/movie/8044035.htm)
+- [琵琶曲 l 成都超人](http://www.movie.hkepx.cn/movie/0744393.htm)
+- [全款买房的人越来越多了](http://www.play.hengshemaoyi.cn/xiju/2844176.htm)
+- [史上最没用比赛](http://www.play.hengshemaoyi.cn/kongbu/4388909.htm)
+- [小孩哥手搓语文书太有才了](http://www.play.hengshemaoyi.cn/kongbu/7258246.htm)
+- [客服回应iPhone Duo不支持微信双开](http://www.movie.hkepx.cn/movie/3477880.htm)
+- [外卖员向餐食吐口水摆拍案细节披露](http://www.daogukj.com/mxxaaoqi/)
+- [男子被宣告死亡8年后重新出现](http://www.movie.hkepx.cn/xiju/0410176.htm)
 - [中国运动员在日本机场干等6小时](http://www.play.hengshemaoyi.cn/kongbu/4983709.htm)
-- [4 月被击落美军官首次讲述 50 小时惊险获救经历，如何评价美军动员 5000 人参与救援行动？](http://www.play.hengshemaoyi.cn/xiju/9262750.htm)
-- [李小璐 rapper赵涛](http://www.play.hengshemaoyi.cn/kongbu/4671141.htm)
+- [电影《神探之痕迹》定档10月1日上映，张译主演，根据《中国神探——共和国刑警崔道植》改编，你有何期待？](http://www.play.hengshemaoyi.cn/xiju/9262750.htm)
+- [在职场怎么保护好自己不受伤害？](http://www.play.hengshemaoyi.cn/kongbu/4671141.htm)
 - [亚运女子板球1/4决赛场地积水取消，中国队世界排名低于对手被判负，一场未打结束亚运征程，这规则合理吗？](http://www.movie.hkepx.cn/movie/8349964.htm)
-- [成龙、洪金宝都仰仗的男人钱嘉乐，为什么就是不火？](http://www.daogukj.com/4716922)
-- [亚运会 离谱](http://www.movie.hkepx.cn/movie/5393498.htm)
-- [DeepSeek 算子负责人发文《我不得不把才华埋葬在昨天》，是在反击 Anthropic 吗？](http://www.movie.hkepx.cn/movie/5460085.htm)
-- [为什么《泰坦尼克号》里要强行给男二卡尔安排个大萧条期间破产自杀的结局？](http://www.play.hengshemaoyi.cn/xiju/3011100.htm)
-- [举手式睡姿是身体在求救](http://www.play.hengshemaoyi.cn/xiju/4637538.htm)
-- [我国绿色贸易进出口规模居全球首位](http://www.movie.hkepx.cn/movie/8940560.htm)
-- [小米澎湃OS4正式版发版计划](http://www.movie.hkepx.cn/movie/0831513.htm)
-- [世纪工程藏着哪些硬核亮点](http://www.daogukj.com/cmhomvpy/)
-- [AI危机来了吗](http://www.play.hengshemaoyi.cn/kongbu/7216702.htm)
-- [国乒、国羽、中国体操队被困名古屋机场，现场只提供水无食品，为什么会这样？暴露出亚运会组织方的哪些问题？](http://www.play.hengshemaoyi.cn/xiju/1028140.htm)
-- [各省的刻板印象这一块](http://www.movie.hkepx.cn/movie/1414994.htm)
-- [折叠还是直板？iPhone 18 Pro&Duo深度视频](http://www.daogukj.com/2345067)
-- [印巴军舰海上相撞谁不专业](http://www.movie.hkepx.cn/movie/8392048.htm)
+- [四成中国受访者称非宁德时代不选](http://www.daogukj.com/4716922)
+- [中国团队发现5.18亿年前“玉净虫”](http://www.movie.hkepx.cn/movie/5393498.htm)
+- [国内手机“无卡时代”更进一步](http://www.movie.hkepx.cn/movie/5460085.htm)
+- [于东来建议给家人花钱不超3成收入](http://www.play.hengshemaoyi.cn/xiju/3011100.htm)
+- [UFO高速飞过墨西哥城上空](http://www.play.hengshemaoyi.cn/xiju/4637538.htm)
+- [平陆运河激活西部“新动脉”](http://www.movie.hkepx.cn/movie/8940560.htm)
+- [女子拍下米虫从米粒中破壳钻出过程](http://www.movie.hkepx.cn/movie/0831513.htm)
+- [夏粮旺季收购基本结束](http://www.daogukj.com/cmhomvpy/)
+- [月薪1万已超过80%的人](http://www.play.hengshemaoyi.cn/kongbu/7216702.htm)
+- [张一鸣身家突破 1050 亿美元首次成亚洲首富，如何评价其商业成就？](http://www.play.hengshemaoyi.cn/xiju/1028140.htm)
+- [英国可能解体又不太可能](http://www.movie.hkepx.cn/movie/1414994.htm)
+- [选哪个？iPhone 18 Pro&Duo深度上手](http://www.daogukj.com/2345067)
+- [超86万中小学教师有研究生学历](http://www.movie.hkepx.cn/movie/8392048.htm)
 
 </details>
 
 ## 原始来源
 
-- [胡歌被排到了第八位](https://s.weibo.com/weibo?q=%E8%83%A1%E6%AD%8C%E8%A2%AB%E6%8E%92%E5%88%B0%E4%BA%86%E7%AC%AC%E5%85%AB%E4%BD%8D)
+- [大禹看了沉默，愚公看了流泪](https://b23.tv/BV1fYes6xEmq)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4e79f0578a8b43a03c2c -->
+<!-- content-fingerprint: bdf544110011ea038f53 -->
