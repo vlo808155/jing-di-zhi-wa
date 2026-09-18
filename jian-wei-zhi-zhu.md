@@ -1,35 +1,35 @@
 [热点索引](README.md)
 
-# 一座雕像何以让日本政府如此紧张
+# 广西孙子无血缘案奶奶听证后晕倒
 
-> 来源：百度热搜 · 排名：第 18 位 · 热度：6092935 · 更新：2026-09-18T09:29:05+08:00
+> 来源：微博热搜 · 排名：第 19 位 · 热度：262465 · 分类：民生新闻 · 更新：2026-09-18T14:28:47+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“一座雕像何以让日本政府如此紧张”位列第 18 位，公开热度指标为 6092935。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“广西孙子无血缘案奶奶听证后晕倒”位列第 19 位，公开热度指标为 262465，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：今年8月14日，德国民间团体在柏林“和平少女”雕像前举行纪念活动。此前，该雕像自2020年落成后多次遭日本政府阻挠，2022年日方曾要求拆除，去年被迫移至艺术园区，明年1月后去向未决。今年3月联合国专家呼吁日本正视真相并赔偿。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `民生新闻`
 
 ## 相关热点
 
-- [小猫突然把小狗的头扶正了](du-ju-hui-yan.md)
-- [媒体：日本一些人活在军国主义迷梦中](bie-ju-jiang-xin.md)
-- [张一鸣身家突破 1050 亿美元首次成亚洲首富，如何评价其商业成就？](qiao-duo-tian-gong.md)
-- [重返渴望现场｜百事可乐音乐盛典完整回放正式上线！](gui-fu-shen-gong.md)
+- [舍友夸发型帅气男子被拍脸盗刷1.2万](du-ju-hui-yan.md)
+- [如何看待华为突破冯诺依曼「单机」架构？](bie-ju-jiang-xin.md)
+- [《原神》薇斯纳角色PV——「『风』行迷踪」](qiao-duo-tian-gong.md)
+- [小时候最害怕的事情还是发生了](gui-fu-shen-gong.md)
 
 ## 站内推荐
 
-- [日本亚运会住宿条件遭吐槽，真实情况如何？原因是什么？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [天津漫展手机事件](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [国产榴莲大丰收](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [小孩哥1比1手搓语文书](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
-- [苹果最贵手机还没开售就翻车了吗](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
+- [义乌开始卖载人飞碟飞行器了，单笔订单卖出 1.2 亿元，离普通人还有多远？商业化还要解决哪些问题？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
+- [【1931.9.18-2026.9.18】九一八事变爆发95周年，请留一分钟](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [沈鼓集团暴涨250% 市值突破2000亿元](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [iPhone18Pro黄牛一天一个价](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [曝何瑞贤有孩子了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
 
@@ -37,62 +37,62 @@
 <summary>展开更多相关内容</summary>
 
 - [为什么麦当劳在中国不如肯德基？](http://www.daogukj.com/sqkgthem/)
-- [医生回应举手式睡姿是身体在求救](http://www.play.hengshemaoyi.cn/xiju/2157274.htm)
-- [如何看待 GPT-6-Astra 刷新信息学竞赛题复杂度记录？](http://www.daogukj.com/qzvccsto/)
-- [外卖员向餐食吐口水摆拍案细节披露](http://www.daogukj.com/9017409)
-- [美联储加息的真相是什么](http://www.movie.hkepx.cn/movie/5908744.htm)
-- [动态视频｜3天拍完？影视飓风的iPhone评测是怎么拍的？](http://www.movie.hkepx.cn/movie/7241164.htm)
-- [坠亡男童父亲被指出轨 妻子回应](http://www.movie.hkepx.cn/xiju/4493313.htm)
-- [于东来建议给家人花钱不超3成收入](http://www.movie.hkepx.cn/movie/0771662.htm)
-- [918](http://www.movie.hkepx.cn/xiju/0992447.htm)
-- [桂林铁匠救下红军 两家情谊延续至今](http://www.movie.hkepx.cn/movie/0097227.htm)
-- [探访“梅姨案”模拟画像师：和本人相似度高达九成？ | 今天上个什么班EP01【视频播客】](http://www.play.hengshemaoyi.cn/xiju/0858406.htm)
-- [中国运动员在日本机场干等6小时](http://www.movie.hkepx.cn/xiju/5889900.htm)
-- [坠亡幼童父亲举报妻子发布的视频侵犯其肖像权，他有权这么做吗？](http://www.movie.hkepx.cn/movie/4398357.htm)
-- [十年，你会记得哪个瞬间?](http://www.play.hengshemaoyi.cn/xiju/3710304.htm)
-- [中式魅魔挑战（你能闯到第几关？）](http://www.daogukj.com/1582634)
-- [平陆运河激活西部“新动脉”](http://www.movie.hkepx.cn/xiju/7460057.htm)
-- [机顶盒即将退场](http://www.daogukj.com/iuhthsij/)
-- [媒体评南京博物院原院长获刑三年](http://www.movie.hkepx.cn/xiju/2237917.htm)
-- [国产榴莲大丰收](http://www.movie.hkepx.cn/movie/0845608.htm)
-- [“勿忘九一八”撞钟鸣警仪式](http://www.daogukj.com/8581680)
-- [友：时长越长观看越少。 我：但这里是B站诶！](http://www.movie.hkepx.cn/xiju/4507906.htm)
-- [见证“勿忘九一八”撞钟鸣警仪式](http://www.movie.hkepx.cn/xiju/3471686.htm)
-- [宇树科技大涨重回500元，总市值重返2000亿元，当下是触底反弹还是下跌中继？谁在500元下方接盘？](http://www.play.hengshemaoyi.cn/xiju/5571527.htm)
-- [小孩哥1比1手搓语文书](http://www.play.hengshemaoyi.cn/kongbu/8650783.htm)
-- [楼市进入“二手房时代”](http://www.daogukj.com/3850284)
-- [我们为何依然要拉响防空警报](http://www.movie.hkepx.cn/xiju/1958046.htm)
-- [我们来了 刘雯](http://www.movie.hkepx.cn/movie/3150925.htm)
-- [为什么同样白天，地球上是一片明亮，而外太空却是添黑一片？](http://www.daogukj.com/twsaunno/)
-- [全款买房的人越来越多了](http://www.play.hengshemaoyi.cn/xiju/2788260.htm)
-- [义乌开始卖载人飞碟飞行器了，单笔订单卖出 1.2 亿元，离普通人还有多远？商业化还要解决哪些问题？](http://www.movie.hkepx.cn/movie/8401072.htm)
-- [日本亚运会住宿条件遭吐槽，真实情况如何？原因是什么？](http://www.daogukj.com/5256425)
-- [于东来建议给家人花钱不超 3 成收入，呼吁员工「为自己而活」，如何看待这一观点？](http://www.play.hengshemaoyi.cn/kongbu/6811189.htm)
-- [苹果最贵手机还没开售就翻车了吗](http://www.movie.hkepx.cn/movie/7189595.htm)
-- [阿祖从军记（二）](http://www.movie.hkepx.cn/xiju/1481443.htm)
+- [网传2026湾区升明月节目单](http://www.play.hengshemaoyi.cn/xiju/2157274.htm)
+- [张本智和：日本男团夺冠概率高于中国](http://www.daogukj.com/qzvccsto/)
+- [LadyGaga 代孕](http://www.daogukj.com/9017409)
+- [如何评价《原神》官方确认9月「深境螺旋」11层中「陆巡舰」、「愚人众特辖队」存在BUG？](http://www.movie.hkepx.cn/movie/5908744.htm)
+- [宁德时代：会造车的不一定会造电池](http://www.movie.hkepx.cn/movie/7241164.htm)
+- [子弟兵：大好河山寸土不让](http://www.movie.hkepx.cn/xiju/4493313.htm)
+- [司机偶遇东北虎妈带4只幼崽路边玩耍](http://www.movie.hkepx.cn/movie/0771662.htm)
+- [一千元班费引发的家长群大战](http://www.movie.hkepx.cn/xiju/0992447.htm)
+- [佟丽娅回应离婚对儿子的影响，称儿子现在还不知道父母离婚，孩子真的感受不到吗？如何看待她直面争议的态度？](http://www.movie.hkepx.cn/movie/0097227.htm)
+- [印度央行强制塔塔控股公司上市，或成印度史上最大 IPO，为什么还有强制上市的情况？](http://www.play.hengshemaoyi.cn/xiju/0858406.htm)
+- [佟丽娅否认陈思诚家暴传闻](http://www.movie.hkepx.cn/xiju/5889900.htm)
+- [动态视频｜3天拍完？影视飓风的iPhone评测是怎么拍的？](http://www.movie.hkepx.cn/movie/4398357.htm)
+- [如何看待「快递小哥救助摔倒老人反被索赔超 92 万」一案，终审驳回全部诉求 ？法律怎样降低救人的风险？](http://www.play.hengshemaoyi.cn/xiju/3710304.htm)
+- [这里只有一个是真的张起灵](http://www.daogukj.com/1582634)
+- [每个中国人都不能忘记九一八](http://www.movie.hkepx.cn/xiju/7460057.htm)
+- [住建部总工程师谈“好房子”建设](http://www.daogukj.com/iuhthsij/)
+- [人民币升破6.7](http://www.movie.hkepx.cn/xiju/2237917.htm)
+- [沈鼓集团暴涨250% 市值突破2000亿元](http://www.movie.hkepx.cn/movie/0845608.htm)
+- [12306回应“国庆期间高铁涨价”](http://www.daogukj.com/8581680)
+- [生娃失明失聪女子原本是英语老师](http://www.movie.hkepx.cn/xiju/4507906.htm)
+- [12306回应国庆高铁票涨价](http://www.movie.hkepx.cn/xiju/3471686.htm)
+- [网传浙江师范大学强制新生填写父母工作单位、月收入等12项隐私信息，为啥要填这么详细？真的有必要吗？](http://www.play.hengshemaoyi.cn/xiju/5571527.htm)
+- [iPhone18Pro黄牛一天一个价](http://www.play.hengshemaoyi.cn/kongbu/8650783.htm)
+- [上门女婿创业翻身改儿子姓氏起争议](http://www.daogukj.com/3850284)
+- [沈鼓](http://www.movie.hkepx.cn/xiju/1958046.htm)
+- [抹黑英雄必受严惩 歪曲历史绝不容忍](http://www.movie.hkepx.cn/movie/3150925.htm)
+- [全球陷入「抢钨大战」，两年时间价格上涨了约 9 倍，为啥会疯涨？钨这种稀有金属的战略价值体现在哪里？](http://www.daogukj.com/twsaunno/)
+- [《欢迎来龙餐馆》918日本上映](http://www.play.hengshemaoyi.cn/xiju/2788260.htm)
+- [这个小学生用烂梗骂人，惹怒7.8万人，满嘴烂梗的小学生，本质上就是油腻老登!](http://www.movie.hkepx.cn/movie/8401072.htm)
+- [义乌开始卖载人飞碟飞行器了，单笔订单卖出 1.2 亿元，离普通人还有多远？商业化还要解决哪些问题？](http://www.daogukj.com/5256425)
+- [中国先进制造接连“上新”](http://www.play.hengshemaoyi.cn/kongbu/6811189.htm)
+- [曝何瑞贤有孩子了](http://www.movie.hkepx.cn/movie/7189595.htm)
+- [【纪录片】生命奇观2 01 内蒙古高原](http://www.movie.hkepx.cn/xiju/1481443.htm)
 - [【独家】时光代理人 第三季 PartOne 第7集 唐人街探案【8月国创】](http://www.movie.hkepx.cn/movie/5934231.htm)
-- [2026年了，还有人听《权御天下》吗？](http://www.daogukj.com/suhrxest/)
-- [中国和俄罗斯投下反对票](http://www.play.hengshemaoyi.cn/xiju/8374811.htm)
-- [警惕外卖来电泄露门牌号](http://www.movie.hkepx.cn/movie/5917708.htm)
-- [男子碾轧民警被核准死刑](http://www.movie.hkepx.cn/movie/2673504.htm)
-- [南京博物院引发关注的画作中，仍有 1 幅下落不明，可能去哪儿了？还能追回来吗？](http://www.movie.hkepx.cn/xiju/9719392.htm)
-- [UFO高速飞过墨西哥城上空](http://www.play.hengshemaoyi.cn/xiju/5111103.htm)
-- [陈建州拜托大家3件事](http://www.movie.hkepx.cn/xiju/7322023.htm)
-- [粉笔 四海](http://www.daogukj.com/lqwdxuku/)
-- [媒体：日本一些人活在军国主义迷梦中](http://www.movie.hkepx.cn/xiju/8204204.htm)
-- [九一八事变爆发95周年](http://www.play.hengshemaoyi.cn/kongbu/5762471.htm)
-- [永和豆浆视频被指擦边](http://www.play.hengshemaoyi.cn/xiju/3015624.htm)
-- [巴基斯坦表态了 这是一个重要信号](http://www.movie.hkepx.cn/movie/9539562.htm)
-- [警方破获特大明星行程黑产](http://www.daogukj.com/1841885)
-- [【冰岛第一集】吃400岁“毒”鲨鱼，与火山共生，体验冰岛人的极端生活…](http://www.play.hengshemaoyi.cn/kongbu/3844400.htm)
-- [如何看待 HYROX 失禁选手就北京赛场事件道歉，决定追溯性退出该场比赛，并放弃此前获得的积分？](http://www.daogukj.com/2839192)
+- [其实王者账号是有耐久的，没耐久就玩不了了](http://www.daogukj.com/suhrxest/)
+- [一个智能药盒卖3900元](http://www.play.hengshemaoyi.cn/xiju/8374811.htm)
+- [陈建州有一条血管完全塞住](http://www.movie.hkepx.cn/movie/5917708.htm)
+- [Tropical fruit slicing animation](http://www.movie.hkepx.cn/movie/2673504.htm)
+- [名古屋亚运会用「邮轮+集装箱房」替代亚运村，巴黎奥运村极度简陋无空调，为啥如今的体育大赛越办越寒酸？](http://www.movie.hkepx.cn/xiju/9719392.htm)
+- [我们来了 刘雯](http://www.play.hengshemaoyi.cn/xiju/5111103.htm)
+- [马来西亚女子昆明认出外公照片](http://www.movie.hkepx.cn/xiju/7322023.htm)
+- [冯绍峰脸怎么了](http://www.daogukj.com/lqwdxuku/)
+- [如何看待华为突破冯诺依曼「单机」架构？](http://www.movie.hkepx.cn/xiju/8204204.htm)
+- [黄牛称iPhone 18 Pro没人要](http://www.play.hengshemaoyi.cn/kongbu/5762471.htm)
+- [梅毒被称为皮肤性病科模仿大师](http://www.play.hengshemaoyi.cn/xiju/3015624.htm)
+- [坠亡幼童父亲称出殡按最高规格](http://www.movie.hkepx.cn/movie/9539562.htm)
+- [诬告小孩者被滴滴司机反告](http://www.daogukj.com/1841885)
+- [创业板指大涨逾3%](http://www.play.hengshemaoyi.cn/kongbu/3844400.htm)
+- [美国务院批准向沙特出售48架F-35战机](http://www.daogukj.com/2839192)
 
 </details>
 
 ## 原始来源
 
-- [一座雕像何以让日本政府如此紧张](https://www.baidu.com/s?wd=%E4%B8%80%E5%BA%A7%E9%9B%95%E5%83%8F%E4%BD%95%E4%BB%A5%E8%AE%A9%E6%97%A5%E6%9C%AC%E6%94%BF%E5%BA%9C%E5%A6%82%E6%AD%A4%E7%B4%A7%E5%BC%A0&sa=fyb_news&rsv_dl=fyb_news)
+- [广西孙子无血缘案奶奶听证后晕倒](https://s.weibo.com/weibo?q=%E5%B9%BF%E8%A5%BF%E5%AD%99%E5%AD%90%E6%97%A0%E8%A1%80%E7%BC%98%E6%A1%88%E5%A5%B6%E5%A5%B6%E5%90%AC%E8%AF%81%E5%90%8E%E6%99%95%E5%80%92)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: def785aad5a2cd2b84e7 -->
+<!-- content-fingerprint: c90f26ffb3a5d87ba696 -->
