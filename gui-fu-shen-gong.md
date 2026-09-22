@@ -1,35 +1,35 @@
 [热点索引](README.md)
 
-# 伊朗官方统计称受战争影响，该国经济萎缩 10% ，这对伊朗经济意味着什么？伊朗还能撑多久？
+# 德比斯又收到张雪的礼物
 
-> 来源：知乎热榜 · 排名：第 19 位 · 热度：106 万热度 · 分类：问答 · 更新：2026-09-22T15:15:13+08:00
+> 来源：今日头条热榜 · 排名：第 19 位 · 热度：1844376 · 分类：新事件上榜 · 更新：2026-09-22T20:38:37+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“伊朗官方统计称受战争影响，该国经济萎缩 10% ，这对伊朗经济意味着什么？伊朗还能撑多久？”位列第 19 位，公开热度指标为 106 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“德比斯又收到张雪的礼物”位列第 19 位，公开热度指标为 1844376，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：据法新社报道，自2月下旬美以发动袭击以来，伊朗经济萎缩约10%。 伊朗统计中心9月20日发布的数据显示，从3月下旬到6月下旬（伊朗称之为波斯历第一季度），该国国内生产总值（GDP）同比下降了10.1%。 自2月下旬以来，伊朗一直与美国处于战争状态。当时，美国和以色列的空袭导致伊朗最高领袖和多名高级军事官员丧生，并拉开了大规模攻势的序幕。 这些袭击引发了伊朗封锁霍尔木兹海峡的报复行动。随后，全球石油价格飙升，冲突也蔓延至中东。 除战争因素之外，伊朗经济受美国长期制裁影响，一直饱受恶性通货膨胀和货币贬值的困扰。https://mp.weixin.qq.com
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`今日头条热榜` `实时热搜` `热点资讯` `新事件上榜`
 
 ## 相关热点
 
-- [越过山丘，才发现奥迪瓦罐有多香？](jin-shang-tian-hua.md)
-- [教授：至少三分之一的人不适合结婚](hua-long-dian-jing.md)
-- [雷军现在只能偷偷吃早餐](miao-bi-sheng-hua.md)
-- [平陆运河通航对广西意味着什么](sheng-dong-huo-po.md)
+- [贾国龙恳请监管部门厘清高流量网络账号的言论边界，区分正常舆论监督和商业诋毁等，哪些信息值得关注？](jin-shang-tian-hua.md)
+- [低山臭水遇知音！](hua-long-dian-jing.md)
+- [女子新提奔驰次日爬满蚂蚁](miao-bi-sheng-hua.md)
+- [中国男子4x100混接四连冠](sheng-dong-huo-po.md)
 
 ## 站内推荐
 
-- [月饼 卖不动](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
-- [相亲被说像一匹冷漠的马](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
-- [小众但很省钱的旅游方式](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
-- [钟薛高创始人直播为西贝发声](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
-- [周雨谈张本兄妹对国乒的威胁](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
+- [林诗栋2比3普里查扬](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
+- [中国女排3连冠](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
+- [男子4.5元网购“聚能环”致妻儿身亡](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
+- [“四川甘孜州街头出现棕熊”系AI伪造](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
+- [张博恒这枚金牌让日本媒体沉默了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
 
 ## 相关资讯
 
@@ -37,62 +37,62 @@
 <summary>展开更多相关内容</summary>
 
 - [《原神》角色预告-「沃雅妮莎：此夜共沦」](http://www.play.hengshemaoyi.cn/kongbu/5808339.htm)
-- [金建希涉嫌“卖官鬻爵”获刑5年](http://www.daogukj.com/1739906)
-- [警惕阿尔茨海默病8大早期信号](http://www.daogukj.com/6935812)
-- [亚运为何如此多乱七八糟的项目？比欧洲运动会项目快多一倍了？](http://www.daogukj.com/pmpkacrd/)
-- [男子4.5元网购“聚能环”致妻儿身亡](http://www.play.hengshemaoyi.cn/kongbu/2438192.htm)
-- [廉颇推塔竟然这么快，这还玩啥六耳啊](http://www.play.hengshemaoyi.cn/kongbu/7293063.htm)
-- [【毕导】这个X你肯定见过，但它其实根本不存在](http://www.play.hengshemaoyi.cn/xiju/4857183.htm)
-- [疑似李乃文一家三口同框](http://www.movie.hkepx.cn/xiju/7889734.htm)
-- [漫改真人剧见多了，反过来把特摄改为动漫又会怎么样呢？](http://www.play.hengshemaoyi.cn/kongbu/0667195.htm)
-- [“谢广坤”销售的东北酸菜被检不合格](http://www.play.hengshemaoyi.cn/kongbu/1579498.htm)
-- [《崩坏：星穹铁道》走近星穹——「真珠：深度学习中」](http://www.movie.hkepx.cn/movie/0667278.htm)
-- [《红楼梦》养活了多少影视剧](http://www.movie.hkepx.cn/movie/2598628.htm)
-- [29.9元月饼为何能卖出200万单](http://www.daogukj.com/vbrxejif/)
-- [张家齐妈妈 自导自演自我感动](http://www.play.hengshemaoyi.cn/xiju/6786751.htm)
-- [中国女篮主教练：争取在决赛中打好](http://www.daogukj.com/kpifomse/)
-- [官方通报「南京一幼儿园发生集体呕吐，监控发现食堂用炒菜锅洗拖把」，11名责任人被处理，如何看待此事？](http://www.daogukj.com/1805907)
-- [雷军回应“打新宇树赚了100多亿”](http://www.daogukj.com/0272216)
-- [如何评价小米 MIMO V2.6登上AA开源榜第一名？](http://www.play.hengshemaoyi.cn/xiju/6434082.htm)
-- [能绷住的是植物人！](http://www.play.hengshemaoyi.cn/xiju/8702577.htm)
-- [如果赵丽蓉活着，赵本山还会独大吗？](http://www.daogukj.com/1001749)
-- [谁是最美Coser？！举办一个逆天Cos姿势大赛！！](http://www.daogukj.com/9435306)
-- [三年之期已到，恭迎世一上归位！【第10集】](http://www.play.hengshemaoyi.cn/kongbu/5701265.htm)
-- [名古屋亚运会颁奖典礼上准备奖品的工作人员全是老头老太太，为什么不用年轻姑娘小伙呢？](http://www.movie.hkepx.cn/xiju/3842120.htm)
-- [人机格斗赛众擎T800踢翻人类拳击手](http://www.movie.hkepx.cn/xiju/7251868.htm)
-- [千校千问，和每一个你共赴新的课堂](http://www.movie.hkepx.cn/movie/8872274.htm)
-- [怪不得我们都喜欢睡觉盖被子](http://www.daogukj.com/yniobcvk/)
-- [86版《西游记》道具展出 金箍棒开裂](http://www.movie.hkepx.cn/movie/0768259.htm)
-- [钟南山团队发现 73% 的肺癌病例来自非高危人群，为啥非高危人群占多数？传统肺癌筛查标准需要调整吗？](http://www.daogukj.com/8746275)
-- [A股接连上涨 新一轮行情要来了吗](http://www.play.hengshemaoyi.cn/xiju/8271575.htm)
+- [张展硕1500自由泳金牌](http://www.daogukj.com/1739906)
+- [网友称睡觉喜欢盖被子并非只是怕冷，而是一种深层心理安全感的生理性寻求，真的是这样吗？你有这种感觉吗？](http://www.daogukj.com/6935812)
+- [郑丽文批民进党司法追杀选举对手](http://www.daogukj.com/pmpkacrd/)
+- [秋分养生核心就守一个“收”字](http://www.play.hengshemaoyi.cn/kongbu/2438192.htm)
+- [编造“创始人不喝自家饮料”被拘](http://www.play.hengshemaoyi.cn/kongbu/7293063.htm)
+- [中国女排十冠王](http://www.play.hengshemaoyi.cn/xiju/4857183.htm)
+- [黄仁勋解释为什么每天都穿黑皮衣](http://www.movie.hkepx.cn/xiju/7889734.htm)
+- [廉颇推塔竟然这么快，这还玩啥六耳啊](http://www.play.hengshemaoyi.cn/kongbu/0667195.htm)
+- [中国女排vs日本女排](http://www.play.hengshemaoyi.cn/kongbu/1579498.htm)
+- [《穷亲戚》](http://www.movie.hkepx.cn/movie/0667278.htm)
+- [父亲照顾五保户大爷爷10年，父亲意外去世后，叔叔要求我们"对账补齐"，该怎么处理？](http://www.movie.hkepx.cn/movie/2598628.htm)
+- [普京所属政党大获全胜](http://www.daogukj.com/vbrxejif/)
+- [刘耀文生日直播延期](http://www.play.hengshemaoyi.cn/xiju/6786751.htm)
+- [冯坤：对阵中国队心情不复杂](http://www.daogukj.com/kpifomse/)
+- [G胖认为，开发者最大的错误之一就是把玩家自己琢磨出来的轮椅套路当成作弊一刀砍掉，你同意他的看法吗？](http://www.daogukj.com/1805907)
+- [广州白云机场T3厚地毯再遭吐槽](http://www.daogukj.com/0272216)
+- [美心低至六七折、29.9 元礼盒爆卖 200 万件，月饼告别「礼赠时代」了吗？反映出怎样的消费趋势？](http://www.play.hengshemaoyi.cn/xiju/6434082.htm)
+- [员工餐自助打饭，超美味四点金，牛肋排，红烧肉！](http://www.play.hengshemaoyi.cn/xiju/8702577.htm)
+- [《柯洁围棋入门课》](http://www.daogukj.com/1001749)
+- [和同父异母的妹妹去旅游会发生什么？](http://www.daogukj.com/9435306)
+- [医生坐诊2——pa大夫，你看我到底能不能红啊！](http://www.play.hengshemaoyi.cn/kongbu/5701265.htm)
+- [林诗栋 2-3 爆冷输泰国 16 岁小将提塔帕-普里查扬，如何评价本场比赛？](http://www.movie.hkepx.cn/xiju/3842120.htm)
+- [又放假了](http://www.movie.hkepx.cn/xiju/7251868.htm)
+- [iPhone17正常使用，能用几年？](http://www.movie.hkepx.cn/movie/8872274.htm)
+- [OPPO发布会](http://www.daogukj.com/yniobcvk/)
+- [重庆市委书记、市长赴张雪机车调研](http://www.movie.hkepx.cn/movie/0768259.htm)
+- [多家媒体曝奶茶除成瘾风险外，还会增加抑郁、焦虑风险，小小一杯奶茶，真的有这么大危害吗？](http://www.daogukj.com/8746275)
+- [中国队两次让东道主日本沉默](http://www.play.hengshemaoyi.cn/xiju/8271575.htm)
 - [秦始皇陵水银来源被找到，指向陕西旬阳三处先秦朱砂遗址，这一发现有何意义？](http://www.daogukj.com/kgtebwbx/)
-- [周雨谈张本兄妹对国乒的威胁](http://www.play.hengshemaoyi.cn/xiju/1497703.htm)
-- [张家齐的存款大概率被爸妈花完了](http://www.movie.hkepx.cn/xiju/0744889.htm)
-- [张家齐职业生涯收入盘点](http://www.movie.hkepx.cn/xiju/0791643.htm)
-- [中国外贸加速“向绿”给世界带来什么](http://www.movie.hkepx.cn/movie/3601600.htm)
-- [中国游泳队金金金金金的背后](http://www.daogukj.com/6606882)
-- [第48届世界技能大赛今天开幕](http://www.play.hengshemaoyi.cn/kongbu/5430461.htm)
-- [张展硕霸气回应最后时刻反超日本队](http://www.play.hengshemaoyi.cn/xiju/1401530.htm)
-- [我国战略找矿成果喜人](http://www.play.hengshemaoyi.cn/kongbu/6874966.htm)
-- [有网友称华为中秋礼盒的月饼吃完后拉肚子，这是真的吗？月饼造成拉肚子的原因可能是什么？](http://www.movie.hkepx.cn/xiju/0869674.htm)
-- [贾国龙恳请监管部门厘清高流量网络账号的言论边界，区分正常舆论监督和商业诋毁等，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/8892121.htm)
-- [张家齐今年上节目的生活质量明显下降](http://www.daogukj.com/3840867)
-- [青春没有售价，桂A直达南美天空之镜！](http://www.daogukj.com/tdthozvf/)
-- [退休年龄怎么认？何时退最划算](http://www.movie.hkepx.cn/movie/9314467.htm)
-- [演员曹征吐槽节假日抢票难](http://www.daogukj.com/4927582)
-- [驯化咖啡：一种植物武器，为什么被人类喝了六百年](http://www.movie.hkepx.cn/xiju/7135657.htm)
-- [宋江凭啥就能做主把一丈青嫁给王矮虎？](http://www.daogukj.com/edbsjtbr/)
-- [单纯的约会（92）](http://www.movie.hkepx.cn/movie/3015116.htm)
-- [大满贯得主张继科独家为国乒加油](http://www.play.hengshemaoyi.cn/kongbu/8223902.htm)
-- [00后女孩出生即持股 月领4000元](http://www.daogukj.com/goublmac/)
-- [沙特遭遇“至暗时刻”谁会伸出援手](http://www.movie.hkepx.cn/xiju/7589973.htm)
+- [张博恒这枚金牌让日本媒体沉默了](http://www.play.hengshemaoyi.cn/xiju/1497703.htm)
+- [杨幂短发](http://www.movie.hkepx.cn/xiju/0744889.htm)
+- [无锡21家企业入围中国民企500强榜单](http://www.movie.hkepx.cn/xiju/0791643.htm)
+- [新一批重大外资项目密集落地投产](http://www.movie.hkepx.cn/movie/3601600.htm)
+- [完胜日本队！中国女排亚运会三连冠](http://www.daogukj.com/6606882)
+- [祝福祖国大花篮主体亮相](http://www.play.hengshemaoyi.cn/kongbu/5430461.htm)
+- [钟南山团队发现 73% 的肺癌病例来自非高危人群，为啥非高危人群占多数？传统肺癌筛查标准需要调整吗？](http://www.play.hengshemaoyi.cn/xiju/1401530.htm)
+- [微信发朋友圈可自动转为仅自己可见](http://www.play.hengshemaoyi.cn/kongbu/6874966.htm)
+- [中路爆破能力对于一个足球运动员来说很罕见吗？我看不少球员集锦，他们都能做到啊，为什么只有卡卡被吹捧？](http://www.movie.hkepx.cn/xiju/0869674.htm)
+- [热播剧《兰香如故》里的南京元素](http://www.movie.hkepx.cn/xiju/8892121.htm)
+- [男子不抽烟少饮酒坚持长跑突发心梗](http://www.daogukj.com/3840867)
+- [演员陈观泰离世 骨灰被撒入大海](http://www.daogukj.com/tdthozvf/)
+- [日本亚运会一片乱象日媒“甩锅”](http://www.movie.hkepx.cn/movie/9314467.htm)
+- [亚运男子4×100混接中国四连冠](http://www.daogukj.com/4927582)
+- [琵琶曲2/1（真人无AI手搓）](http://www.movie.hkepx.cn/xiju/7135657.htm)
+- [比电影更夸张？专业保镖到底在做什么？](http://www.daogukj.com/edbsjtbr/)
+- [亚运被骂史上最差 日本：都怪法国](http://www.movie.hkepx.cn/movie/3015116.htm)
+- [中国体操女子全能历史首次失金](http://www.play.hengshemaoyi.cn/kongbu/8223902.htm)
+- [亚运会乒乓球](http://www.daogukj.com/goublmac/)
+- [中国女排亚运十冠王](http://www.movie.hkepx.cn/xiju/7589973.htm)
 
 </details>
 
 ## 原始来源
 
-- [伊朗官方统计称受战争影响，该国经济萎缩 10% ，这对伊朗经济意味着什么？伊朗还能撑多久？](https://www.zhihu.com/question/2085374733873426688)
+- [德比斯又收到张雪的礼物](https://www.toutiao.com/trending/7687455939646308403/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227687455939646308403%22%2C%22hot_board_impr_id%22%3A%2220260922203835B8F2834962024E908CE2%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 15cdfc3481ffaea6eba0 -->
+<!-- content-fingerprint: ba2c4e712b1832e30be3 -->
