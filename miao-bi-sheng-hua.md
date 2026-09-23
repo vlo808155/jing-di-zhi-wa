@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 亚运会体操男团决赛
+# 如何看待周琦主动表态愿出战亚运会被拒，林葳跟郭士强只集训两次就被彻底放弃等爆料？是真的吗？
 
-> 来源：微博热搜 · 排名：第 20 位 · 热度：265379 · 分类：体育 · 更新：2026-09-23T14:13:25+08:00
+> 来源：知乎热榜 · 排名：第 20 位 · 热度：129 万热度 · 分类：问答 · 更新：2026-09-23T19:42:04+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“亚运会体操男团决赛”位列第 20 位，公开热度指标为 265379，榜单分类为“体育”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待周琦主动表态愿出战亚运会被拒，林葳跟郭士强只集训两次就被彻底放弃等爆料？是真的吗？”位列第 20 位，公开热度指标为 129 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：几个消息源交叉验证，周琦亚运前主动向国家队表态愿意出战，没进名单。中国青年报补了刀：徐杰也请缨被拒。 郭士强的理由是“周琦没参加夏天集训”，可他选了刚做完手术的余嘉豪，余嘉豪休赛期同样在养伤，俩人情况本质没区别。 林葳跟郭士强只集训两次就被彻底放弃——训练中发生冲突，郭士强让同曦方面直接把人领走。之后短训营没他，赴美考察见了赵维伦、王俊杰，唯独不见林葳。 具体的情况大概就是林葳在训练的时候没有听到队友喊的换位，下来的时候，郭士强质问他，他就回说确实没听到，然后就不再让他进队了。 不知道有多少人细心的和我一样观察到…每次中国男篮或者郭士强出一些新闻，林葳也
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `体育`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [日本已没有举办大型赛事的能力了吗](sheng-dong-huo-po.md)
-- [老员工比新员工干的多，工资却被倒挂？为什么会有薪资倒挂？怎么办？](xu-xu-ru-sheng.md)
-- [新三国up锐评老三国19：袁公路冢中枯骨，何足道哉！](huo-ling-huo-xian.md)
-- [叔侄同校只差五岁 课间小叔总去串门](you-sheng-you-se.md)
+- [好久不见啊，佐助](sheng-dong-huo-po.md)
+- [打车关门时手指突然飙血 发现4个刀片](xu-xu-ru-sheng.md)
+- [陈翔 毛晓彤](huo-ling-huo-xian.md)
+- [侯英超复盘王楚钦孙颖莎晋级混双8强](you-sheng-you-se.md)
 
 ## 站内推荐
 
 - [《崩坏：星穹铁道》即兴巡演PV——「至此，已成艺术」](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [日本女排颁奖仪式上全员黑脸](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [“老屋枣树今犹在 孩童早已去无踪”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [王者客服回应孙尚香新皮肤被指敷衍](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [杭州火灾](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [带着豆包去买瓜](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [《异环》黑羽角色短片丨救世主的祭宴](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [2026海峡两岸中秋晚会](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [中秋国庆调休和高速政策提醒](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [女子过敏就诊被护士公主抱进抢救室](http://www.play.hengshemaoyi.cn/xiju/5042626.htm)
-- [【剧情】大理石厅谋杀案（2026）01【莱丝利·曼维尔 / 蒂姆·迈克穆兰】](http://www.play.hengshemaoyi.cn/xiju/7956106.htm)
-- [中国民企500强彰显韧性活力](http://www.movie.hkepx.cn/movie/4841456.htm)
-- [秋分节气有什么特点](http://www.movie.hkepx.cn/xiju/7247523.htm)
-- [中国女排队长龚翔宇赛后谈女排精神](http://www.movie.hkepx.cn/movie/5948248.htm)
-- [“黑老大”黄大发被判死刑立即执行](http://www.daogukj.com/jeqkpawe/)
-- [男子边走边看手机遭叉车碾压](http://www.daogukj.com/4687345)
-- [《异环》黑羽角色短片丨救世主的祭宴](http://www.daogukj.com/vpnhlcyn/)
-- [泽连斯基：已准备好与俄实现能源停火](http://www.movie.hkepx.cn/movie/1315163.htm)
-- [《兰香如故》在台湾热播](http://www.daogukj.com/rwppwnza/)
-- [俄发动“三位一体”大规模打击乌克兰](http://www.play.hengshemaoyi.cn/kongbu/1523322.htm)
-- [0添加等于更安全、更健康吗](http://www.daogukj.com/2194242)
-- [隐翅虫](http://www.play.hengshemaoyi.cn/xiju/4017132.htm)
-- [黄大发被判死刑立即执行](http://www.movie.hkepx.cn/xiju/3408542.htm)
-- [骁龙新一代旗舰AI到底有多强](http://www.daogukj.com/awgjlldl/)
-- [刘纪鹏相信A股会重回4000点](http://www.play.hengshemaoyi.cn/xiju/6207562.htm)
+- [国乒女团 变阵](http://www.play.hengshemaoyi.cn/xiju/5042626.htm)
+- [高市早苗在联合国大会呼吁删除「敌国条款」，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/7956106.htm)
+- [“十五五”教师发展国家行动来了](http://www.movie.hkepx.cn/movie/4841456.htm)
+- [张展硕恐怖如斯](http://www.movie.hkepx.cn/xiju/7247523.htm)
+- [中国男足小组第一进8强](http://www.movie.hkepx.cn/movie/5948248.htm)
+- [张展硕亚运男子200自夺冠](http://www.daogukj.com/jeqkpawe/)
+- [当美院人玩涂鸦躲猫猫真人版](http://www.daogukj.com/4687345)
+- [暗区突围X少女前线2：追放 联动访谈实录](http://www.daogukj.com/vpnhlcyn/)
+- [兰香如故](http://www.movie.hkepx.cn/movie/1315163.htm)
+- [肖战新剧差点被姜妍一电炮呼死](http://www.daogukj.com/rwppwnza/)
+- [月饼市场遇冷山姆却卖爆了](http://www.play.hengshemaoyi.cn/kongbu/1523322.htm)
+- [12306 回应国庆假期高铁涨价，「不同日期优惠折扣不同，并非涨价」，哪些信息值得关注？](http://www.daogukj.com/2194242)
+- [全女综我们喜欢你](http://www.play.hengshemaoyi.cn/xiju/4017132.htm)
+- [徐嘉余 中国亚运历史金牌王](http://www.movie.hkepx.cn/xiju/3408542.htm)
+- [日本青年开始取消吃饭](http://www.daogukj.com/awgjlldl/)
+- [WMA微博音乐盛典](http://www.play.hengshemaoyi.cn/xiju/6207562.htm)
 - [《崩坏：星穹铁道》即兴巡演PV——「至此，已成艺术」](http://www.daogukj.com/mrofapbq/)
-- [2天内6省份省委书记调整](http://www.play.hengshemaoyi.cn/kongbu/5453073.htm)
-- [亚运射击10米气步枪预赛，越南队因「服装不合规」被判出局，日本队递补进入决赛，并得到铜牌，对此你怎看？](http://www.play.hengshemaoyi.cn/xiju/6087046.htm)
-- [周也《一瓯春》片段被群嘲出圈，演技遭质疑，不少观众觉得她很多表演观感别扭，问题根源在哪？](http://www.movie.hkepx.cn/movie/8965197.htm)
-- [带着豆包去买瓜](http://www.play.hengshemaoyi.cn/kongbu/7748359.htm)
-- [女子称父亲离世6亿遗产都归了继母](http://www.movie.hkepx.cn/xiju/0862966.htm)
-- [张博恒 体操男子团体决赛](http://www.play.hengshemaoyi.cn/kongbu/9726074.htm)
-- [杭州火灾](http://www.movie.hkepx.cn/movie/4830470.htm)
-- [老员工比新员工干的多，工资却被倒挂？为什么会有薪资倒挂？怎么办？](http://www.play.hengshemaoyi.cn/xiju/3660611.htm)
-- [iPhone Duo 整机组装良率仅六成多，供应链在等苹果决定是否放宽质量要求，哪些信息值得关注？](http://www.daogukj.com/7984737)
-- [媒体：中国女排亚运第十冠价值千金](http://www.movie.hkepx.cn/movie/5738447.htm)
-- [现在就出发](http://www.daogukj.com/cjltxhnp/)
-- [为什么建议35岁就要开始控糖](http://www.play.hengshemaoyi.cn/kongbu/7175788.htm)
-- [如何评价《生化危机：爆发夜》开分烂番茄98%，成了媒体评分最高的游戏改编电影？](http://www.movie.hkepx.cn/movie/4124367.htm)
-- [38 岁清华毕业生三战高考考上北大医学部，称「希望在热爱的领域做一点有意义的事」，如何看待他的选择？](http://www.play.hengshemaoyi.cn/xiju/7951635.htm)
+- [老人突发心梗，5次拨打120未能接通后死亡，院方称通信光缆故障，各方应承担怎样的责任？暴露了哪些问题？](http://www.play.hengshemaoyi.cn/kongbu/5453073.htm)
+- [5300多万名老年人享受老年人补贴](http://www.play.hengshemaoyi.cn/xiju/6087046.htm)
+- [多家银行存款利息涨了](http://www.movie.hkepx.cn/movie/8965197.htm)
+- [恋与深空](http://www.play.hengshemaoyi.cn/kongbu/7748359.htm)
+- [复仇者联盟](http://www.movie.hkepx.cn/xiju/0862966.htm)
+- [困在桌游房间里的女孩](http://www.play.hengshemaoyi.cn/kongbu/9726074.htm)
+- [中秋国庆调休和高速政策提醒](http://www.movie.hkepx.cn/movie/4830470.htm)
+- [打车关门时手指突然飙血 发现4个刀片](http://www.play.hengshemaoyi.cn/xiju/3660611.htm)
+- [白鹿直播](http://www.daogukj.com/7984737)
+- [严浩翔抓丁程鑫手上的大疆拍贺峻霖](http://www.movie.hkepx.cn/movie/5738447.htm)
+- [全系L3架构启境GX7上市](http://www.daogukj.com/cjltxhnp/)
+- [张展硕没想过能拿到200米自金牌](http://www.play.hengshemaoyi.cn/kongbu/7175788.htm)
+- [和同父异母的妹妹去旅游会发生什么？](http://www.movie.hkepx.cn/movie/4124367.htm)
+- [智耕沃野慧启未来](http://www.play.hengshemaoyi.cn/xiju/7951635.htm)
 - [闲鱼称「涉未成年人淫秽」不实，已就引流行为报案，这算反转了吗？「来自其他平台」的违规截图是谁的责任？](http://www.play.hengshemaoyi.cn/xiju/9311263.htm)
-- [国庆将至 各地节日氛围陆续“上线”](http://www.daogukj.com/qhynwuoo/)
-- [沃尔玛中国、山姆中国首席采购官双双换人，美国山姆高管空降执掌山姆采购，这次人事调整释放了哪些战略信号？](http://www.play.hengshemaoyi.cn/xiju/2836720.htm)
-- [雾里青的尺度](http://www.daogukj.com/0046089)
-- [医生坐诊2——pa大夫，你看我到底能不能红啊！](http://www.play.hengshemaoyi.cn/kongbu/6160337.htm)
-- [日本女排颁奖仪式上全员黑脸](http://www.play.hengshemaoyi.cn/kongbu/7581667.htm)
-- [如何评价kimi在9月24日正式替代老套餐的新套餐？](http://www.movie.hkepx.cn/movie/1557680.htm)
-- [比电影更夸张？专业保镖到底在做什么？](http://www.movie.hkepx.cn/movie/5183784.htm)
-- [欧盟要求中国「自愿限制」汽车出口，会如何影响中欧贸易关系？](http://www.movie.hkepx.cn/xiju/8111897.htm)
-- [安徽、河南、福建省委书记调整](http://www.play.hengshemaoyi.cn/kongbu/4378701.htm)
-- [推动北斗产业规模超1万亿元](http://www.daogukj.com/7904792)
-- [【硬核】俄乌打了四年多，到底谁在买单？](http://www.movie.hkepx.cn/xiju/7283893.htm)
-- [23岁女子吃完外卖后肾损伤](http://www.daogukj.com/4389315)
-- [王者客服回应孙尚香新皮肤被指敷衍](http://www.movie.hkepx.cn/xiju/0722929.htm)
-- [丰收的中国 升腾的梦想](http://www.play.hengshemaoyi.cn/kongbu/4443491.htm)
-- [姆巴佩接受采访表示：自己的非洲血统对他意义重大，希望能把金球奖带回非洲。对此，你怎么看？](http://www.daogukj.com/4354382)
-- [好久不见啊，佐助](http://www.daogukj.com/4226089)
-- [肖战和男大有什么区别](http://www.movie.hkepx.cn/xiju/3342028.htm)
-- [怎么看待《金融时报》报道俄罗斯已经摧毁了乌克兰全国超过一半，即210万平方米的仓储设施？](http://www.daogukj.com/jkvkxuzz/)
+- [这是啥户型啊？](http://www.daogukj.com/qhynwuoo/)
+- [山上明明没有水库，为什么溪水一年到头流不完？](http://www.play.hengshemaoyi.cn/xiju/2836720.htm)
+- [于子迪：3金到手 亚运告一段落](http://www.daogukj.com/0046089)
+- [如何看待赛力斯董事长回应与华为合作生变，称是全球通行做法？](http://www.play.hengshemaoyi.cn/kongbu/6160337.htm)
+- [带着豆包去买瓜](http://www.play.hengshemaoyi.cn/kongbu/7581667.htm)
+- [国乒女团3-0朝鲜进决赛](http://www.movie.hkepx.cn/movie/1557680.htm)
+- [经济学家鞠建东建议「对外发行10万亿元人民币国债」，以实现「经济结构性」再平衡，对此你怎么看？](http://www.movie.hkepx.cn/movie/5183784.htm)
+- [全国中秋假期天气地图](http://www.movie.hkepx.cn/xiju/8111897.htm)
+- [第一地级市冲刺6万亿](http://www.play.hengshemaoyi.cn/kongbu/4378701.htm)
+- [好日子里品丰收](http://www.daogukj.com/7904792)
+- [中国机床出口都超过德国了，东南亚工厂也在换中国设备，那国产机床到底行不行？有没有过来人说说真实体验？](http://www.movie.hkepx.cn/xiju/7283893.htm)
+- [小伙阳台养鸡鸭肺部长出“空洞”](http://www.daogukj.com/4389315)
+- [2026海峡两岸中秋晚会](http://www.movie.hkepx.cn/xiju/0722929.htm)
+- [王楚钦林昀儒男团半决赛交手](http://www.play.hengshemaoyi.cn/kongbu/4443491.htm)
+- [迈克尔·许家印《朋友的酒DJ》史上经典演唱会开场！人生必看的现场](http://www.daogukj.com/4354382)
+- [琵琶曲‖ 决战重制版【re0】](http://www.daogukj.com/4226089)
+- [33岁女演员确诊癌症 家人公开求助](http://www.movie.hkepx.cn/xiju/3342028.htm)
+- [西贝员工称因长期被镜头曝光，一线员工承受巨大心理压力甚至离职，持续曝光对普通店员的心理健康影响有多大？](http://www.daogukj.com/jkvkxuzz/)
 
 </details>
 
 ## 原始来源
 
-- [亚运会体操男团决赛](https://s.weibo.com/weibo?q=%E4%BA%9A%E8%BF%90%E4%BC%9A%E4%BD%93%E6%93%8D%E7%94%B7%E5%9B%A2%E5%86%B3%E8%B5%9B)
+- [如何看待周琦主动表态愿出战亚运会被拒，林葳跟郭士强只集训两次就被彻底放弃等爆料？是真的吗？](https://www.zhihu.com/question/2086020321677505575)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 00fb7dcbd9e8ce515105 -->
+<!-- content-fingerprint: 230c557b611fbf8c2115 -->
