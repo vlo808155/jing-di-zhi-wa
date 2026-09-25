@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 白宫公布国宴菜单与装饰
+# 高价月饼礼盒退潮
 
-> 来源：百度热搜 · 排名：第 19 位 · 热度：5983924 · 更新：2026-09-25T13:26:31+08:00
+> 来源：今日头条热榜 · 排名：第 19 位 · 热度：9193016 · 更新：2026-09-25T18:24:27+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“白宫公布国宴菜单与装饰”位列第 19 位，公开热度指标为 5983924。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“高价月饼礼盒退潮”位列第 19 位，公开热度指标为 9193016。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：当地时间9月24日晚，国家主席习近平和夫人彭丽媛乘车抵达白宫，出席美国总统特朗普和夫人梅拉尼娅举行的欢迎宴会。美国第一夫人办公室当天公布了晚宴菜单和现场布置等细节。白宫将此次菜单概括为：以美国食材为主，同时融入中国元素，希望将两国饮食传统结合起来。
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [盛李豪亚运第四金](gui-fu-shen-gong.md)
-- [马斯克母亲：我喜欢去中国](jin-shang-tian-hua.md)
-- [潮州市住建局回应5公里路面500个井盖，称井盖密度没法更改，真的没法改吗？井盖排布密集是正常的吗？](hua-long-dian-jing.md)
-- [【剧情】长生契（2026）01【方逸伦 / 谢可寅】](miao-bi-sheng-hua.md)
+- [王楚钦 4-2 战胜泰国选手普里查扬，晋级亚运会乒乓男单 16 强，如何评价本场比赛？](gui-fu-shen-gong.md)
+- [【独家】《罗小黑战记 学前篇》定档10月30日](jin-shang-tian-hua.md)
+- [陪看：“莎头”“动漫”双线出击](hua-long-dian-jing.md)
+- [杨力维的百变魔法](miao-bi-sheng-hua.md)
 
 ## 站内推荐
 
 - [习近平在欢迎宴会上的祝酒辞](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [央视中秋晚会节目单官宣](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [小区门禁 App 开门要先看广告，想免广告就得花钱充会员，这种模式合理吗？业主如何维权？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [当MC生物都变成了宝宝，生存会变成什么样子？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [央视中秋晚会节目单](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [亚运会乒乓球混双](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [亚运会游泳](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [新华社：男乒过度依赖王楚钦](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [中国篮球各项均无缘亚运决赛](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [媒体：中国男乒阵容深度不足](http://www.movie.hkepx.cn/movie/3926125.htm)
-- [4.5米长虫从男子体内排出](http://www.daogukj.com/jbrqqhbh/)
-- [《明日方舟》矢量突破#3「拟生态」宣传PV](http://www.daogukj.com/6283106)
-- [微信警告这些头像昵称会被封号](http://www.play.hengshemaoyi.cn/xiju/3501535.htm)
-- [酒店推369元自助早餐月卡 有70种菜](http://www.daogukj.com/tfcvjhpk/)
-- [马斯克黄仁勋等出席白宫欢迎宴会](http://www.daogukj.com/4841868)
-- [青岛一烤羊店招牌被六旬师傅装反，变为 「没有手艺，都是科技」，店铺意外走红，为啥这样反而受到大家青睐？](http://www.play.hengshemaoyi.cn/kongbu/6429820.htm)
-- [秋月正圆思念满](http://www.daogukj.com/jehuxdgs/)
-- [加了很多人却成了无效社交，你在职场中遇到过这种情况吗？工作中，如何建立有效的「朋友圈」？](http://www.movie.hkepx.cn/xiju/1384580.htm)
-- [特朗普：这是一次伟大的会晤](http://www.daogukj.com/qyeqjnqv/)
-- [国际油价跌2%](http://www.movie.hkepx.cn/movie/7212048.htm)
-- [胖东来按国标盖楼看哭土木人](http://www.movie.hkepx.cn/xiju/5780029.htm)
-- [王楚钦/孙颖莎 3-0 松岛辉空/张本美和，晋级亚运会混双四强，怎样评价本场比赛？](http://www.daogukj.com/efezhgld/)
-- [世界技能大赛 为了更好的未来](http://www.play.hengshemaoyi.cn/kongbu/8328027.htm)
-- [樊振东回来就能拯救国乒男团吗](http://www.movie.hkepx.cn/xiju/5360773.htm)
-- [孙颖莎王楚钦零封张本美和松岛辉空](http://www.movie.hkepx.cn/movie/9566975.htm)
-- [特斯拉中国又宣布降价](http://www.daogukj.com/8649041)
-- [路过的好心人，能不能莫名其妙给我一个中秋/月亮相关的冷知识？](http://www.daogukj.com/zvuykujr/)
-- [第一批喝泰奶的“受害者”出现了](http://www.daogukj.com/smataala/)
-- [李现看自己洗澡戏看呆了](http://www.daogukj.com/mzqlfhhq/)
-- [美方称中美「贸易休战」延长至明年 1 月，这对世界局势有何影响？](http://www.play.hengshemaoyi.cn/kongbu/8184754.htm)
-- [盛李豪亚运第四金](http://www.movie.hkepx.cn/movie/8042143.htm)
-- [我记录下了妹妹的最后7天...【自制伪纪录片电影】](http://www.play.hengshemaoyi.cn/xiju/7145463.htm)
-- [“干饭哥”亚运已拿4金](http://www.play.hengshemaoyi.cn/kongbu/4548535.htm)
-- [电视剧《兰香如故》好不好看？](http://www.daogukj.com/0313251)
-- [【独家】时光代理人 第三季 PartOne 第8集 血色风浪【8月国创】](http://www.play.hengshemaoyi.cn/kongbu/0820222.htm)
-- [当顾客说我的饭难以下咽](http://www.daogukj.com/btolggbq/)
-- [马斯克母亲：我喜欢去中国](http://www.play.hengshemaoyi.cn/xiju/2703241.htm)
-- [美方拿出“顶配”机型迎接中方元首](http://www.play.hengshemaoyi.cn/xiju/1475778.htm)
-- [警惕“双节礼品卡”骗局](http://www.play.hengshemaoyi.cn/xiju/4475779.htm)
+- [中国女足1比0击败越南女足 晋级四强](http://www.movie.hkepx.cn/movie/3926125.htm)
+- [国乒男团 36 年来首次无缘亚运会金牌，客观来看，你认为最大的问题出在哪？](http://www.daogukj.com/jbrqqhbh/)
+- [中国女篮万次投篮计划究竟练了什么](http://www.daogukj.com/6283106)
+- [弹 性 势 能 豌 豆](http://www.play.hengshemaoyi.cn/xiju/3501535.htm)
+- [我记录下了妹妹的最后7天...【自制伪纪录片电影】](http://www.daogukj.com/tfcvjhpk/)
+- [张展硕 亚运第7金](http://www.daogukj.com/4841868)
+- [赛考斯回应出现在欢迎宴会致辞中](http://www.play.hengshemaoyi.cn/kongbu/6429820.htm)
+- [国际社会高度关注中美两国元首会晤](http://www.daogukj.com/jehuxdgs/)
+- [家长带孩子四处求医 病因就在家里](http://www.movie.hkepx.cn/xiju/1384580.htm)
+- [时尚芭莎红毯](http://www.daogukj.com/qyeqjnqv/)
+- [新华社评国乒男团无缘亚运九连冠](http://www.movie.hkepx.cn/movie/7212048.htm)
+- [每百年一次深渊血战，恶魔世界会如何发展？](http://www.movie.hkepx.cn/xiju/5780029.htm)
+- [古人是怎么知道月球很冷的，还取名为「广寒宫」？](http://www.daogukj.com/efezhgld/)
+- [今天抄家 人民的兔娘](http://www.play.hengshemaoyi.cn/kongbu/8328027.htm)
+- [【速凌宇宙】第二十七集：决战前夕！零号大坝有点太热闹了...](http://www.movie.hkepx.cn/xiju/5360773.htm)
+- [糟糕！我的粮食被勋宗抢走了！【神奇组织54】](http://www.movie.hkepx.cn/movie/9566975.htm)
+- [中国女篮不敌韩国无缘决赛](http://www.daogukj.com/8649041)
+- [张雨霏50蝶摘金](http://www.daogukj.com/zvuykujr/)
+- [八月十五为啥叫中秋节](http://www.daogukj.com/smataala/)
+- [在哪一刻，你意识到自己和千年前的人看的是同一个月亮？写月亮的一行字、一句诗、一首歌，你在哪个夜晚懂了？](http://www.daogukj.com/mzqlfhhq/)
+- [特朗普会中文的外孙女出席欢迎仪式](http://www.play.hengshemaoyi.cn/kongbu/8184754.htm)
+- [王楚钦 4-2 战胜泰国选手普里查扬，晋级亚运会乒乓男单 16 强，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/8042143.htm)
+- [神二十三乘组从天宫送来中秋祝福](http://www.play.hengshemaoyi.cn/xiju/7145463.htm)
+- [张继科说以前打日本队随便打](http://www.play.hengshemaoyi.cn/kongbu/4548535.htm)
+- [新华社评中国男乒决赛失利](http://www.daogukj.com/0313251)
+- [如何评价AI短剧《我的妹妹不可爱》？](http://www.play.hengshemaoyi.cn/kongbu/0820222.htm)
+- [一撇一捺 中美青年“双向奔赴”](http://www.daogukj.com/btolggbq/)
+- [【独家】《罗小黑战记 学前篇》定档10月30日](http://www.play.hengshemaoyi.cn/xiju/2703241.htm)
+- [麦当劳多门店被举报售卖到期奶浆、无冷链运输，具体是咋回事？若属实会给麦当劳带来什么影响？](http://www.play.hengshemaoyi.cn/xiju/1475778.htm)
+- [山姆把采购主管换成外籍](http://www.play.hengshemaoyi.cn/xiju/4475779.htm)
 - [【纪录片】生命奇观2 02 黄渤海湿地](http://www.play.hengshemaoyi.cn/xiju/3969235.htm)
-- [王祖贤回应容貌争议：我已经60岁了](http://www.play.hengshemaoyi.cn/kongbu/1797022.htm)
-- [麦当劳多门店被举报售卖到期奶浆、无冷链运输，具体是咋回事？若属实会给麦当劳带来什么影响？](http://www.movie.hkepx.cn/xiju/9886322.htm)
-- [王曼昱4-0零封对手晋级亚运女单16强](http://www.play.hengshemaoyi.cn/xiju/1914744.htm)
-- [特朗普听到大熊猫将落户美国笑了](http://www.movie.hkepx.cn/movie/2301491.htm)
-- [原来八宝粥是生米装罐](http://www.play.hengshemaoyi.cn/xiju/2353249.htm)
-- [一块月饼等于几碗饭](http://www.daogukj.com/fownzino/)
-- [谈到「相思」与「团圆」，你有哪些故事想要分享？](http://www.play.hengshemaoyi.cn/xiju/3652466.htm)
-- [央视中秋晚会节目单](http://www.daogukj.com/7447842)
+- [特朗普：这是一次伟大的会晤](http://www.play.hengshemaoyi.cn/kongbu/1797022.htm)
+- [警惕“双节礼品卡”骗局](http://www.movie.hkepx.cn/xiju/9886322.htm)
+- [松岛辉空向孙颖莎竖大拇指](http://www.play.hengshemaoyi.cn/xiju/1914744.htm)
+- [王楚钦/孙颖莎 3-0 松岛辉空/张本美和，晋级亚运会混双四强，怎样评价本场比赛？](http://www.movie.hkepx.cn/movie/2301491.htm)
+- [超长出行窗口催热中秋国庆游](http://www.play.hengshemaoyi.cn/xiju/2353249.htm)
+- [教室空调开20度，我的孩子觉得好冷，老师说「觉得冷的孩子就多穿点」，怎么跟老师沟通这件事情？](http://www.daogukj.com/fownzino/)
+- [高校捞鱼免费给学生做全鱼宴过中秋](http://www.play.hengshemaoyi.cn/xiju/3652466.htm)
+- [中国篮球各项均无缘亚运决赛](http://www.daogukj.com/7447842)
 - [习近平在欢迎宴会上的祝酒辞](http://www.daogukj.com/kzpjmnze/)
-- [马斯克黄仁勋库克坐一桌](http://www.play.hengshemaoyi.cn/kongbu/4160936.htm)
-- [合肥一小区4栋楼悬挂800面国旗](http://www.daogukj.com/5391271)
-- [二周年彩蛋全流程！一起见证！二洲年快乐！](http://www.play.hengshemaoyi.cn/xiju/1037193.htm)
-- [如何看待清华校长说的「AI越会走捷径，人越要下笨功夫」？](http://www.daogukj.com/4166842)
-- [在每一个集体中都被排挤的那个同学，你好（阿晴教学篇op/ed）【27】](http://www.movie.hkepx.cn/xiju/6638941.htm)
-- [《缅北讲师》](http://www.play.hengshemaoyi.cn/kongbu/4151588.htm)
-- [平澜起风波 | 书院同窗们，开学啦！](http://www.daogukj.com/jguwcjlw/)
-- [跟着古诗追月亮](http://www.movie.hkepx.cn/xiju/6322184.htm)
+- [弹丸论破，但是真人版](http://www.play.hengshemaoyi.cn/kongbu/4160936.htm)
+- [【官方中字】尼古喵喵 第12集](http://www.daogukj.com/5391271)
+- [如何看待各平台所谓「团体赛没有一人两分的义务」「一人一分是本分」「团体赛不能只靠一人」这种说法？](http://www.play.hengshemaoyi.cn/xiju/1037193.htm)
+- [李治廷当爸](http://www.daogukj.com/4166842)
+- [不能被AI取代的64种工作](http://www.movie.hkepx.cn/xiju/6638941.htm)
+- [有什么食物是「中国人吃，而外国人基本不怎么吃的」？](http://www.play.hengshemaoyi.cn/kongbu/4151588.htm)
+- [白宫墙上悬挂中美元首握手照片](http://www.daogukj.com/jguwcjlw/)
+- [全球期待中美元首会晤为世界注入正能量](http://www.movie.hkepx.cn/xiju/6322184.htm)
 - [中美元首华盛顿会晤](http://www.play.hengshemaoyi.cn/xiju/2530472.htm)
-- [超市里已经……没有人类了……](http://www.daogukj.com/5202971)
+- [张展硕数一二三四五六七](http://www.daogukj.com/5202971)
 
 </details>
 
 ## 原始来源
 
-- [白宫公布国宴菜单与装饰](https://www.baidu.com/s?wd=%E7%99%BD%E5%AE%AB%E5%85%AC%E5%B8%83%E5%9B%BD%E5%AE%B4%E8%8F%9C%E5%8D%95%E4%B8%8E%E8%A3%85%E9%A5%B0&sa=fyb_news&rsv_dl=fyb_news)
+- [高价月饼礼盒退潮](https://www.toutiao.com/trending/7689211936675905572/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227689211936675905572%22%2C%22hot_board_impr_id%22%3A%2220260925182426A2804508E5FE40F85266%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: a4f72f6465b2591060e9 -->
+<!-- content-fingerprint: 7549375d618d575bc7b8 -->
