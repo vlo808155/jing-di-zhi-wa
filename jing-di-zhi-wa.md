@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 比亚迪新车纯电续航1100km打破纪录
+# 2米多长金箍棒 一口价428.8万
 
-> 来源：百度热搜 · 排名：第 16 位 · 热度：6276965 · 更新：2026-09-26T13:43:29+08:00
+> 来源：百度热搜 · 排名：第 17 位 · 热度：6183435 · 更新：2026-09-26T18:17:41+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“比亚迪新车纯电续航1100km打破纪录”位列第 16 位，公开热度指标为 6276965。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“2米多长金箍棒 一口价428.8万”位列第 17 位，公开热度指标为 6183435。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，比亚迪旗下腾势汽车全新科技豪华智能轿车腾势Z9S正式上市。腾势Z9S纯电续航最高达1100公里，打破全球量产车纪录，并搭载1000V高压闪充平台，10%-70%电量充电仅需5分钟。
+来源公开摘要显示：9月26日，媒体报道西安一金店展出一根2米多长、金重约1740克的纯金金箍棒，标价428.8万元。店员称该展品为非卖品，但如有需要可订做。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [刘欢最后一次公开演出](hai-kuo-tian-kong.md)
-- [媒体：大河向东流 “欢”歌永不朽](gao-zhan-yuan-zhu.md)
-- [如何评价原神7.1版本逐月节任务“银翎溯月，玄鸟结璘”？](xiong-you-cheng-zhu.md)
-- [今天就是中秋节了，希望所有努力的人花好月圆](yun-chou-wei-wo.md)
+- [缺血性股骨头坏死是什么病](hai-kuo-tian-kong.md)
+- [刘欢今年1月最后一次公开演出](gao-zhan-yuan-zhu.md)
+- [浙江男子出生28天就被送养到山东，58年后寻亲成功，比哥哥高一头，山东人每天吃什么？为啥会高出这么多？](xiong-you-cheng-zhu.md)
+- [罗素：为了阻止末日，可以先点燃一场战争吗？](yun-chou-wei-wo.md)
 
 ## 站内推荐
 
-- [中美站在新的历史起点](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [八月十六：中秋还有“下半场”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [院士窃取他人科研成果系谣言](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [刘欢妻子之前透露：他曾隐瞒病情](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [五胞胎爸爸：3个人照顾5个娃没空过节](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [中美共同构建建设性战略稳定关系](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [张本智和 3-0 王楚钦，赛后称等这枚金牌等了十年，现在张本智和的水平在哪个层次？对国乒威胁有多大？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [查理斯《绝命糖猪-chalice》](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [刘欢上个月在国外还被偶遇了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [国乒男团 丢冠反思](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [普京：特别军事行动目标将全部实现](http://www.play.hengshemaoyi.cn/xiju/2682331.htm)
-- [赛考斯：特别激动 几乎不敢相信](http://www.movie.hkepx.cn/movie/3552953.htm)
-- [刘欢7年前曾做支架手术](http://www.movie.hkepx.cn/xiju/5501331.htm)
-- [《甄嬛传》片头片尾曲演唱者均离世](http://www.daogukj.com/5865714)
-- [月饼和螃蟹一起吃会中毒？假](http://www.movie.hkepx.cn/xiju/6974026.htm)
-- [王楚钦不该承受恶劣舆论环境](http://www.movie.hkepx.cn/movie/6932309.htm)
-- [在家破解¥300一块的上海最贵炸鸡，成本只要...](http://www.play.hengshemaoyi.cn/xiju/6279680.htm)
-- [院士窃取他人科研成果系谣言](http://www.movie.hkepx.cn/movie/2684858.htm)
-- [专家：菲律宾在南海问题上背信弃义](http://www.daogukj.com/4259523)
-- [最能吃的皮肤转场——大虫子](http://www.daogukj.com/qgjsruwo/)
-- [刘欢曾因股骨头坏死治疗](http://www.play.hengshemaoyi.cn/kongbu/0099761.htm)
-- [比尔盖茨发出严厉警告](http://www.play.hengshemaoyi.cn/kongbu/2800065.htm)
-- [国乒 陪练流失](http://www.movie.hkepx.cn/xiju/7938027.htm)
-- [为什么鸡转头是「一下一下」「瞬移」，而不是像人一样有肉眼可见的转头过程？](http://www.daogukj.com/yxmhbgmj/)
-- [《微微一笑很倾城》女主换脸后重上流媒体，你观感如何？类似原因下架的作品都能这样「复活」吗？](http://www.daogukj.com/ysjajnjj/)
-- [五胞胎爸爸：3个人照顾5个娃没空过节](http://www.daogukj.com/4118538)
-- [国安部最新披露](http://www.play.hengshemaoyi.cn/kongbu/8139573.htm)
-- [特朗普：这次访问富有成效](http://www.daogukj.com/bgjdqoal/)
-- [今天抄家 人民的兔娘](http://www.play.hengshemaoyi.cn/kongbu/1399796.htm)
-- [亚运会男子 100 米半决赛，泰国选手汶颂跑出 9.91 秒，突破苏炳添亚运纪录，如何评价？](http://www.movie.hkepx.cn/xiju/1312398.htm)
-- [如何看待千亿航天被曝强制加班、非客观原因开除，其 CEO 回应称管理方式比较粗暴并就不实信息报警？](http://www.daogukj.com/hqgapaxs/)
-- [陈妤颉夺冠后收到五年高考三年模拟](http://www.play.hengshemaoyi.cn/xiju/5373978.htm)
-- [为了吸引玩家，现在的游戏厂商究竟有多拼？](http://www.daogukj.com/1191954)
-- [你们说我像谁我就模仿谁！这一期下料有点猛啊哈哈哈哈](http://www.daogukj.com/6834210)
-- [媒体：反“台独”红线前移](http://www.movie.hkepx.cn/movie/6540828.htm)
-- [盖茨称人工智能或致十亿人死亡](http://www.movie.hkepx.cn/movie/7210597.htm)
-- [刘欢去世](http://www.movie.hkepx.cn/xiju/0123432.htm)
-- [中美关系的前途是光明的](http://www.play.hengshemaoyi.cn/kongbu/3128174.htm)
-- [被雪莉资助的孩子不知她已离世](http://www.daogukj.com/7181360)
-- [陈芋汐卢为10米台夺金](http://www.daogukj.com/6926357)
-- [听声音知强度！当年最强的战绩竟然是同一个人打出来的？](http://www.play.hengshemaoyi.cn/kongbu/9049497.htm)
-- [网红狗头萝莉自曝负债 650 万成老赖，主播为何频频陷入天价违约金困境？](http://www.daogukj.com/eiphdnwm/)
-- [樊振东回归能解决目前国乒的问题吗？他回归的可能性有多大？](http://www.movie.hkepx.cn/xiju/7401130.htm)
-- [查理斯《绝命糖猪-chalice》](http://www.movie.hkepx.cn/movie/7110434.htm)
-- [刘欢丧事从简不举行追悼会](http://www.play.hengshemaoyi.cn/kongbu/4490690.htm)
-- [【新宿决战】阿伟VS杰哥](http://www.movie.hkepx.cn/movie/6518386.htm)
-- [罗素：为了阻止末日，可以先点燃一场战争吗？](http://www.daogukj.com/8067678)
-- [媒体：大河向东流 “欢”歌永不朽](http://www.play.hengshemaoyi.cn/kongbu/6649001.htm)
-- [为什么工作看第一学历不是最高学历？有人说上海一本去河南大概率专科，河南一本去上海能上985，是这样吗？](http://www.daogukj.com/htblbqcb/)
-- [众歌手悼念刘欢](http://www.play.hengshemaoyi.cn/xiju/4658280.htm)
-- [中美元首夫妇茶叙高清大图](http://www.movie.hkepx.cn/xiju/0000676.htm)
-- [躲闪摇究极进化闪身步](http://www.play.hengshemaoyi.cn/kongbu/4700540.htm)
-- [王楚钦之后谁还能扛起国乒大旗？为什么感觉新人都差了那么一点？](http://www.movie.hkepx.cn/xiju/2723766.htm)
-- [成都三角梅瀑布](http://www.daogukj.com/sxyjxhms/)
-- [古埃及是整个地中海世界最大的粮仓，为啥没有像中华文明一样，安心做个农业文明呢？](http://www.play.hengshemaoyi.cn/kongbu/7497786.htm)
-- [男子全款买房未入住 6年后一看懵了](http://www.play.hengshemaoyi.cn/kongbu/0039607.htm)
-- [中国队 第100金](http://www.daogukj.com/9799008)
-- [救命钱被转 银行1条提醒短信都没发](http://www.daogukj.com/uavkxthj/)
-- [日本选手被张展硕7枚金牌惊出表情包](http://www.play.hengshemaoyi.cn/xiju/1469979.htm)
-- [美方称中美「贸易休战」延长至明年 1 月，这对世界局势有何影响？](http://www.play.hengshemaoyi.cn/kongbu/2837480.htm)
+- [有酒店推出 369 元自助早餐月卡，可任选 70 种餐品，你愿意去吃吗？为啥酒店开始卖早餐月卡？](http://www.play.hengshemaoyi.cn/xiju/2682331.htm)
+- [张本智和淘汰](http://www.movie.hkepx.cn/movie/3552953.htm)
+- [比尔盖茨发出严厉警告](http://www.movie.hkepx.cn/xiju/5501331.htm)
+- [张艺谋悼念刘欢](http://www.daogukj.com/5865714)
+- [王楚钦说没有精力了](http://www.movie.hkepx.cn/xiju/6974026.htm)
+- [刘欢去世](http://www.movie.hkepx.cn/movie/6932309.htm)
+- [原来各大博主都是这么拍视频的啊？哈哈哈](http://www.play.hengshemaoyi.cn/xiju/6279680.htm)
+- [查理斯《绝命糖猪-chalice》](http://www.movie.hkepx.cn/movie/2684858.htm)
+- [毛宁发布多张习近平访美现场图片](http://www.daogukj.com/4259523)
+- [刘欢最后舞台祝大家平安健康](http://www.daogukj.com/qgjsruwo/)
+- [如何评价央视 2026 中秋晚会？你觉得哪个节目最让你印象深刻？](http://www.play.hengshemaoyi.cn/kongbu/0099761.htm)
+- [亚运乒乓男单 1/4 决赛，张本智和 3-4 不敌伊朗阿拉米扬，如何评价本场比赛，张本到底什么水平？](http://www.play.hengshemaoyi.cn/kongbu/2800065.htm)
+- [韩红 刘欢先生一路走好](http://www.movie.hkepx.cn/xiju/7938027.htm)
+- [特朗普：这次访问富有成效](http://www.daogukj.com/yxmhbgmj/)
+- [张本智和无缘男单四强](http://www.daogukj.com/ysjajnjj/)
+- [国乒男团 丢冠反思](http://www.daogukj.com/4118538)
+- [刘欢：遗憾是作品写得太少了](http://www.play.hengshemaoyi.cn/kongbu/8139573.htm)
+- [刘欢常跟人喝酒聊天到天亮](http://www.daogukj.com/bgjdqoal/)
+- [日本乒乓亚运男单全军覆没](http://www.play.hengshemaoyi.cn/kongbu/1399796.htm)
+- [【独家】《凡人修仙传之慕兰之战》第17集【总第193集】](http://www.movie.hkepx.cn/xiju/1312398.htm)
+- [刘欢妻子：我永远的爱 永远的痛](http://www.daogukj.com/hqgapaxs/)
+- [《鸣潮》共鸣者战斗演示 | 心](http://www.play.hengshemaoyi.cn/xiju/5373978.htm)
+- [为什么鸡转头是「一下一下」「瞬移」，而不是像人一样有肉眼可见的转头过程？](http://www.daogukj.com/1191954)
+- [斑铜](http://www.daogukj.com/6834210)
+- [白宫里的三张照片见证中美关系](http://www.movie.hkepx.cn/movie/6540828.htm)
+- [比尔•盖茨警告AI或可致十亿人死亡，呼吁立法监管，怎样看待他的观点？现阶段需要怎样的法律约束 AI？](http://www.movie.hkepx.cn/movie/7210597.htm)
+- [刘欢在家人陪伴下病逝](http://www.movie.hkepx.cn/xiju/0123432.htm)
+- [把中美建设性战略稳定关系从愿景转化为行动](http://www.play.hengshemaoyi.cn/kongbu/3128174.htm)
+- [韩红生日当天得知刘欢去世](http://www.daogukj.com/7181360)
+- [美媒：美对伊朗战事已耗资436亿美元](http://www.daogukj.com/6926357)
+- [财务自由的感觉是怎样的？](http://www.play.hengshemaoyi.cn/kongbu/9049497.htm)
+- [中国男足战胜泰国队晋级4强](http://www.daogukj.com/eiphdnwm/)
+- [网络热传生物鉴定 第64期](http://www.movie.hkepx.cn/xiju/7401130.htm)
+- [穿高跟鞋爬华山然后立刻筋膜刀](http://www.movie.hkepx.cn/movie/7110434.htm)
+- [如何看中国队拿下本届亚运会百金](http://www.play.hengshemaoyi.cn/kongbu/4490690.htm)
+- [如何看待千亿航天被曝强制加班、非客观原因开除，其 CEO 回应称管理方式比较粗暴并就不实信息报警？](http://www.movie.hkepx.cn/movie/6518386.htm)
+- [林诗栋vs松岛辉空](http://www.daogukj.com/8067678)
+- [刘欢今年1月最后一次公开演出](http://www.play.hengshemaoyi.cn/kongbu/6649001.htm)
+- [四川38岁男子赴泰失联79天获救，称自己「超龄不好卖」被当赠品卖给园区，有哪些信息值得关注？](http://www.daogukj.com/htblbqcb/)
+- [张本智和vs阿拉米扬](http://www.play.hengshemaoyi.cn/xiju/4658280.htm)
+- [中美达成八点成果共识](http://www.movie.hkepx.cn/xiju/0000676.htm)
+- [王楚钦之后谁还能扛起国乒大旗？为什么感觉新人都差了那么一点？](http://www.play.hengshemaoyi.cn/kongbu/4700540.htm)
+- [刘欢 63 岁去世，生前长期受股骨头缺血性坏死困扰，该病被称为「不死的癌症」，它会如何逐步拖垮身体？](http://www.movie.hkepx.cn/xiju/2723766.htm)
+- [中美元首白宫互动的五个细节](http://www.daogukj.com/sxyjxhms/)
+- [“让我用泥头车宽恕你”](http://www.play.hengshemaoyi.cn/kongbu/7497786.htm)
+- [《微微一笑很倾城》女主换脸后重上流媒体，你观感如何？类似原因下架的作品都能这样「复活」吗？](http://www.play.hengshemaoyi.cn/kongbu/0039607.htm)
+- [张本智和爆冷出局](http://www.daogukj.com/9799008)
+- [姚贝娜父亲哽咽回应刘欢去世](http://www.daogukj.com/uavkxthj/)
+- [众歌手悼念刘欢](http://www.play.hengshemaoyi.cn/xiju/1469979.htm)
+- [《以片换物- -洗剪吹》 再不疯狂就老了 借一场大笑，释放藏起来的自己。](http://www.play.hengshemaoyi.cn/kongbu/2837480.htm)
 
 </details>
 
 ## 原始来源
 
-- [比亚迪新车纯电续航1100km打破纪录](https://www.baidu.com/s?wd=%E6%AF%94%E4%BA%9A%E8%BF%AA%E6%96%B0%E8%BD%A6%E7%BA%AF%E7%94%B5%E7%BB%AD%E8%88%AA1100km%E6%89%93%E7%A0%B4%E7%BA%AA%E5%BD%95&sa=fyb_news&rsv_dl=fyb_news)
+- [2米多长金箍棒 一口价428.8万](https://www.baidu.com/s?wd=2%E7%B1%B3%E5%A4%9A%E9%95%BF%E9%87%91%E7%AE%8D%E6%A3%92+%E4%B8%80%E5%8F%A3%E4%BB%B7428.8%E4%B8%87&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: bdb6d4989bd37cc7b34f -->
+<!-- content-fingerprint: 91145e924aded7dc85ea -->
