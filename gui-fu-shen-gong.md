@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 四条高铁将开通
+# 刘欢大学就读于法国文学专业
 
-> 来源：百度热搜 · 排名：第 19 位 · 热度：6002924 · 更新：2026-09-26T08:50:29+08:00
+> 来源：微博热搜 · 排名：第 19 位 · 热度：449187 · 分类：艺人 · 更新：2026-09-26T13:43:29+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“四条高铁将开通”位列第 19 位，公开热度指标为 6002924。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“刘欢大学就读于法国文学专业”位列第 19 位，公开热度指标为 449187，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：金秋时节，一批重点高铁线路即将开通运营。记者25日从中国国家铁路集团有限公司获悉，9月28日，京港高铁雄安至商丘段、西渝高铁西安至安康段、宜昌至兴山高铁、哈尔滨至伊春高铁将集中亮相。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `艺人`
 
 ## 相关热点
 
-- [梅姨案被拐孩子钟彬被养父拉黑](jin-shang-tian-hua.md)
-- [现在中秋很多人都在出门玩，中秋节「团圆」的属性是不是越来越淡了？](hua-long-dian-jing.md)
-- [最能吃的皮肤转场——大虫子](miao-bi-sheng-hua.md)
-- [曼城或被剥夺冠军逐出英超](sheng-dong-huo-po.md)
+- [刘欢曾因股骨头坏死治疗](jin-shang-tian-hua.md)
+- [为什么「西游记」里的太上老君没有「封神演义」里的太上老君地位高？](hua-long-dian-jing.md)
+- [【独家】《罗小黑战记 学前篇》定档10月30日](miao-bi-sheng-hua.md)
+- [吉克隽逸头像已变黑](sheng-dong-huo-po.md)
 
 ## 站内推荐
 
 - [中美两国元首夫妇参观美国国家档案馆](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
-- [白宫欢迎国宴上喝的酒不简单](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
-- [为什么清华不把打酱油的院系砍掉，专注于理工科?](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
-- [这是蜜月vlog吗？？？【一雨季#07】](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
-- [今年石油危机为何没毁灭世界？埋头苦干讲奉献还适应当代打工人吗？或许都得聊聊这座中国城市【笔行东北①】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
+- [比尔盖茨发出严厉警告](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
+- [大陆学生赴台交流被女间谍主动接近](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
+- [众歌手悼念刘欢](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
+- [刘欢最后一次公开演出](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [手机拍视频，怎么才能没有“手机感”？｜荣耀Magic9](http://www.play.hengshemaoyi.cn/kongbu/5808339.htm)
-- [乒乓男团亚运丢冠暴露哪些问题](http://www.daogukj.com/1739906)
-- [2 岁女童站「独立洗澡神器」上被父母独留浴室，误触 70℃ 热水致重度烫伤，如何避免此类悲剧？](http://www.daogukj.com/6935812)
-- [今日份缇宝](http://www.daogukj.com/pmpkacrd/)
-- [在食堂吃顿正常的饭就那么难吗！！？](http://www.play.hengshemaoyi.cn/kongbu/2438192.htm)
-- [月饼和螃蟹一起吃会中毒？假](http://www.play.hengshemaoyi.cn/kongbu/7293063.htm)
-- [中美元首不到半年实现互访 前所未有](http://www.play.hengshemaoyi.cn/xiju/4857183.htm)
-- [收手机这一块](http://www.movie.hkepx.cn/xiju/7889734.htm)
-- [刘国梁看台静坐目睹失冠](http://www.play.hengshemaoyi.cn/kongbu/0667195.htm)
-- [国乒包揽冠亚军庆祝中秋](http://www.play.hengshemaoyi.cn/kongbu/1579498.htm)
-- [特朗普：这次访问富有成效](http://www.movie.hkepx.cn/movie/0667278.htm)
-- [你们说我像谁我就模仿谁！这一期下料有点猛啊哈哈哈哈](http://www.movie.hkepx.cn/movie/2598628.htm)
-- [糟糕！我的粮食被勋宗抢走了！【神奇组织54】](http://www.daogukj.com/vbrxejif/)
-- [客观看国乒男团决赛前的变阵是最好的选择吗？](http://www.play.hengshemaoyi.cn/xiju/6786751.htm)
-- [《微微一笑很倾城》女主换脸后重上流媒体，你观感如何？类似原因下架的作品都能这样「复活」吗？](http://www.daogukj.com/kpifomse/)
-- [《遗忘之海》“王女”艾蕾诺尔角色PV ——为王之证](http://www.daogukj.com/1805907)
-- [央视秋晚“含川量”满满](http://www.daogukj.com/0272216)
-- [亚运女子100米短跑决赛，陈妤颉夺冠，跑出 11.06 秒​​​​刷新亚运会纪录，如何评价本场对决？](http://www.play.hengshemaoyi.cn/xiju/6434082.htm)
-- [井柏然刘雯去看李荣浩演唱会](http://www.play.hengshemaoyi.cn/xiju/8702577.htm)
-- [低糖月饼、文创月饼走俏](http://www.daogukj.com/1001749)
-- [两人吃西贝没点海鲜花五百多](http://www.daogukj.com/9435306)
-- [王楚钦 进决赛不容易](http://www.play.hengshemaoyi.cn/kongbu/5701265.htm)
-- [刚死不久的螃蟹还能吃吗](http://www.movie.hkepx.cn/xiju/3842120.htm)
-- [王楚钦 4-2 战胜泰国选手普里查扬，晋级亚运会乒乓男单 16 强，如何评价本场比赛？](http://www.movie.hkepx.cn/xiju/7251868.htm)
-- [当小米手机重新站到台前](http://www.movie.hkepx.cn/movie/8872274.htm)
-- [教育部称推动建设 1000 所以上的优质高中，加大完全中学、十二年一贯制学校建设力度，透露哪些信息？](http://www.daogukj.com/yniobcvk/)
-- [中国人在写死亡的时候出奇的神](http://www.movie.hkepx.cn/movie/0768259.htm)
-- [四川宜宾发生4.5级地震](http://www.daogukj.com/8746275)
-- [如果没有《繁花》爷叔这个角色，游本昌会不会就慢慢被遗忘了？](http://www.play.hengshemaoyi.cn/xiju/8271575.htm)
-- [美方称中美「贸易休战」延长至明年 1 月，这对世界局势有何影响？](http://www.daogukj.com/kgtebwbx/)
-- [今年石油危机为何没毁灭世界？埋头苦干讲奉献还适应当代打工人吗？或许都得聊聊这座中国城市【笔行东北①】](http://www.play.hengshemaoyi.cn/xiju/1497703.htm)
-- [如何看待 10 后学生走红的 「呆毛」发型，头顶剪一小撮炸起来像海胆？一代人有一代人的发型潮流吗？](http://www.movie.hkepx.cn/xiju/0744889.htm)
-- [怎么评价 DeepSeek Harness 桌面版源码正式上线？](http://www.movie.hkepx.cn/xiju/0791643.htm)
-- [共同浇灌中美友谊的美丽花朵](http://www.movie.hkepx.cn/movie/3601600.htm)
-- [中美元首夫妇参观美国国家档案馆](http://www.daogukj.com/6606882)
-- [从一撇一捺看中美青年双向奔赴](http://www.play.hengshemaoyi.cn/kongbu/5430461.htm)
-- [为了钓冰川变异蓝鳟，我在北极被800只苍蝇追了两天](http://www.play.hengshemaoyi.cn/xiju/1401530.htm)
-- [韩国奥委会主席柳承敏「如果给本届亚运会打分，那只能是不及格，非常失望，组委会极其无能」，对此你怎么看？](http://www.play.hengshemaoyi.cn/kongbu/6874966.htm)
-- [基辅再次发生剧烈爆炸](http://www.movie.hkepx.cn/xiju/0869674.htm)
-- [网友710万卖房签合同瞬间泪崩](http://www.movie.hkepx.cn/xiju/8892121.htm)
-- [评论员：女篮失利暴露短板问题](http://www.daogukj.com/3840867)
-- [小齐哥称刘宇宁翻唱后有压力](http://www.daogukj.com/tdthozvf/)
-- [我，跑酷](http://www.movie.hkepx.cn/movie/9314467.htm)
-- [赛考斯回应出现在欢迎宴会致辞中](http://www.daogukj.com/4927582)
-- [男子输液后自尽留观室监控曝光](http://www.movie.hkepx.cn/xiju/7135657.htm)
-- [亚运会金牌有“瑕疵”](http://www.daogukj.com/edbsjtbr/)
-- [张雪机车员工晒中秋福利](http://www.movie.hkepx.cn/movie/3015116.htm)
-- [月球引发的潮汐力可引起大海潮汐涨落，为什么对人体里的水没有反应？](http://www.play.hengshemaoyi.cn/kongbu/8223902.htm)
-- [林锦岐用一根红绳跟许兰香约来世](http://www.daogukj.com/goublmac/)
-- [特朗普赠中方雕像：我亲自参与设计](http://www.movie.hkepx.cn/xiju/7589973.htm)
+- [2026 热 梗 年 度 总 结 ！！！【上】](http://www.play.hengshemaoyi.cn/kongbu/5808339.htm)
+- [男子全款买房未入住 6年后一看懵了](http://www.daogukj.com/1739906)
+- [那个让全中国跟着唱的人谢幕了](http://www.daogukj.com/6935812)
+- [陈芋汐卢为10米台夺金](http://www.daogukj.com/pmpkacrd/)
+- [刘欢7年前曾做支架手术](http://www.play.hengshemaoyi.cn/kongbu/2438192.htm)
+- [【剧情】长生契（2026）02【方逸伦 / 谢可寅】](http://www.play.hengshemaoyi.cn/kongbu/7293063.htm)
+- [【新宿决战】阿伟VS杰哥](http://www.play.hengshemaoyi.cn/xiju/4857183.htm)
+- [最能吃的皮肤转场——大虫子](http://www.movie.hkepx.cn/xiju/7889734.htm)
+- [如何评价原神7.1版本逐月节任务“银翎溯月，玄鸟结璘”？](http://www.play.hengshemaoyi.cn/kongbu/0667195.htm)
+- [比尔·盖茨警告AI或致十亿人死亡](http://www.play.hengshemaoyi.cn/kongbu/1579498.htm)
+- [《提瓦特猪圈论》原神至冬7.1若娜瓦冰之女皇剧情看不懂？不明白为什么总造反？一个视频带你逐渐理解一切](http://www.movie.hkepx.cn/movie/0667278.htm)
+- [媒体：反“台独”红线前移](http://www.movie.hkepx.cn/movie/2598628.htm)
+- [被雪莉资助的孩子不知她已离世](http://www.daogukj.com/vbrxejif/)
+- [王祖贤：我是安徽人 不久后准备回去](http://www.play.hengshemaoyi.cn/xiju/6786751.htm)
+- [陈妤颉夺冠后收到五年高考三年模拟](http://www.daogukj.com/kpifomse/)
+- [网红狗头萝莉自曝负债 650 万成老赖，主播为何频频陷入天价违约金困境？](http://www.daogukj.com/1805907)
+- [查理斯《绝命糖猪-chalice》](http://www.daogukj.com/0272216)
+- [樊振东回归能解决目前国乒的问题吗？他回归的可能性有多大？](http://www.play.hengshemaoyi.cn/xiju/6434082.htm)
+- [四川38岁男子赴泰失联79天获救，称自己「超龄不好卖」被当赠品卖给园区，有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/8702577.htm)
+- [护士突发脑出血倒在工作岗位，人社局称抢救十天不予认定工伤，为何倒在工位上仍无法认定工伤？](http://www.daogukj.com/1001749)
+- [著名音乐家刘欢于9月25日在上海病逝，享年63岁，如何评价他在华语乐坛的地位？哪首歌是你的时代记忆？](http://www.daogukj.com/9435306)
+- [王楚钦之后谁还能扛起国乒大旗？为什么感觉新人都差了那么一点？](http://www.play.hengshemaoyi.cn/kongbu/5701265.htm)
+- [马斯克感叹中国壮丽](http://www.movie.hkepx.cn/xiju/3842120.htm)
+- [《哦，香雪》中的香雪用40个鸡蛋换自动铅笔盒到底值不值得？](http://www.movie.hkepx.cn/xiju/7251868.htm)
+- [普京：特别军事行动目标将全部实现](http://www.movie.hkepx.cn/movie/8872274.htm)
+- [刘欢妻子之前透露：他曾隐瞒病情](http://www.daogukj.com/yniobcvk/)
+- [中国队 第100金](http://www.movie.hkepx.cn/movie/0768259.htm)
+- [特朗普：这次访问富有成效](http://www.daogukj.com/8746275)
+- [河南矿山老板发钱让加班员工回家](http://www.play.hengshemaoyi.cn/xiju/8271575.htm)
+- [亚运会男子 100 米半决赛，泰国选手汶颂跑出 9.91 秒，突破苏炳添亚运纪录，如何评价？](http://www.daogukj.com/kgtebwbx/)
+- [刘欢最后一次公开演出](http://www.play.hengshemaoyi.cn/xiju/1497703.htm)
+- [刘欢在家人陪伴下病逝](http://www.movie.hkepx.cn/xiju/0744889.htm)
+- [张家齐祝贺陈芋汐卢为夺金](http://www.movie.hkepx.cn/xiju/0791643.htm)
+- [为中美关系提供新的战略指引](http://www.movie.hkepx.cn/movie/3601600.htm)
+- [中美元首白宫互动的五个细节](http://www.daogukj.com/6606882)
+- [中美关系的前途是光明的](http://www.play.hengshemaoyi.cn/kongbu/5430461.htm)
+- [专家：菲律宾在南海问题上背信弃义](http://www.play.hengshemaoyi.cn/xiju/1401530.htm)
+- [依旧双子星来个小哲摇](http://www.play.hengshemaoyi.cn/kongbu/6874966.htm)
+- [媒体：大河向东流 “欢”歌永不朽](http://www.movie.hkepx.cn/xiju/0869674.htm)
+- [孙颖莎魔鬼赛程](http://www.movie.hkepx.cn/xiju/8892121.htm)
+- [盖茨称人工智能或致十亿人死亡](http://www.daogukj.com/3840867)
+- [斑铜](http://www.daogukj.com/tdthozvf/)
+- [国乒 陪练流失](http://www.movie.hkepx.cn/movie/9314467.htm)
+- [在家破解¥300一块的上海最贵炸鸡，成本只要...](http://www.daogukj.com/4927582)
+- [现在的孩子要什么有什么，为啥眼里没了光？](http://www.movie.hkepx.cn/xiju/7135657.htm)
+- [张本智和 3-0 王楚钦，赛后称等这枚金牌等了十年，现在张本智和的水平在哪个层次？对国乒威胁有多大？](http://www.daogukj.com/edbsjtbr/)
+- [今天抄家 人民的兔娘](http://www.movie.hkepx.cn/movie/3015116.htm)
+- [普京：俄方乐见中美元首会晤](http://www.play.hengshemaoyi.cn/kongbu/8223902.htm)
+- [八月十六：中秋还有“下半场”](http://www.daogukj.com/goublmac/)
+- [刘欢和他的时代之歌](http://www.movie.hkepx.cn/xiju/7589973.htm)
 
 </details>
 
 ## 原始来源
 
-- [四条高铁将开通](https://www.baidu.com/s?wd=%E5%9B%9B%E6%9D%A1%E9%AB%98%E9%93%81%E5%B0%86%E5%BC%80%E9%80%9A&sa=fyb_news&rsv_dl=fyb_news)
+- [刘欢大学就读于法国文学专业](https://s.weibo.com/weibo?q=%E5%88%98%E6%AC%A2%E5%A4%A7%E5%AD%A6%E5%B0%B1%E8%AF%BB%E4%BA%8E%E6%B3%95%E5%9B%BD%E6%96%87%E5%AD%A6%E4%B8%93%E4%B8%9A)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 41ad0749d77c043550e7 -->
+<!-- content-fingerprint: e6ca8a9861208a8fce67 -->
