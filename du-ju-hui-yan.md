@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 为什么现在不谈论可燃冰了？
+# 如何看待据称OpenAI、Anthropic正调查数万起AI安全事件，包括绕过安全护栏、创建留言板等？
 
-> 来源：知乎热榜 · 排名：第 18 位 · 热度：97 万热度 · 分类：问答 · 更新：2026-09-27T09:33:22+08:00
+> 来源：知乎热榜 · 排名：第 18 位 · 热度：123 万热度 · 分类：问答 · 更新：2026-09-27T15:03:03+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“为什么现在不谈论可燃冰了？”位列第 18 位，公开热度指标为 97 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待据称OpenAI、Anthropic正调查数万起AI安全事件，包括绕过安全护栏、创建留言板等？”位列第 18 位，公开热度指标为 123 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：我记得小学那会，就是2013年左右经常看到试卷和课外书里的文章会说，可燃冰是未来资源，深藏于海底，开采极其困难。如果技术突破，可燃冰将是人类的新能源，而且污染很小。 但是好像近十年我都没有听到关于可燃冰这种能源的报道了，石油，核能，电力，天然气还是能听到的
+来源公开摘要显示：IT之家 9 月 27 日消息，据 Axios 报道，OpenAI、Anthropic 以及安全研究人员正在调查数万起事件。在这些事件中，两家公司的前沿模型采取了一些外部评估人员认为存在问题的行动。 这些事件发生在近几个月的内部测试和现实环境中。如此庞大的事件数量表明，相关问题的复杂程度可能比公众目前了解到的高出几个数量级。 这些发现来自两家公司内部开展的模型评估工作，以及针对模型行为进行的调查。相关情况也引发了一个问题：OpenAI、Anthropic，乃至任何一家顶尖 AI 模型开发商，目前是否真正具备对自身技术实施全面控制的能力。 消息人士称，这些
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [2026 热 梗 年 度 总 结 ！！！【上】](bie-ju-jiang-xin.md)
-- [三大运营商为何全面暂停0元购机](qiao-duo-tian-gong.md)
-- [英格兰2比3西班牙](gui-fu-shen-gong.md)
-- [施之皓谈国乒男团亚运决赛排兵布阵](jin-shang-tian-hua.md)
+- [“后来我们恶语相向，却忘了我们曾经是最相爱的人”](bie-ju-jiang-xin.md)
+- [爷爷接孙子结果载了一车娃](qiao-duo-tian-gong.md)
+- [胡歌3岁女儿近照](gui-fu-shen-gong.md)
+- [韩媒：中国男足实力和心理都处下风](jin-shang-tian-hua.md)
 
 ## 站内推荐
 
-- [林诗栋/蒯曼4-0王楚钦/孙颖莎后，为啥很多人在喊求莎头组合解绑？客观来看，解绑会更有益于两位选手吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [冯小刚承认《抓特务》亏本但否认成本 3 亿，称电影「受到了一种网暴式、非理性的干扰」，你如何看待？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [如何评价李现、李一桐主演的悬疑剧《我不是大师》？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [交个朋友为「售卖的网红溜溜凳被曝用发霉木板、废旧海绵」道歉，称启动退赔，如何看待此事？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [如何看待厦门一公司宣布中秋国庆连放13.5天假，发放最高2000元旅游基金，并保障员工离线权？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [交个朋友为「售卖的网红溜溜凳被曝用发霉木板、废旧海绵」道歉，称启动退赔，如何看待此事？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [既然国人嫌弃月饼高油高糖，为啥不把月饼出口到喜爱糖油混合物的美国呢？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [时隔 7 年，在大银幕重看《复仇者联盟 4：终局之战》，你有哪些新的感受？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [为什么这次名古屋亚运会，围棋象棋这些棋类项目全部都取消了？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [你见过历史上有哪些地理盲闹出令人啼笑皆非的笑话？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [央视曝光吃作业隐患](http://www.daogukj.com/7203067)
-- [井柏然是刘雯的Luke是Flora的](http://www.daogukj.com/gowgjlqg/)
-- [粟文打破36年亚运会纪录](http://www.daogukj.com/7329084)
-- [时间不多喽](http://www.daogukj.com/tafakdgo/)
+- [132名领导手机号公开 不只是敢接电话](http://www.daogukj.com/7203067)
+- [九岁儿子护母推倒奶奶尾骨摔折](http://www.daogukj.com/gowgjlqg/)
+- [专家：机器人也失业了](http://www.daogukj.com/7329084)
+- [《三角洲行动》群星计划—代号：威龙](http://www.daogukj.com/tafakdgo/)
 - [中美八项成果为何未提台湾问题](http://www.play.hengshemaoyi.cn/kongbu/6822731.htm)
-- [如何看待厦门一公司宣布中秋国庆连放13.5天假，发放最高2000元旅游基金，并保障员工离线权？](http://www.movie.hkepx.cn/movie/9763774.htm)
-- [Claude刷新物理学世界纪录](http://www.movie.hkepx.cn/movie/5499528.htm)
-- [美国罕见超规格接待在日引巨大关注](http://www.movie.hkepx.cn/xiju/2091376.htm)
-- [美军铺红毯让日本网民破防](http://www.movie.hkepx.cn/movie/3384485.htm)
-- [东北秋天的“小咬”到底是啥](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
-- [周深演唱会嘴巴里都是雨水](http://www.daogukj.com/0541072)
-- [不再在别人的死亡里找安全感](http://www.daogukj.com/jyvgfrcg/)
-- [亚运会男足成绩历史性追上男篮，两个项目发展的走势是来到了交叉点吗？](http://www.daogukj.com/3891590)
-- [三大运营商为何全面暂停0元购机](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
-- [中国驻泰国大使馆重要提醒](http://www.movie.hkepx.cn/xiju/8805715.htm)
-- [2026 热 梗 年 度 总 结 ！！！【上】](http://www.daogukj.com/5398424)
-- [李在明谴责乌方泄露朝鲜战俘移送韩国](http://www.movie.hkepx.cn/xiju/6277332.htm)
-- ["这一话，向南！"](http://www.movie.hkepx.cn/xiju/7873556.htm)
-- [亚运乒乓球女单](http://www.play.hengshemaoyi.cn/xiju/9370456.htm)
-- [伊朗选手打赢张本冲日本教练面前庆祝](http://www.daogukj.com/nzepuewx/)
-- [如何评价文章「让本科生做回本科生」？](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
-- [【招笑版】新植物14:"魅惑"菇](http://www.movie.hkepx.cn/movie/0752879.htm)
-- [林诗栋单打击败松岛，张本负于伊朗大叔，这是否说明男团教练王皓在决赛排兵布阵太怂了，自己把自己安排输了？](http://www.movie.hkepx.cn/xiju/3642771.htm)
-- [中美元首会晤引发热烈国际反响](http://www.daogukj.com/5617601)
-- [为什么天津两所985高校排名一直在下降？](http://www.daogukj.com/8998145)
-- [戒赌吧覆灭！1400万赌徒抱团救赎，吧主将他们卖给赌场！【神奇组织17】](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
-- [冯小刚承认《抓特务》亏本但否认成本 3 亿，称电影「受到了一种网暴式、非理性的干扰」，你如何看待？](http://www.movie.hkepx.cn/xiju/8984384.htm)
-- [一猫哈气万狗哭！我把哈基米做成了肉鸽游戏！](http://www.movie.hkepx.cn/xiju/1180114.htm)
-- [一条视频涨粉20w？油管vlog大神的拍摄焚决我给你们问出来了！](http://www.movie.hkepx.cn/movie/0847312.htm)
-- [网络热传生物鉴定 第64期](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
-- [王楚钦感谢孙颖莎一起守住了混双金牌](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
-- [为什么哥德巴赫猜想未能入选千禧年七大数学问题？是不是意义相对较低？](http://www.movie.hkepx.cn/xiju/6763243.htm)
+- [你见过历史上有哪些地理盲闹出令人啼笑皆非的笑话？](http://www.movie.hkepx.cn/movie/9763774.htm)
+- [广州岭南印象园一女演员从高处坠落](http://www.movie.hkepx.cn/movie/5499528.htm)
+- [这个小长假你是怎么度过的](http://www.movie.hkepx.cn/xiju/2091376.htm)
+- [油价将于10月15日24时调整](http://www.movie.hkepx.cn/movie/3384485.htm)
+- [茅台新品1分钟售罄 定价2199元](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
+- [温瑞博向鹏vs张本智和筱冢大登](http://www.daogukj.com/0541072)
+- [国乒男双无缘会师决赛](http://www.daogukj.com/jyvgfrcg/)
+- [为什么天津两所985高校排名一直在下降？](http://www.daogukj.com/3891590)
+- [爷爷接孙子结果载了一车娃](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
+- [中美见面同期美企在华开启量产](http://www.movie.hkepx.cn/xiju/8805715.htm)
+- [“后来我们恶语相向，却忘了我们曾经是最相爱的人”](http://www.daogukj.com/5398424)
+- [邱毅：“解放军驻台”能震慑分裂势力](http://www.movie.hkepx.cn/xiju/6277332.htm)
+- [【招笑版】新植物14:"魅惑"菇](http://www.movie.hkepx.cn/xiju/7873556.htm)
+- [孙颖莎vs早田希娜](http://www.play.hengshemaoyi.cn/xiju/9370456.htm)
+- [邓亚萍谈日本男单全军覆没：兴奋过头](http://www.daogukj.com/nzepuewx/)
+- [林诗栋单打击败松岛，张本负于伊朗大叔，这是否说明男团教练王皓在决赛排兵布阵太怂了，自己把自己安排输了？](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
+- [硬核，不是说说而已](http://www.movie.hkepx.cn/movie/0752879.htm)
+- [如何看待厦门一公司宣布中秋国庆连放13.5天假，发放最高2000元旅游基金，并保障员工离线权？](http://www.movie.hkepx.cn/xiju/3642771.htm)
+- [台湾社会要读懂中美元首会晤意义](http://www.daogukj.com/5617601)
+- [一技校101名毕业生入职北大，学生一般大二就被预订，主要去实验室做科研助手，这是一种怎样的职业路径？](http://www.daogukj.com/8998145)
+- [当你遇到两年前的自己.......](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
+- [既然国人嫌弃月饼高油高糖，为啥不把月饼出口到喜爱糖油混合物的美国呢？](http://www.movie.hkepx.cn/xiju/8984384.htm)
+- [《以片换物- -洗剪吹》 再不疯狂就老了 借一场大笑，释放藏起来的自己。](http://www.movie.hkepx.cn/xiju/1180114.htm)
+- [《崩坏：星穹铁道》真珠角色PV——「如何描绘一种希望」](http://www.movie.hkepx.cn/movie/0847312.htm)
+- [Ai短片｜《标签》｜如果标签上的字都变成现实？](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
+- [问界每车十三万溢价去哪了](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
+- [男子为泄愤拧松他人轿车轮胎螺母获刑三年，从法律角度该如何解读？](http://www.movie.hkepx.cn/xiju/6763243.htm)
 - [中美达成八点成果共识，达成「300亿美元」对等降税安排，哪些信息值得重点关注？](http://www.movie.hkepx.cn/xiju/9186695.htm)
-- [河南一技校101名毕业生入职北大](http://www.daogukj.com/pxvooxke/)
-- [三角洲行动 瓦尔基里玩法爆料！靶场扩建！新图海啸展示！二周年更新计划爆料解析！](http://www.movie.hkepx.cn/xiju/1116357.htm)
-- [刘欢常跟人喝酒聊天到天亮](http://www.movie.hkepx.cn/xiju/0923150.htm)
-- [交个朋友为「售卖的网红溜溜凳被曝用发霉木板、废旧海绵」道歉，称启动退赔，如何看待此事？](http://www.daogukj.com/wwpryopq/)
-- [杨过 郭芙](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
-- [黄健翔希望国足回到亚洲一流](http://www.movie.hkepx.cn/xiju/6581777.htm)
-- [项目唯一女选手采访中笑着笑着哭了](http://www.daogukj.com/ydetypas/)
-- [打破苏炳添纪录的亚洲新飞人是谁](http://www.movie.hkepx.cn/xiju/1440565.htm)
-- [伊朗提重开霍尔木兹海峡方案遭美拒绝](http://www.movie.hkepx.cn/movie/0748348.htm)
+- [北京释放7亿只小蜂治毛毛虫](http://www.daogukj.com/pxvooxke/)
+- [【侯绿萝】更新啦，赶紧来围观吧！](http://www.movie.hkepx.cn/xiju/1116357.htm)
+- [刘欢生前打算推出专辑《忘记刘欢》](http://www.movie.hkepx.cn/xiju/0923150.htm)
+- [为什么这次名古屋亚运会，围棋象棋这些棋类项目全部都取消了？](http://www.daogukj.com/wwpryopq/)
+- [交强险经营亏损两百多亿](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
+- [亚运颁奖现场升起两面五星红旗](http://www.movie.hkepx.cn/xiju/6581777.htm)
+- [人均百元的老年人“一日聚”火了](http://www.daogukj.com/ydetypas/)
+- [王曼昱4比1张本美和](http://www.movie.hkepx.cn/xiju/1440565.htm)
+- [伊朗选手打赢张本冲日本教练面前庆祝](http://www.movie.hkepx.cn/movie/0748348.htm)
 - [无糖月饼可敞开吃？小心误区](http://www.daogukj.com/7529047)
-- [重庆轻轨出现瞬间科幻感满满](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
-- [《三角洲行动》群星计划—代号：威龙](http://www.movie.hkepx.cn/movie/9462286.htm)
-- [见证历史！原版MC第四维度——筛界！古城传送门开启！冰雪洞穴更新！MC直播总结 #MinecraftLive2026-9](http://www.movie.hkepx.cn/xiju/6577988.htm)
-- [乌克兰请求能源和空中停火 普京怒怼](http://www.movie.hkepx.cn/movie/1711969.htm)
-- [【纪录片】中国救护2 02 向未明处去](http://www.movie.hkepx.cn/movie/1556531.htm)
-- [中美八点成果共识公布](http://www.play.hengshemaoyi.cn/kongbu/3467795.htm)
-- [被它撞到脸 看不到伤口也要就医](http://www.movie.hkepx.cn/movie/2027222.htm)
+- [五仁月饼成回收香饽饽 1000元一吨](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
+- [甜瓜琵琶曲#高质量手搓 🤓](http://www.movie.hkepx.cn/movie/9462286.htm)
+- [【说唱】不是，酒保怎么比我先醉啊…](http://www.movie.hkepx.cn/xiju/6577988.htm)
+- [金鹰节开幕式节目单](http://www.movie.hkepx.cn/movie/1711969.htm)
+- [【剧情】长生契（2026）07【方逸伦 / 谢可寅】](http://www.movie.hkepx.cn/movie/1556531.htm)
+- [世界技能大赛的动人瞬间](http://www.play.hengshemaoyi.cn/kongbu/3467795.htm)
+- [婚后9年发现喜褥里有对棉花小人](http://www.movie.hkepx.cn/movie/2027222.htm)
 
 </details>
 
 ## 原始来源
 
-- [为什么现在不谈论可燃冰了？](https://www.zhihu.com/question/652812178)
+- [如何看待据称OpenAI、Anthropic正调查数万起AI安全事件，包括绕过安全护栏、创建留言板等？](https://www.zhihu.com/question/2087449927274034329)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9bd9cc79a61b1816e02a -->
+<!-- content-fingerprint: 4765f91cf2bd9446fbd4 -->

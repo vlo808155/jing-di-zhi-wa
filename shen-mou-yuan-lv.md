@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 东北秋天的“小咬”到底是啥
+# 茅台新品1分钟售罄 定价2199元
 
-> 来源：百度热搜 · 排名：第 17 位 · 热度：6175953 · 更新：2026-09-27T09:33:22+08:00
+> 来源：百度热搜 · 排名：第 17 位 · 热度：6184367 · 更新：2026-09-27T15:03:03+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“东北秋天的“小咬”到底是啥”位列第 17 位，公开热度指标为 6175953。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“茅台新品1分钟售罄 定价2199元”位列第 17 位，公开热度指标为 6184367。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近期伊春、哈尔滨多地出现大量俗称 “小咬” 的黑色小飞虫，常扎堆聚集在色彩鲜艳的公共设施上，粘虫板上也布满虫体。据东北林大孙凡副教授介绍，该虫实为蚜虫，并不咬人。入秋后植被衰败，蚜虫分化出有翅成虫随风扩散，将城区树木作为越冬寄主。
+来源公开摘要显示：9月22日，在贵州茅台2026年湖北茅友嘉年华上，茅台正式发布了贵州茅台酒（春夏秋冬）四季文化产品，这四款产品于当日20:09上架“i茅台”，1分钟内即宣告售罄。此后几天投放的产品均很快售罄。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [朱雨玲发文告别三届亚运](ming-cha-qiu-hao.md)
-- [李在明谴责乌方泄露朝鲜战俘移送韩国](jian-wei-zhi-zhu.md)
-- [为什么现在不谈论可燃冰了？](du-ju-hui-yan.md)
-- [2026 热 梗 年 度 总 结 ！！！【上】](bie-ju-jiang-xin.md)
+- [王一博采访道歉](ming-cha-qiu-hao.md)
+- [邱毅：“解放军驻台”能震慑分裂势力](jian-wei-zhi-zhu.md)
+- [如何看待据称OpenAI、Anthropic正调查数万起AI安全事件，包括绕过安全护栏、创建留言板等？](du-ju-hui-yan.md)
+- [“后来我们恶语相向，却忘了我们曾经是最相爱的人”](bie-ju-jiang-xin.md)
 
 ## 站内推荐
 
-- [项目唯一女选手采访中笑着笑着哭了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [中美达成八点成果共识](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [销量暴涨超1600% 中秋爆款在欧洲火了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [刘欢最瘦时只有104斤](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [蔡磊确诊渐冻症后夫妻俩第7个中秋](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [人均百元的老年人“一日聚”火了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [吴艳妮比赛开始前在检录处补妆](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [歌手洪楗华病逝 年仅49岁](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [温瑞博向鹏无缘男双决赛](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [天安门看升旗 香港女孩写下8个震惊](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [以色列大使被逐出联合国大会](http://www.play.hengshemaoyi.cn/kongbu/7686149.htm)
-- [粟文打破36年亚运会纪录](http://www.movie.hkepx.cn/movie/4579405.htm)
-- [重庆轻轨出现瞬间科幻感满满](http://www.movie.hkepx.cn/xiju/3169477.htm)
-- [英格兰2比3西班牙](http://www.movie.hkepx.cn/xiju/8635128.htm)
-- [【招笑版】新植物14:"魅惑"菇](http://www.play.hengshemaoyi.cn/kongbu/9338626.htm)
-- [2026 热 梗 年 度 总 结 ！！！【上】](http://www.play.hengshemaoyi.cn/kongbu/1542166.htm)
-- [【立志成为恶兽】05 我有一个拯救村庄的计划【UP动画】【HiShorts! × updream AI短片大赛-剧情单元】](http://www.daogukj.com/0287665)
-- [王楚钦叫孙颖莎豆包](http://www.movie.hkepx.cn/movie/7272745.htm)
-- [“赛考斯”还有一个“中国女儿”](http://www.play.hengshemaoyi.cn/xiju/6780679.htm)
-- [掀开木地板发现霉菌像树枝爬满房间](http://www.daogukj.com/4477330)
-- [为什么现在不谈论可燃冰了？](http://www.daogukj.com/0861506)
-- [九月多位公众人物相继离世](http://www.daogukj.com/9767084)
-- [中美关系持续稳定发展惠及世界](http://www.movie.hkepx.cn/movie/5257500.htm)
-- [【短的发布会】AI大爆发！第六代骁龙8至尊双旗舰来了！](http://www.daogukj.com/gykfwffn/)
-- [婆婆一直充当透明人，我很排斥她偶尔上门在孩子面前混脸熟，甚至不打招呼去我娘家的行为，怎么办？](http://www.play.hengshemaoyi.cn/xiju/5052420.htm)
-- [特斯拉一个月降价两次惹怒新车主](http://www.daogukj.com/xdtbrdmh/)
-- [戒赌吧覆灭！1400万赌徒抱团救赎，吧主将他们卖给赌场！【神奇组织17】](http://www.daogukj.com/0346242)
-- [项目唯一女选手采访中笑着笑着哭了](http://www.movie.hkepx.cn/xiju/3607769.htm)
-- [丘成桐等人利用ai辅助为所有 7 维奇异球构造了正截面曲率度量，这个结果意味着什么？](http://www.play.hengshemaoyi.cn/kongbu/0133104.htm)
-- [《 假 期 热 梗 现 状 》](http://www.movie.hkepx.cn/xiju/7939480.htm)
-- [到底能不能在高速公路服务区停车过夜？](http://www.movie.hkepx.cn/xiju/0345684.htm)
-- [被它撞到脸 看不到伤口也要就医](http://www.movie.hkepx.cn/xiju/4105891.htm)
-- [林诗栋单打击败松岛，张本负于伊朗大叔，这是否说明男团教练王皓在决赛排兵布阵太怂了，自己把自己安排输了？](http://www.movie.hkepx.cn/xiju/7210722.htm)
-- [刘欢常跟人喝酒聊天到天亮](http://www.movie.hkepx.cn/movie/8592737.htm)
-- [黄健翔希望国足回到亚洲一流](http://www.play.hengshemaoyi.cn/xiju/5306630.htm)
-- [打破苏炳添纪录的亚洲新飞人是谁](http://www.daogukj.com/1659974)
-- [国家出手调控油价了，本轮涨幅砍半，半年四次压缩成品油涨幅，怎样解读？](http://www.movie.hkepx.cn/movie/0941539.htm)
-- [朱雨玲发文告别三届亚运](http://www.movie.hkepx.cn/movie/2635515.htm)
-- [中美达成八点成果共识](http://www.movie.hkepx.cn/xiju/6515808.htm)
-- [一猫哈气万狗哭！我把哈基米做成了肉鸽游戏！](http://www.play.hengshemaoyi.cn/xiju/8816869.htm)
-- [伊朗提重开霍尔木兹海峡方案遭美拒绝](http://www.daogukj.com/dvtugytg/)
-- [央视曝光吃作业隐患](http://www.movie.hkepx.cn/xiju/6349162.htm)
-- [把中美建设性战略稳定关系转为行动](http://www.daogukj.com/uiagrfmg/)
-- [如何评价李现、李一桐主演的悬疑剧《我不是大师》？](http://www.movie.hkepx.cn/xiju/5108394.htm)
-- [王楚钦感谢孙颖莎一起守住了混双金牌](http://www.play.hengshemaoyi.cn/kongbu/2476719.htm)
-- [怀念刘欢：音乐永不消逝](http://www.play.hengshemaoyi.cn/kongbu/6062295.htm)
-- [蔡磊确诊渐冻症后夫妻俩第7个中秋](http://www.play.hengshemaoyi.cn/xiju/4493695.htm)
-- [时间不多喽](http://www.daogukj.com/tnrfqrke/)
-- [刘欢今年1月最后一次公开演出](http://www.movie.hkepx.cn/xiju/4346084.htm)
-- [井柏然是刘雯的Luke是Flora的](http://www.movie.hkepx.cn/movie/7332141.htm)
-- [如何看待厦门一公司宣布中秋国庆连放13.5天假，发放最高2000元旅游基金，并保障员工离线权？](http://www.daogukj.com/qwdjcwxs/)
-- [《绝区零》洛克茜角色展示 | 神秘负棺人](http://www.daogukj.com/uqrxqnjs/)
-- [胡歌3岁女儿近照](http://www.play.hengshemaoyi.cn/xiju/9086559.htm)
-- [施之皓谈国乒男团亚运决赛排兵布阵](http://www.play.hengshemaoyi.cn/xiju/0582780.htm)
-- [媒体评林诗栋蒯曼混双金牌](http://www.movie.hkepx.cn/xiju/5890662.htm)
-- [为什么这次名古屋亚运会，围棋象棋这些棋类项目全部都取消了？](http://www.movie.hkepx.cn/movie/9155162.htm)
-- [网络热传生物鉴定 第64期](http://www.movie.hkepx.cn/movie/7891312.htm)
-- [李在明：对乌方感到遗憾](http://www.play.hengshemaoyi.cn/xiju/9382187.htm)
-- [刘欢最瘦时只有104斤](http://www.play.hengshemaoyi.cn/xiju/1231015.htm)
-- [见证历史！原版MC第四维度——筛界！古城传送门开启！冰雪洞穴更新！MC直播总结 #MinecraftLive2026-9](http://www.daogukj.com/fpcntxir/)
+- [豆包回答70岁前去世占比](http://www.play.hengshemaoyi.cn/kongbu/7686149.htm)
+- [专家：机器人也失业了](http://www.movie.hkepx.cn/movie/4579405.htm)
+- [五仁月饼成回收香饽饽 1000元一吨](http://www.movie.hkepx.cn/xiju/3169477.htm)
+- [胡歌3岁女儿近照](http://www.movie.hkepx.cn/xiju/8635128.htm)
+- [硬核，不是说说而已](http://www.play.hengshemaoyi.cn/kongbu/9338626.htm)
+- [“后来我们恶语相向，却忘了我们曾经是最相爱的人”](http://www.play.hengshemaoyi.cn/kongbu/1542166.htm)
+- [中国古代陵墓物理防盗的巅峰之作](http://www.daogukj.com/0287665)
+- [井柏然 恨我的继续爱我的别停](http://www.movie.hkepx.cn/movie/7272745.htm)
+- [河南一技校101名毕业生入职北大](http://www.play.hengshemaoyi.cn/xiju/6780679.htm)
+- [胡歌黄曦宁在一起已经六年了](http://www.daogukj.com/4477330)
+- [如何看待据称OpenAI、Anthropic正调查数万起AI安全事件，包括绕过安全护栏、创建留言板等？](http://www.daogukj.com/0861506)
+- [袁娅维把微博发到了萨顶顶超话](http://www.daogukj.com/9767084)
+- [大熊猫“平平”“福双”已启程赴美](http://www.movie.hkepx.cn/movie/5257500.htm)
+- [戒赌吧覆灭！1400万赌徒抱团救赎，吧主将他们卖给赌场！【神奇组织17】](http://www.daogukj.com/gykfwffn/)
+- [亚运会乒乓球男双半决赛，黄友政/林诗栋 4-1 战胜松岛辉空/户上隼辅，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/5052420.htm)
+- [升糖最快的主食不是米饭而是这6种](http://www.daogukj.com/xdtbrdmh/)
+- [当你遇到两年前的自己.......](http://www.daogukj.com/0346242)
+- [人均百元的老年人“一日聚”火了](http://www.movie.hkepx.cn/xiju/3607769.htm)
+- [如何评价文章「让本科生做回本科生」？](http://www.play.hengshemaoyi.cn/kongbu/0133104.htm)
+- [《三角洲行动》群星计划—代号：深蓝](http://www.movie.hkepx.cn/xiju/7939480.htm)
+- [亚运会乒乓球男双半决赛，温瑞博/向鹏 3-4 张本智和/篠塚大登，无缘决赛，如何评价本场比赛？](http://www.movie.hkepx.cn/xiju/0345684.htm)
+- [婚后9年发现喜褥里有对棉花小人](http://www.movie.hkepx.cn/xiju/4105891.htm)
+- [如何看待厦门一公司宣布中秋国庆连放13.5天假，发放最高2000元旅游基金，并保障员工离线权？](http://www.movie.hkepx.cn/xiju/7210722.htm)
+- [刘欢生前打算推出专辑《忘记刘欢》](http://www.movie.hkepx.cn/movie/8592737.htm)
+- [亚运颁奖现场升起两面五星红旗](http://www.play.hengshemaoyi.cn/xiju/5306630.htm)
+- [王曼昱4比1张本美和](http://www.daogukj.com/1659974)
+- [Claude 完成 N=4 超杨–米尔斯理论的九圈六点散射振幅计算，这个结果意味着什么？](http://www.movie.hkepx.cn/movie/0941539.htm)
+- [王一博采访道歉](http://www.movie.hkepx.cn/movie/2635515.htm)
+- [吴艳妮比赛开始前在检录处补妆](http://www.movie.hkepx.cn/xiju/6515808.htm)
+- [《以片换物- -洗剪吹》 再不疯狂就老了 借一场大笑，释放藏起来的自己。](http://www.play.hengshemaoyi.cn/xiju/8816869.htm)
+- [伊朗选手打赢张本冲日本教练面前庆祝](http://www.daogukj.com/dvtugytg/)
+- [132名领导手机号公开 不只是敢接电话](http://www.movie.hkepx.cn/xiju/6349162.htm)
+- [九天揽月、向海筑能！多项工程获突破](http://www.daogukj.com/uiagrfmg/)
+- [时隔 7 年，在大银幕重看《复仇者联盟 4：终局之战》，你有哪些新的感受？](http://www.movie.hkepx.cn/xiju/5108394.htm)
+- [问界每车十三万溢价去哪了](http://www.play.hengshemaoyi.cn/kongbu/2476719.htm)
+- [刘欢夫妇十年间多次组织学员六一聚会](http://www.play.hengshemaoyi.cn/kongbu/6062295.htm)
+- [天安门看升旗 香港女孩写下8个震惊](http://www.play.hengshemaoyi.cn/xiju/4493695.htm)
+- [《三角洲行动》群星计划—代号：威龙](http://www.daogukj.com/tnrfqrke/)
+- [人民日报用歌词送别刘欢](http://www.movie.hkepx.cn/xiju/4346084.htm)
+- [九岁儿子护母推倒奶奶尾骨摔折](http://www.movie.hkepx.cn/movie/7332141.htm)
+- [你见过历史上有哪些地理盲闹出令人啼笑皆非的笑话？](http://www.daogukj.com/qwdjcwxs/)
+- [《 假 期 热 梗 现 状 》](http://www.daogukj.com/uqrxqnjs/)
+- [侯英超目睹9比3遭逆转愤然离场](http://www.play.hengshemaoyi.cn/xiju/9086559.htm)
+- [韩媒：中国男足实力和心理都处下风](http://www.play.hengshemaoyi.cn/xiju/0582780.htm)
+- [李亚鹏现身意大利为张雪机车加油](http://www.movie.hkepx.cn/xiju/5890662.htm)
+- [安东尼奥带领的U23国足向来是防守强进攻弱，为何他们能在亚运会淘汰赛压着泰国打，取得酣畅胜利？](http://www.movie.hkepx.cn/movie/9155162.htm)
+- [Ai短片｜《标签》｜如果标签上的字都变成现实？](http://www.movie.hkepx.cn/movie/7891312.htm)
+- [邓亚萍谈日本男单全军覆没](http://www.play.hengshemaoyi.cn/xiju/9382187.htm)
+- [温瑞博向鹏无缘男双决赛](http://www.play.hengshemaoyi.cn/xiju/1231015.htm)
+- [【说唱】不是，酒保怎么比我先醉啊…](http://www.daogukj.com/fpcntxir/)
 
 </details>
 
 ## 原始来源
 
-- [东北秋天的“小咬”到底是啥](https://www.baidu.com/s?wd=%E4%B8%9C%E5%8C%97%E7%A7%8B%E5%A4%A9%E7%9A%84%E2%80%9C%E5%B0%8F%E5%92%AC%E2%80%9D%E5%88%B0%E5%BA%95%E6%98%AF%E5%95%A5&sa=fyb_news&rsv_dl=fyb_news)
+- [茅台新品1分钟售罄 定价2199元](https://www.baidu.com/s?wd=%E8%8C%85%E5%8F%B0%E6%96%B0%E5%93%811%E5%88%86%E9%92%9F%E5%94%AE%E7%BD%84+%E5%AE%9A%E4%BB%B72199%E5%85%83&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: cb48ea77c73e42160cb3 -->
+<!-- content-fingerprint: bd18ca9c438708bd521e -->
