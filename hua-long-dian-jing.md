@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 【星球大战：曼达洛人与古古】古爱玲又出新素材了！
+# 华为 Mate90 系列旗舰定档 10 月 1 日发售，有哪些亮点值得关注？
 
-> 来源：哔哩哔哩热门 · 排名：第 19 位 · 热度：332969 · 分类：欧美电影 · 更新：2026-09-29T15:08:53+08:00
+> 来源：知乎热榜 · 排名：第 19 位 · 热度：84 万热度 · 分类：问答 · 更新：2026-09-29T22:02:02+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“【星球大战：曼达洛人与古古】古爱玲又出新素材了！”位列第 19 位，公开热度指标为 332969，榜单分类为“欧美电影”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“华为 Mate90 系列旗舰定档 10 月 1 日发售，有哪些亮点值得关注？”位列第 19 位，公开热度指标为 84 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：在秩序动荡的银河系，“最强奶爸”丁·贾伦（佩德罗·帕斯卡 饰）与“银河系萌娃”古古这对非血缘父子并肩登场。冷峻坚毅的赏金猎人丁·贾伦身披贝斯卡钢甲，凭悍勇战力屡屡从围堵中突围；看似弱小的原力学徒古古，则总能在关键时刻爆发出惊人战力，为搭档化解危机。他们一同执行关乎银河命运的绝密任务，直面远比以往更为凶险的挑战与博弈。
+来源公开摘要显示：感谢IT之家网友Dracker、不一样的体验、当年明月、驴头社、自信的眉毛、乌拉尔的花楸树、 华为 mate 90 系列年度旗舰手机亮相，定档 10 月 1 日正式发布并开售
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `欧美电影`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [吴宜泽丁俊晖出战](miao-bi-sheng-hua.md)
-- [金鹰提名表彰座位第一排](sheng-dong-huo-po.md)
-- [中方在黄岩岛周边演训释放何信号](xu-xu-ru-sheng.md)
-- [华为 Mate90 系列旗舰定档 10 月 1 日发售，有哪些亮点值得关注？](huo-ling-huo-xian.md)
+- [面具比命还重要？墨西哥摔跤手的生活，有多疯狂？](miao-bi-sheng-hua.md)
+- [杨紫拉着张一山聊天吃瓜](sheng-dong-huo-po.md)
+- [中国男排vs韩国男排](xu-xu-ru-sheng.md)
+- [“控糖”到底该控什么糖](huo-ling-huo-xian.md)
 
 ## 站内推荐
 
-- [从本届亚运会来看，林诗栋夺得 3 金 1 银要成为国乒一哥了吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [地球上的所有动物都没有穿衣服，还不是活得好好的，为什么只有我们人类才穿衣服，难道不穿衣服就活不了吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [⚡️她连唐笑都在调上⚡️](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [《绝区零》洛克茜角色PV | 发条骑士](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [手绘465张！One Last Kiss【EVA30周年回忆重逢计划】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [居民房贷贴息政策10月1日起实施，年化贴息1%、最长补贴5年，限定房价150万以内，哪些信息值得关注？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [2 岁娃疑似连吃 8 个月银鳕鱼汞中毒，生产商回应深海野生银鳕天然存在微量汞，儿童食用银鳕鱼安全吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [媒体追问那英临时加唱是否罚款引热议，「举报式采访」为啥引发争议？媒体这样报道合理吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [手机内置广告一直被骂，为什么没有一个厂商出一款纯净无广告的手机，是给得太多了吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [地球上的所有动物都没有穿衣服，还不是活得好好的，为什么只有我们人类才穿衣服，难道不穿衣服就活不了吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [伊朗最高领袖：伊朗已变得独立强大](http://www.movie.hkepx.cn/movie/8910900.htm)
-- [男子被狗咬伤为省钱没打疫苗离世](http://www.play.hengshemaoyi.cn/kongbu/1452959.htm)
-- [披床单长大的人在横店各自入戏](http://www.movie.hkepx.cn/movie/4326545.htm)
-- [多地贷款中介集体解散群聊、删除朋友圈，背后原因是什么？会带来哪些影响？](http://www.movie.hkepx.cn/movie/1643509.htm)
-- [⚡️她连唐笑都在调上⚡️](http://www.daogukj.com/3734905)
-- [哆啦A梦明明拥有无数逆天道具，却似乎没怎么改变大雄的人生，创作者想表达什么？](http://www.play.hengshemaoyi.cn/kongbu/4707077.htm)
-- [《兰香如故》被指不把女配当人看](http://www.play.hengshemaoyi.cn/xiju/9679366.htm)
-- [Tiffany中国区负责人致歉](http://www.movie.hkepx.cn/movie/8897904.htm)
-- [怎样看待王楚钦称不知道为什么就是感觉累，找不太到之前打球的感觉？他要怎样才能找回之前的状态？](http://www.play.hengshemaoyi.cn/xiju/8041326.htm)
-- [张本智和看到妹妹输球仰天翻白眼](http://www.daogukj.com/8279615)
-- [英语才是普通人的终极杠杆](http://www.movie.hkepx.cn/xiju/6205852.htm)
-- [仅退款把商家逼成什么程度了](http://www.movie.hkepx.cn/xiju/0712642.htm)
-- [媒体：国乒需重新找回快乐](http://www.movie.hkepx.cn/xiju/6035249.htm)
-- [羽毛球选手吐槽亚运会要运动员的命](http://www.daogukj.com/4744923)
-- [手绘465张！One Last Kiss【EVA30周年回忆重逢计划】](http://www.movie.hkepx.cn/movie/5089029.htm)
-- [iQOO16](http://www.movie.hkepx.cn/movie/2615772.htm)
-- [如何评价 9 月 28 日发布的Claude Sonnet 5.5？](http://www.play.hengshemaoyi.cn/kongbu/7334127.htm)
-- [怎么看待超长蛋挞的爆红？](http://www.daogukj.com/ptpekaap/)
-- [乌合之众](http://www.daogukj.com/7356664)
-- [吴宜泽丁俊晖出战](http://www.daogukj.com/ayichqdz/)
-- [新郎与哥哥被绑上梯子抹鞋油倒立](http://www.movie.hkepx.cn/xiju/2706147.htm)
-- [女子每天5点起床从杭州到上海上班](http://www.play.hengshemaoyi.cn/xiju/6688215.htm)
-- [被父母落出租屋男孩小区里翻垃圾桶](http://www.daogukj.com/cndcdbte/)
-- [女教师遭拖行致死案5人被控故意杀人](http://www.daogukj.com/3515388)
-- [手机内置广告一直被骂，为什么没有一个厂商出一款纯净无广告的手机，是给的太多了吗？](http://www.movie.hkepx.cn/movie/2280366.htm)
-- [二洲年音乐会｜†TAKEDISKRUSH!†](http://www.movie.hkepx.cn/xiju/9102843.htm)
-- [国乒亚运会参加7项，拿下6金4银，仅男团未能夺金，如何评价本届亚运会国乒战绩？](http://www.movie.hkepx.cn/xiju/6537051.htm)
-- [天山深处崛起「世界最高坝」大石峡水利枢纽，为什么要在干旱缺水的新疆戈壁中截流造个大水库？建起来有多难？](http://www.daogukj.com/vzsgeebf/)
-- [【补档】CN零杠八单曲《大家一起十六强》完整版](http://www.play.hengshemaoyi.cn/kongbu/3922698.htm)
-- [瑞幸联名表情包 像尿](http://www.play.hengshemaoyi.cn/kongbu/6040149.htm)
+- [陈妤颉极限反超](http://www.movie.hkepx.cn/movie/8910900.htm)
+- [青岛一代人的童年炸串，30年老店面临亏损！林大厨重调四款酱料，破解味道退化难题。老店是否还能焕发新生？](http://www.play.hengshemaoyi.cn/kongbu/1452959.htm)
+- [宋佳 金鹰奖“视后”](http://www.movie.hkepx.cn/movie/4326545.htm)
+- [如何看待 AMD 收购李飞飞创立的World Labs，李飞飞将任AMD执行副总裁兼首席科学家？](http://www.movie.hkepx.cn/movie/1643509.htm)
+- [媒体追问那英临时加唱是否罚款引热议，「举报式采访」为啥引发争议？媒体这样报道合理吗？](http://www.daogukj.com/3734905)
+- [日本经贸代表团为何急着访华](http://www.play.hengshemaoyi.cn/kongbu/4707077.htm)
+- [鸣潮优化性能啦！居然流畅了这么多？！](http://www.play.hengshemaoyi.cn/xiju/9679366.htm)
+- [羽毛球女双决赛太悲壮了](http://www.movie.hkepx.cn/movie/8897904.htm)
+- [电竞将退出亚运会？不实](http://www.play.hengshemaoyi.cn/xiju/8041326.htm)
+- [于和伟2026白玉兰金鹰双料视帝](http://www.daogukj.com/8279615)
+- [金鹰奖获奖名单](http://www.movie.hkepx.cn/xiju/6205852.htm)
+- [金鹰奖](http://www.movie.hkepx.cn/xiju/0712642.htm)
+- [梅婷金鹰奖最佳女配](http://www.movie.hkepx.cn/xiju/6035249.htm)
+- [蒋欣 可惜](http://www.daogukj.com/4744923)
+- [地球上的所有动物都没有穿衣服，还不是活得好好的，为什么只有我们人类才穿衣服，难道不穿衣服就活不了吗？](http://www.movie.hkepx.cn/movie/5089029.htm)
+- [中国队夺得4×100米混合接力金牌](http://www.movie.hkepx.cn/movie/2615772.htm)
+- [A股黄金板块探底回升](http://www.play.hengshemaoyi.cn/kongbu/7334127.htm)
+- [特朗普评中美会晤：满分10分我打12分](http://www.daogukj.com/ptpekaap/)
+- [飞机上充电宝起火 乘务员用可乐扑灭](http://www.daogukj.com/7356664)
+- [面具比命还重要？墨西哥摔跤手的生活，有多疯狂？](http://www.daogukj.com/ayichqdz/)
+- [⚡️她连唐笑都在调上⚡️](http://www.movie.hkepx.cn/xiju/2706147.htm)
+- [挑战负债500元城市生存（3-4）](http://www.play.hengshemaoyi.cn/xiju/6688215.htm)
+- [朱亚文获奖 宋佳哭了](http://www.daogukj.com/cndcdbte/)
+- [宋佳金鹰视后](http://www.daogukj.com/3515388)
+- [陕西醉驾碾压教师并拖行5.9公里致死案提级审理，罪名变更为故意杀人，法律上如何分析？](http://www.movie.hkepx.cn/movie/2280366.htm)
+- [如何看待联合国专家预测未来七年内全球性战争风险急速攀升？](http://www.movie.hkepx.cn/xiju/9102843.htm)
+- [谁能享受房贷贴息](http://www.movie.hkepx.cn/xiju/6537051.htm)
+- [国家首次对个人商贷贴息](http://www.daogukj.com/vzsgeebf/)
+- [为什么河虾的价格比明虾高那么多？](http://www.play.hengshemaoyi.cn/kongbu/3922698.htm)
+- [“小孩姐”陈妤颉极限逆转](http://www.play.hengshemaoyi.cn/kongbu/6040149.htm)
 - [【剧情】长生契（2026）11【方逸伦 / 谢可寅】](http://www.daogukj.com/4077362)
-- [擦边剧本杀将“杀死”这个行业](http://www.movie.hkepx.cn/movie/8186635.htm)
-- [三幻魔集结！超越神的力量！【水无月菌】](http://www.daogukj.com/hrahgoeh/)
-- [人形机器人卖疯了 但赚钱的只有一类](http://www.movie.hkepx.cn/xiju/7623213.htm)
-- [Tiffany月饼](http://www.play.hengshemaoyi.cn/kongbu/4814140.htm)
-- [如何评价刘欢《从头再来》这首歌？](http://www.daogukj.com/3537481)
-- [水谷隼称中国曾有五六个王楚钦](http://www.play.hengshemaoyi.cn/kongbu/7154027.htm)
-- [网友吐槽「毫无人性关怀的大厂却总致力于打造出充满人性光辉的产品」，你怎么看待这个观点？](http://www.play.hengshemaoyi.cn/xiju/0242395.htm)
-- [从本届亚运会来看，林诗栋夺得 3 金 1 银要成为国乒一哥了吗？](http://www.play.hengshemaoyi.cn/xiju/7718342.htm)
-- [日本经贸代表团访华有何意图](http://www.play.hengshemaoyi.cn/kongbu/7089205.htm)
-- [为什么越来越多人不愿交物业费了](http://www.play.hengshemaoyi.cn/xiju/7227900.htm)
-- [老年人越来越多 养老床位却连降3年](http://www.daogukj.com/9191044)
-- [《无敌超人》当你拥有无限增强的超能力，会做什么？【Hishorts! × updream AI短片大赛+剧情单元】](http://www.daogukj.com/6256754)
-- [中国队和平精英亚运会银牌](http://www.play.hengshemaoyi.cn/kongbu/3838323.htm)
-- [肖战歌词海报](http://www.movie.hkepx.cn/movie/3822357.htm)
-- [名嘴：菲若真敢硬闯黄岩岛那就试试看](http://www.movie.hkepx.cn/movie/9519234.htm)
-- [泰国“羽毛球女神”药检阳性](http://www.play.hengshemaoyi.cn/xiju/4782804.htm)
-- [如何看待联合国专家预测未来七年内全球性战争风险急速攀升？](http://www.daogukj.com/urxbddis/)
-- [如何看待我的世界（minecraft）加入了最新的第四个维度 the SIFT？](http://www.movie.hkepx.cn/xiju/7315864.htm)
-- [444分被殡葬专业录取男生首次实习](http://www.play.hengshemaoyi.cn/xiju/8904435.htm)
+- [三幻魔集结！超越神的力量！【水无月菌】](http://www.movie.hkepx.cn/movie/8186635.htm)
+- [8.59 元香菜遭「仅退款」，商家驱车千里跨省讨回，如何评价？电商商家维权成本这么高，症结在哪？](http://www.daogukj.com/hrahgoeh/)
+- [子怡一枪打破亚洲记录亚运会标枪夺冠！](http://www.movie.hkepx.cn/xiju/7623213.htm)
+- [购房贴息 150万](http://www.play.hengshemaoyi.cn/kongbu/4814140.htm)
+- [杨德龙谈A股成交额创14个月新低](http://www.daogukj.com/3537481)
+- [房地产迎来史诗级大招](http://www.play.hengshemaoyi.cn/kongbu/7154027.htm)
+- [河南矿山发钱现场变财务运动会](http://www.play.hengshemaoyi.cn/xiju/0242395.htm)
+- [居民房贷贴息政策10月1日起实施，年化贴息1%、最长补贴5年，限定房价150万以内，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/7718342.htm)
+- [金智秀 Dior公主](http://www.play.hengshemaoyi.cn/kongbu/7089205.htm)
+- [Dior大秀](http://www.play.hengshemaoyi.cn/xiju/7227900.htm)
+- [重磅！贷款买房国家贴息](http://www.daogukj.com/9191044)
+- [国乒亚运会参加7项，拿下6金4银，仅男团未能夺金，如何评价本届亚运会国乒战绩？](http://www.daogukj.com/6256754)
+- [网传“电竞将退出亚运会”不实](http://www.play.hengshemaoyi.cn/kongbu/3838323.htm)
+- [朱亚文获金鹰奖最佳男配角](http://www.movie.hkepx.cn/movie/3822357.htm)
+- [吴星颖孙柏涵官宣](http://www.movie.hkepx.cn/movie/9519234.htm)
+- [深不可测的恐惧：斯克拉奇溪，溯源之惧 第六章](http://www.play.hengshemaoyi.cn/xiju/4782804.htm)
+- [深蓝董事长称车载冰箱使用率 5%，娱乐屏全年使用不足10次，这些配置真的鸡肋吗？那为啥行业在狂卷配置？](http://www.daogukj.com/urxbddis/)
+- [宫廷糕点 泼天流量](http://www.movie.hkepx.cn/xiju/7315864.htm)
+- [欧洲扒手猖獗横行，这才是文明的底蕴？](http://www.play.hengshemaoyi.cn/xiju/8904435.htm)
 
 </details>
 
 ## 原始来源
 
-- [【星球大战：曼达洛人与古古】古爱玲又出新素材了！](https://b23.tv/BV1yJe16dEMG)
+- [华为 Mate90 系列旗舰定档 10 月 1 日发售，有哪些亮点值得关注？](https://www.zhihu.com/question/2088199945174177197)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 770a81d06ea1818152a2 -->
+<!-- content-fingerprint: 8deaa5cf6f66e64cdb14 -->
