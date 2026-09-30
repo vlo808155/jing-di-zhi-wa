@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 星舰溅落时发生剧烈爆炸
+# 缅甸妙瓦底电诈园公开招募成员
 
-> 来源：微博热搜 · 排名：第 20 位 · 热度：84876 · 分类：民生新闻 · 更新：2026-09-30T07:04:07+08:00
+> 来源：百度热搜 · 排名：第 24 位 · 热度：5514648 · 更新：2026-09-30T10:02:14+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“星舰溅落时发生剧烈爆炸”位列第 20 位，公开热度指标为 84876，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“缅甸妙瓦底电诈园公开招募成员”位列第 24 位，公开热度指标为 5514648。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：今年以来，缅甸妙瓦底电诈园区死灰复燃，新园区已部分完工并在社交软件上公开招募成员。此前，中缅曾联手清剿，2个月内拆除KK园区630多栋及水沟谷77栋涉诈建筑。尽管力度空前，但诈骗活动近期再现扩张，重新修复运作并出现新据点。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `民生新闻`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [王毅：日本若不汲取历史教训难有未来](sheng-dong-huo-po.md)
-- [华为 Mate90 系列旗舰定档 10 月 1 日发售，有哪些亮点值得关注？](xu-xu-ru-sheng.md)
-- [动态视频｜泳池里究竟有多少尿？](huo-ling-huo-xian.md)
-- [中国男排3比2战胜韩国](you-sheng-you-se.md)
+- [小巷人家 陪跑](sheng-dong-huo-po.md)
+- [中国队29日收获11金](xu-xu-ru-sheng.md)
+- [鸣潮优化性能啦！居然流畅了这么多？！](huo-ling-huo-xian.md)
+- [家中漏水 维修人员灌了50多斤胶水](you-sheng-you-se.md)
 
 ## 站内推荐
 
-- [小米澎程N90：这种车我真的开够了！！](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [怀疑豹子穿旱冰鞋都没怀疑是行李箱](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [老人报警丢4万民警找出23万](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [朋友圈的贷款广告 为啥突然没了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [刘学义不认识杨迪何炅](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [空姐跪地道歉事件目击者发声](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
+- [水谷隼：中国男乒实力整体下滑](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [杨紫未拿奖从容离场状态松弛](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [赛力斯在巴黎推出“半价问界”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [中国男足亚运队冲击决赛](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [荷兰2岁患病幼儿被安乐死](http://www.play.hengshemaoyi.cn/xiju/5042626.htm)
-- [手机的研究](http://www.play.hengshemaoyi.cn/xiju/7956106.htm)
-- [中国已建成世界规模最大的教育体系](http://www.movie.hkepx.cn/movie/4841456.htm)
-- [陈妤颉最后一棒上演惊天逆转](http://www.movie.hkepx.cn/xiju/7247523.htm)
-- [宋佳金鹰奖最佳女主](http://www.movie.hkepx.cn/movie/5948248.htm)
-- [于和伟获金鹰奖最佳男主角](http://www.daogukj.com/jeqkpawe/)
-- [你管这叫只会一点点？？？](http://www.daogukj.com/4687345)
-- [艺术斗法](http://www.daogukj.com/vpnhlcyn/)
-- [房贷贴息后100万房贷月供能省多少](http://www.movie.hkepx.cn/movie/1315163.htm)
-- [赵丽颖身体到底怎么了](http://www.daogukj.com/rwppwnza/)
-- [“星舰”受控溅落时发生剧烈爆炸](http://www.play.hengshemaoyi.cn/kongbu/1523322.htm)
-- [《绝区零》洛克茜角色PV | 发条骑士](http://www.daogukj.com/2194242)
-- [充电器忘拔烧毁整个家](http://www.play.hengshemaoyi.cn/xiju/4017132.htm)
-- [最强厄尔尼诺将影响我国秋冬](http://www.movie.hkepx.cn/xiju/3408542.htm)
-- [朱亚文获奖 宋佳哭了](http://www.daogukj.com/awgjlldl/)
-- [俄罗斯扩军到244万意味着什么](http://www.play.hengshemaoyi.cn/xiju/6207562.htm)
-- [小米澎程N90：这种车我真的开够了！！](http://www.daogukj.com/mrofapbq/)
-- [AMD官宣550亿收购李飞飞公司](http://www.play.hengshemaoyi.cn/kongbu/5453073.htm)
-- [于和伟、宋佳分封视帝、视后，如何评价第 33 届中国电视金鹰奖获奖名单？](http://www.play.hengshemaoyi.cn/xiju/6087046.htm)
-- [乡村豪宅越来越多说明什么](http://www.movie.hkepx.cn/movie/8965197.htm)
-- [第一视角带你沉浸式体验修家电师傅的一天](http://www.play.hengshemaoyi.cn/kongbu/7748359.htm)
-- [这个量筒里到底有几毫升水？别笑，你也答不上来！](http://www.movie.hkepx.cn/xiju/0862966.htm)
-- [陈梦福原爱时隔13年再度交手](http://www.play.hengshemaoyi.cn/kongbu/9726074.htm)
-- [刘学义不认识杨迪何炅](http://www.movie.hkepx.cn/movie/4830470.htm)
-- [华为 Mate90 系列旗舰定档 10 月 1 日发售，有哪些亮点值得关注？](http://www.play.hengshemaoyi.cn/xiju/3660611.htm)
-- [电竞将退出亚运会？不实](http://www.daogukj.com/7984737)
-- [周深唱了70首歌](http://www.movie.hkepx.cn/movie/5738447.htm)
-- [购房贴息 150万](http://www.daogukj.com/cjltxhnp/)
-- [陈妤颉极限反超](http://www.play.hengshemaoyi.cn/kongbu/7175788.htm)
-- [为什么河虾的价格比明虾高那么多？](http://www.movie.hkepx.cn/movie/4124367.htm)
-- [有运动员称亚运金牌有「瑕疵」，边缘区域存在色差，组委会连夜更换，为什么会这样？可能是哪些环节出现问题？](http://www.play.hengshemaoyi.cn/xiju/7951635.htm)
-- [陕西醉驾碾压教师并拖行5.9公里致死案提级审理，罪名变更为故意杀人，法律上如何分析？](http://www.play.hengshemaoyi.cn/xiju/9311263.htm)
-- [于和伟：奖项应该给吴石将军](http://www.daogukj.com/qhynwuoo/)
-- [8.59 元香菜遭「仅退款」，商家驱车千里跨省讨回，如何评价？电商商家维权成本这么高，症结在哪？](http://www.play.hengshemaoyi.cn/xiju/2836720.htm)
-- [林大爷死在兰香怀里](http://www.daogukj.com/0046089)
-- [手绘465张！One Last Kiss【EVA30周年回忆重逢计划】](http://www.play.hengshemaoyi.cn/kongbu/6160337.htm)
-- [怀疑豹子穿旱冰鞋都没怀疑是行李箱](http://www.play.hengshemaoyi.cn/kongbu/7581667.htm)
-- [东京奥运前夕，张家齐母亲写了一封满是训诫内容的家书，但教练没有把家书给张家齐，怎样看待教练的做法？](http://www.movie.hkepx.cn/movie/1557680.htm)
-- [风声1](http://www.movie.hkepx.cn/movie/5183784.htm)
-- [醉酒男子打车多次要求中途下车后溺亡，家属向司机平台索赔30万被驳回，如何解读这一判决？](http://www.movie.hkepx.cn/xiju/8111897.htm)
-- [重大利好！央行“四箭齐发”](http://www.play.hengshemaoyi.cn/kongbu/4378701.htm)
-- [陈妤颉领先泰国队0.09秒](http://www.daogukj.com/7904792)
-- [手机内置广告一直被骂，为什么没有一个厂商出一款纯净无广告的手机，是给得太多了吗？](http://www.movie.hkepx.cn/xiju/7283893.htm)
-- [三幻魔集结！超越神的力量！【水无月菌】](http://www.daogukj.com/4389315)
-- [朋友圈的贷款广告 为啥突然没了](http://www.movie.hkepx.cn/xiju/0722929.htm)
-- [朱亚文获金鹰最佳男配宋佳哭了](http://www.play.hengshemaoyi.cn/kongbu/4443491.htm)
-- [如何评价荣耀Magic9系列起售价 4499 元，在今年集体涨价的大环境下，这个含金量有多高？](http://www.daogukj.com/4354382)
-- [怎么看媒体曝 Anthropic 提交 IPO 招股书，25年营收增长12倍，净亏损420亿美元？](http://www.daogukj.com/4226089)
-- [北京办抓“毛毛虫”大赛 2天抓7万条](http://www.movie.hkepx.cn/xiju/3342028.htm)
-- [混合4×100中国夺冠 陈妤颉再添1金](http://www.daogukj.com/jkvkxuzz/)
+- [房贷贴息](http://www.play.hengshemaoyi.cn/xiju/5042626.htm)
+- [风声1](http://www.play.hengshemaoyi.cn/xiju/7956106.htm)
+- [【无聊的开箱】能装进口袋的性能怪兽！iQOO Pad Ultra上手开箱！](http://www.movie.hkepx.cn/movie/4841456.htm)
+- [最强厄尔尼诺将影响我国秋冬](http://www.movie.hkepx.cn/xiju/7247523.htm)
+- [中国已建成世界规模最大的教育体系](http://www.movie.hkepx.cn/movie/5948248.htm)
+- [陈妤颉：3金1银我真牛啊](http://www.daogukj.com/jeqkpawe/)
+- [张家齐直播直接登上了生鲜榜榜一](http://www.daogukj.com/4687345)
+- [人民英雄 永垂不朽](http://www.daogukj.com/vpnhlcyn/)
+- [邓亚萍：输球不找借口 调整也是能力](http://www.movie.hkepx.cn/movie/1315163.htm)
+- [邓亚萍直言输球不要找借口](http://www.daogukj.com/rwppwnza/)
+- [老板心疼加班员工要为其出8.8万彩礼](http://www.play.hengshemaoyi.cn/kongbu/1523322.htm)
+- [博主：张雪干出了机车界的胖东来](http://www.daogukj.com/2194242)
+- [六耳单曲《金钵之下》：真假皆由方寸起，阴阳只在一念间](http://www.play.hengshemaoyi.cn/xiju/4017132.htm)
+- [博主嘻嘻徐宝胃癌去世年仅26岁](http://www.movie.hkepx.cn/xiju/3408542.htm)
+- [夫妻亲热时啪一声男子下体爆胎](http://www.daogukj.com/awgjlldl/)
+- [评论员：希望河南矿山式“作秀”多些](http://www.play.hengshemaoyi.cn/xiju/6207562.htm)
+- [空姐跪地道歉事件目击者发声](http://www.daogukj.com/mrofapbq/)
+- [今年下半年最强冷空气来袭](http://www.play.hengshemaoyi.cn/kongbu/5453073.htm)
+- [山河永念 我们从未忘记](http://www.play.hengshemaoyi.cn/xiju/6087046.htm)
+- [这股冷空气到底有多猛](http://www.movie.hkepx.cn/movie/8965197.htm)
+- [伊朗革命卫队称波斯湾已无美军舰船](http://www.play.hengshemaoyi.cn/kongbu/7748359.htm)
+- [《善》善良是什么](http://www.movie.hkepx.cn/xiju/0862966.htm)
+- [【矢量突破#3】拟生态全关卡 摆完挂机 简单好抄 核心突破/特别战线](http://www.play.hengshemaoyi.cn/kongbu/9726074.htm)
+- [中国男足亚运队冲击决赛](http://www.movie.hkepx.cn/movie/4830470.htm)
+- [中国队29日收获11金](http://www.play.hengshemaoyi.cn/xiju/3660611.htm)
+- [油价暴跌黄金飙涨](http://www.daogukj.com/7984737)
+- [伊朗队主教练问王楚钦怎么看伊朗队](http://www.movie.hkepx.cn/movie/5738447.htm)
+- [房地产迎来史诗级大招](http://www.daogukj.com/cjltxhnp/)
+- [《坦克模拟器-增强版》](http://www.play.hengshemaoyi.cn/kongbu/7175788.htm)
+- [瑞幸2个月内两次联名惹争议](http://www.movie.hkepx.cn/movie/4124367.htm)
+- [25岁抗癌博主去世 常熬夜12点到2点](http://www.play.hengshemaoyi.cn/xiju/7951635.htm)
+- [2026世界互联网大会乌镇峰会时间](http://www.play.hengshemaoyi.cn/xiju/9311263.htm)
+- [金价跌的有多夸张](http://www.daogukj.com/qhynwuoo/)
+- [邓亚萍：国人没法接受我们输日本队](http://www.play.hengshemaoyi.cn/xiju/2836720.htm)
+- [邓亚萍说输球不可以人身攻击](http://www.daogukj.com/0046089)
+- [妙瓦底电诈园区公开招募成员](http://www.play.hengshemaoyi.cn/kongbu/6160337.htm)
+- [水谷隼：中国男乒实力整体下滑](http://www.play.hengshemaoyi.cn/kongbu/7581667.htm)
+- [女生遭轮奸美国名校拒公布嫌犯身份](http://www.movie.hkepx.cn/movie/1557680.htm)
+- [弹力袜是静脉曲张治疗神器？系夸大](http://www.movie.hkepx.cn/movie/5183784.htm)
+- [红旗车队创意巡游为祖国庆生](http://www.movie.hkepx.cn/xiju/8111897.htm)
+- [今天 念给你听这八个年轻的名字](http://www.play.hengshemaoyi.cn/kongbu/4378701.htm)
+- [安徽马鞍山和县发生地震？假的](http://www.daogukj.com/7904792)
+- [10月起 这些新规将影响你我生活](http://www.movie.hkepx.cn/xiju/7283893.htm)
+- [朋友圈的贷款广告 为啥突然没了](http://www.daogukj.com/4389315)
+- [赛力斯在巴黎推出“半价问界”](http://www.movie.hkepx.cn/xiju/0722929.htm)
+- [“柳条人年年立起，没人记得这火燃了几世”](http://www.play.hengshemaoyi.cn/kongbu/4443491.htm)
+- [速效救心丸金属瓶 不易打碎](http://www.daogukj.com/4354382)
+- [朱亚文获奖 宋佳哭了](http://www.daogukj.com/4226089)
+- [泰国洪灾大量蛇和鳄鱼出现在街道](http://www.movie.hkepx.cn/xiju/3342028.htm)
+- [谁能享受房贷贴息](http://www.daogukj.com/jkvkxuzz/)
 
 </details>
 
 ## 原始来源
 
-- [星舰溅落时发生剧烈爆炸](https://s.weibo.com/weibo?q=%E6%98%9F%E8%88%B0%E6%BA%85%E8%90%BD%E6%97%B6%E5%8F%91%E7%94%9F%E5%89%A7%E7%83%88%E7%88%86%E7%82%B8)
+- [缅甸妙瓦底电诈园公开招募成员](https://www.baidu.com/s?wd=%E7%BC%85%E7%94%B8%E5%A6%99%E7%93%A6%E5%BA%95%E7%94%B5%E8%AF%88%E5%9B%AD%E5%85%AC%E5%BC%80%E6%8B%9B%E5%8B%9F%E6%88%90%E5%91%98&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: b485994240d197fc3e9b -->
+<!-- content-fingerprint: 27296662a9540af729f2 -->
