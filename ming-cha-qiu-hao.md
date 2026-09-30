@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 速效救心丸金属瓶 不易打碎
+# 怎么评价Anthropic 称 GLM-5.3 已能具备高级网络攻击能力，开源权重可能扩散危险？
 
-> 来源：百度热搜 · 排名：第 22 位 · 热度：5696986 · 更新：2026-09-30T10:02:14+08:00
+> 来源：知乎热榜 · 排名：第 18 位 · 热度：125 万热度 · 分类：问答 · 更新：2026-09-30T16:23:54+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“速效救心丸金属瓶 不易打碎”位列第 22 位，公开热度指标为 5696986。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“怎么评价Anthropic 称 GLM-5.3 已能具备高级网络攻击能力，开源权重可能扩散危险？”位列第 18 位，公开热度指标为 125 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近期，涉事网店回应称速效救心丸金属瓶挂件已下架。此前，有网友质疑该金属瓶不易打碎，老人发病时难拧开易延误救治，商家曾称其为创意摆件。药厂客服建议使用原包装携带药物；医生坦言，速效救心丸含冰片等成分，不宜和金属直接接触。
+来源公开摘要显示：这还是 Anthropic 第一次这么高度评价一个开源模型？ Anthropic Frontier Red Team 发了一篇评估，大致内容是，智谱/Z.ai 的开源权重模型 GLM-5.3，已经跨过他们五个月前用 Claude Mythos Preview 才碰到的那条线，能自主把漏洞做成端到端可用的 exploit，而且防护基本挡不住。 https://www.anthropic.com/research/glm-5-3-and-the-spread-of-advanced-cyber-capabilities
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [井柏然早春晴朗穿的卫衣是刘雯的](jian-wei-zhi-zhu.md)
-- [房贷贴息](du-ju-hui-yan.md)
-- [那个夺走“五一黄金周”的教授，又盯上了农民的宅基地【解读中国经济25】](bie-ju-jiang-xin.md)
-- [今年下半年最强冷空气来袭](qiao-duo-tian-gong.md)
+- [深不可测的恐惧：斯克拉奇溪，溯源之惧 第六章](jian-wei-zhi-zhu.md)
+- [邓亚萍输给小山智丽收到死亡威胁](du-ju-hui-yan.md)
+- [胡歌陈龙都哭了](bie-ju-jiang-xin.md)
+- [为什么要在国庆前一天怀念烈士](qiao-duo-tian-gong.md)
 
 ## 站内推荐
 
-- [芒果的策划又封神了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [评论员：希望河南矿山式“作秀”多些](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [闫妮又在金鹰奖微醺上了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [谁能享受房贷贴息](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [中国队29日收获11金](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [东航通报“空姐下跪道歉”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [解放军霸气回应菲律宾飞机侵权碰瓷](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [刘欢妻子辟谣网传刘欢后事画面](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [联合国秘书长警告称「我们是最后一代能够避免气候灾难的人」，现实情况真的有这么紧急吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [9 月 30 日房地产板块集体跳水，万科 A、深物业 A 跌停，招商蛇口等纷纷下挫，发生了什么？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [⚡️孙悟空 三界巡演⚡️](http://www.daogukj.com/4857502)
-- [中国人一放假全世界都知道](http://www.daogukj.com/fxomsuem/)
-- [【无聊的开箱】能装进口袋的性能怪兽！iQOO Pad Ultra上手开箱！](http://www.play.hengshemaoyi.cn/xiju/4881423.htm)
-- [安徽马鞍山和县发生地震？假的](http://www.movie.hkepx.cn/xiju/2224998.htm)
-- [董子健看孙怡获奖的眼神](http://www.daogukj.com/xislksiq/)
-- [邓亚萍说输球不可以人身攻击](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
-- [赛力斯在巴黎推出“半价问界”](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
-- [弹力袜是静脉曲张治疗神器？系夸大](http://www.movie.hkepx.cn/xiju/3925704.htm)
-- [手绘465张！One Last Kiss【EVA30周年回忆重逢计划】](http://www.daogukj.com/zjqbftsa/)
-- [伊朗队主教练问王楚钦怎么看伊朗队](http://www.daogukj.com/odtszjmj/)
-- [手机的研究](http://www.movie.hkepx.cn/movie/8285885.htm)
-- [闫妮又在金鹰奖微醺上了](http://www.movie.hkepx.cn/xiju/1770369.htm)
-- [芒果的策划又封神了](http://www.daogukj.com/8527580)
-- [游本昌：我是个普普通通的演员](http://www.daogukj.com/9299314)
-- [张国荣遗作《爱情小孩》将亮相](http://www.daogukj.com/5812229)
-- [鸣潮优化性能啦！居然流畅了这么多？！](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
-- [邓亚萍：国人没法接受我们输日本队](http://www.daogukj.com/5338633)
-- [【矢量突破#3】拟生态全关卡 摆完挂机 简单好抄 核心突破/特别战线](http://www.movie.hkepx.cn/xiju/7272064.htm)
-- [井柏然早春晴朗穿的卫衣是刘雯的](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
-- [杨紫金鹰奖被cue清唱《好运来》](http://www.daogukj.com/3351222)
-- [邓亚萍直言输球不要找借口](http://www.play.hengshemaoyi.cn/xiju/0501282.htm)
-- [现在的女装都要上防拆带了](http://www.movie.hkepx.cn/movie/7142641.htm)
-- [谁能享受房贷贴息](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
-- [买房也有“国补”了](http://www.movie.hkepx.cn/xiju/5072930.htm)
-- [瑞幸2个月内两次联名惹争议](http://www.daogukj.com/mkxvsuhn/)
-- [这个量筒里到底有几毫升水？别笑，你也答不上来！](http://www.daogukj.com/9044973)
-- [六耳单曲《金钵之下》：真假皆由方寸起，阴阳只在一念间](http://www.daogukj.com/6197852)
-- [小孩姐陈妤颉赛后凡尔赛：我真牛啊](http://www.daogukj.com/ryrqoiii/)
-- [欧洲扒手猖獗横行，这才是文明的底蕴？](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
-- [专是专本是本，而我专升本](http://www.play.hengshemaoyi.cn/kongbu/7063878.htm)
-- [邓亚萍：输球不找借口 调整也是能力](http://www.movie.hkepx.cn/movie/2552102.htm)
-- [金价跌的有多夸张](http://www.movie.hkepx.cn/xiju/2129564.htm)
-- [烈士纪念日向人民英雄敬献花篮](http://www.daogukj.com/1731517)
-- [伊朗革命卫队称波斯湾已无美军舰船](http://www.daogukj.com/0178251)
-- [2026世界互联网大会乌镇峰会时间](http://www.movie.hkepx.cn/movie/2491274.htm)
-- [孙怡发博回应拿影后](http://www.daogukj.com/1710555)
-- [此刻是他们不曾到达的天明](http://www.daogukj.com/iqnxgakx/)
-- [游本昌遗体告别仪式今日举行](http://www.daogukj.com/evhpdqcv/)
-- [人民英雄 永垂不朽](http://www.movie.hkepx.cn/movie/9669872.htm)
-- [“柳条人年年立起，没人记得这火燃了几世”](http://www.play.hengshemaoyi.cn/xiju/7739320.htm)
-- [朱亚文获奖 宋佳哭了](http://www.movie.hkepx.cn/xiju/6624711.htm)
-- [油价暴跌黄金飙涨](http://www.movie.hkepx.cn/movie/0041132.htm)
-- [今年下半年最强冷空气来袭](http://www.movie.hkepx.cn/xiju/9486629.htm)
-- [风声1](http://www.movie.hkepx.cn/movie/9796335.htm)
-- [问我有没有对女人动过心？](http://www.daogukj.com/0823826)
-- [朋友圈的贷款广告 为啥突然没了](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
-- [空姐跪地道歉？东航客服回应](http://www.movie.hkepx.cn/movie/5397309.htm)
-- [博主：张雪干出了机车界的胖东来](http://www.daogukj.com/0899815)
-- [《兰香如故》高开疯走](http://www.play.hengshemaoyi.cn/xiju/2828553.htm)
-- [溶洞里动植物鲜活的秘密，藏着好空气的标准](http://www.daogukj.com/cachqmkl/)
+- [林诗栋金牌颁奖现场，后排观众齐喊「打一单」「可以别睡觉了」，这是什么意思？你怎么看这种行为？](http://www.daogukj.com/4857502)
+- [女子陪丈夫年薪五十万只是备选](http://www.daogukj.com/fxomsuem/)
+- [2500亿元国补资金已下达](http://www.play.hengshemaoyi.cn/xiju/4881423.htm)
+- [陈芋汐一天要称十次体重](http://www.movie.hkepx.cn/xiju/2224998.htm)
+- [怎么看媒体曝小米大模型负责人罗福莉晋升至 22 级？](http://www.daogukj.com/xislksiq/)
+- [亚运国足1比2韩国](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
+- [韩国队 裁判](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
+- [《最绝望の小兵》](http://www.movie.hkepx.cn/xiju/3925704.htm)
+- [【给阿嬷的情书】做人得有情义](http://www.daogukj.com/zjqbftsa/)
+- [闫妮又在金鹰奖微醺上了](http://www.daogukj.com/odtszjmj/)
+- [美军灰溜溜走了 伊拉克全国放假4天](http://www.movie.hkepx.cn/movie/8285885.htm)
+- [刘欢妻子辟谣网传刘欢后事画面](http://www.movie.hkepx.cn/xiju/1770369.htm)
+- [东航通报“空姐下跪道歉”](http://www.daogukj.com/8527580)
+- [游本昌遗体告别仪式今日举行](http://www.daogukj.com/9299314)
+- [6个宁波孩子把亚运朋友圈刷爆了](http://www.daogukj.com/5812229)
+- [【鸣潮】心月狐攻略！双体系大C 完全体独断万古？！同奏体系讲解 细节养成作业+进阶技巧](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
+- [动态视频｜泳池里究竟有多少尿？](http://www.daogukj.com/5338633)
+- [徐彬失误](http://www.movie.hkepx.cn/xiju/7272064.htm)
+- [深不可测的恐惧：斯克拉奇溪，溯源之惧 第六章](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
+- [A股收盘：疫苗、生物制品等概念走强](http://www.daogukj.com/3351222)
+- [惠英红团队在巴黎被砸车抢劫](http://www.play.hengshemaoyi.cn/xiju/0501282.htm)
+- [00后员工拒收老板8.8万元彩礼钱](http://www.movie.hkepx.cn/movie/7142641.htm)
+- [联合国秘书长警告称「我们是最后一代能够避免气候灾难的人」，现实情况真的有这么紧急吗？](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
+- [如何看待江苏高考接近满分记叙文《衬衫的价格为 9 镑 15 便士》火了，为啥会引发大家的共鸣？](http://www.movie.hkepx.cn/xiju/5072930.htm)
+- [虫子为啥不进化的可爱一点，这样人类就不忍心踩死了？](http://www.daogukj.com/mkxvsuhn/)
+- [飞天奖提名发布会](http://www.daogukj.com/9044973)
+- [这居然是林志玲](http://www.daogukj.com/6197852)
+- [“免费试用”被扣738元](http://www.daogukj.com/ryrqoiii/)
+- [网友称大批国乒资深国家队陪练辞职，是真的吗？国乒陪练体系为啥出现人员流失？国乒水平下降与此有关吗？](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
+- [弹力袜是静脉曲张治疗神器？系夸大](http://www.play.hengshemaoyi.cn/kongbu/7063878.htm)
+- [唐湘龙：两岸统一已在有序进行中](http://www.movie.hkepx.cn/movie/2552102.htm)
+- [广州楼市新政](http://www.movie.hkepx.cn/xiju/2129564.htm)
+- [中国亚运男足遭韩国逆转 无缘决赛](http://www.daogukj.com/1731517)
+- [90后，00的童年的含金量还在一步步提升](http://www.daogukj.com/0178251)
+- [5个月没浇水的造景，你们都渴了没？](http://www.movie.hkepx.cn/movie/2491274.htm)
+- [太阳系是扁平的，那向上或向下飞，不就可以快速飞出太阳系了吗？](http://www.daogukj.com/1710555)
+- [刘欢妻子辟谣网传临终传闻后事图片](http://www.daogukj.com/iqnxgakx/)
+- [金鹰节结束后郭京飞揽着蒋欣一起下班](http://www.daogukj.com/evhpdqcv/)
+- [国庆假期出行哪些城市最热门](http://www.movie.hkepx.cn/movie/9669872.htm)
+- [金价又摸回900以上这次能站稳吗](http://www.play.hengshemaoyi.cn/xiju/7739320.htm)
+- [手机的研究](http://www.movie.hkepx.cn/xiju/6624711.htm)
+- [弹力袜是静脉曲张“治疗神器”？假的](http://www.movie.hkepx.cn/movie/0041132.htm)
+- [为什么要在国庆前一天怀念烈士](http://www.movie.hkepx.cn/xiju/9486629.htm)
+- [这个海胆金枪鱼泥寿司得卖3000元一份，厨师长用下班剩的边角料研发的](http://www.movie.hkepx.cn/movie/9796335.htm)
+- [《善》善良是什么](http://www.daogukj.com/0823826)
+- [时隔40年亚运男足再次攻破韩国球门](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
+- [今天，向烈士致敬！](http://www.movie.hkepx.cn/movie/5397309.htm)
+- [【剧情】长生契（2026）08【方逸伦 / 谢可寅】](http://www.daogukj.com/0899815)
+- [谁能享受房贷贴息](http://www.play.hengshemaoyi.cn/xiju/2828553.htm)
+- [媒体称有欧盟成员国呼吁加快制定欧版301工具，商务部回应若属实中方必将坚决予以回应，哪些信息值得关注？](http://www.daogukj.com/cachqmkl/)
 
 </details>
 
 ## 原始来源
 
-- [速效救心丸金属瓶 不易打碎](https://www.baidu.com/s?wd=%E9%80%9F%E6%95%88%E6%95%91%E5%BF%83%E4%B8%B8%E9%87%91%E5%B1%9E%E7%93%B6+%E4%B8%8D%E6%98%93%E6%89%93%E7%A2%8E&sa=fyb_news&rsv_dl=fyb_news)
+- [怎么评价Anthropic 称 GLM-5.3 已能具备高级网络攻击能力，开源权重可能扩散危险？](https://www.zhihu.com/question/2088582058662745814)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0c5aaee85ba4dc488578 -->
+<!-- content-fingerprint: 0cde12b0ecbacd36b1d4 -->
