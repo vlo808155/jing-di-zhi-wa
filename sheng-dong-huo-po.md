@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 陶喆是否被吹过头了？他之于华语乐坛的意义（引进r&b）是否大于他的水平？
+# 如何看待北野动物园举办抓美国白蛾毛毛虫大赛，冠军抓超一公斤虫子？此类活动值得全城推广吗？
 
-> 来源：知乎热榜 · 排名：第 20 位 · 热度：120 万热度 · 分类：问答 · 更新：2026-10-02T14:30:52+08:00
+> 来源：知乎热榜 · 排名：第 20 位 · 热度：55 万热度 · 分类：问答 · 更新：2026-10-02T21:06:04+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“陶喆是否被吹过头了？他之于华语乐坛的意义（引进r&b）是否大于他的水平？”位列第 20 位，公开热度指标为 120 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待北野动物园举办抓美国白蛾毛毛虫大赛，冠军抓超一公斤虫子？此类活动值得全城推广吗？”位列第 20 位，公开热度指标为 55 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：陶喆是“周王陶林”里我最后一个去听的，周杰伦不用说，里面最火的一个，也是我最喜欢听的一个，王力宏林俊杰传播也广，好多歌也喜欢听，就感觉陶喆被过誉，很多歌旋律不好听，编曲没意思，整首歌感觉有年代感，在这个人均超过华语乐坛20年的情况下，我确实一开始就听出来了时代的鸿沟，或许都活在过去？流沙普通朋友susan说什么的不用给我推荐，感觉他的歌偶尔陶冶陶冶情操还是可以，跟评价有点配不上，大家对他的评价算是皇帝的新衣吗？不用怼，不用说某些歌有什么教育讽刺意义和什么概念性，要说的话说他某首歌具体好在哪一块，可以吗？
+来源公开摘要显示：北京野生动物园护林挑战赛活动 首日游客战力直接超标 首日游客战绩榜 重磅出炉！ 第一名战力天花板：1069.5g 断层式第一名！今日最强森林卫士诞生！ 第二名：596.3g 全程高能，战斗力稳稳在线！ 第三名：391.4g 勇敢出战，为守护园区贡献满满力量！ 感谢每一位积极参与的大小朋友✨ 因为大家的努力，园区绿植愈发青翠 动物们的家园也更加干净安心！ 活动持续进行中！ 赶快加入北野勇士军团! 沉浸式冲锋作战 在实战中收获勇气与成长 并肩守护森林的每一寸青绿! 北京野生动物园最近被毛毛虫（美国白蛾幼虫）攻陷，园区也真是有招，举办了抓毛毛虫大赛，抓的是外来
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [机米售货机第二季大合集！](xu-xu-ru-sheng.md)
-- [秋天吃柿子 好处多到想不到](huo-ling-huo-xian.md)
-- [李小冉 你们还有戏拍](you-sheng-you-se.md)
-- [国庆档首日《神探之痕迹》票房夺冠](yin-ren-ru-sheng.md)
+- [你再看看你后面呢！!](xu-xu-ru-sheng.md)
+- [男童10楼坠下被雨棚接住 笑着求抱抱](huo-ling-huo-xian.md)
+- [顾廷烨 二婚男](you-sheng-you-se.md)
+- [阿联酋：迪拜航空驾驶舱冲突系恐袭](yin-ren-ru-sheng.md)
 
 ## 站内推荐
 
-- [女子在国外被中国男演员救了一命](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [小朋友求合影特警下意识用手捂住枪口](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [亚运会](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [那英在家失去意识30S](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [葡媒称 C 罗国家队生涯已结束且做出不可逆决定，如何评价他的国家队生涯？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [黄河“鸳鸯锅”出圈](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [EDG连续两年止步16强](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [国庆第二天西湖断桥上全是人](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [中国人解压包一样出现在世界各地](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [如何看待美国田纳西州死刑犯接受两轮致死注射后，不仅没死还打起了鼾？可能是哪个环节的问题？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [奚梦瑶曝婆婆5胎剖腹产没坐月子](http://www.play.hengshemaoyi.cn/xiju/2367459.htm)
-- [金店客流暴涨 金镯子半天卖空](http://www.daogukj.com/whykihfw/)
-- [中国亚运军团里的“后浪”真敢](http://www.daogukj.com/1896871)
-- [高速堵车悬挂免费WiFi司机发声](http://www.movie.hkepx.cn/movie/7726331.htm)
-- [Windows XP最经典的开机音乐，是谁写出来的？【梗曲背后】](http://www.play.hengshemaoyi.cn/kongbu/7591988.htm)
-- [华为赛力斯 分手15天后闪电复合](http://www.movie.hkepx.cn/movie/9833785.htm)
-- [华为Mate90ProMax顶配版成销售主力](http://www.movie.hkepx.cn/movie/5639163.htm)
-- [全世界都知道中国人放假了](http://www.daogukj.com/2186746)
-- [韩国：若乌拒不道歉将采取进一步措施](http://www.play.hengshemaoyi.cn/kongbu/2268018.htm)
-- [清华北大是本身有含金量，还是因为13亿人高考内卷出来的排名靠前的学生有含金量？](http://www.play.hengshemaoyi.cn/kongbu/6473132.htm)
-- [普京：买吧 中国汽车又便宜又好](http://www.daogukj.com/1106243)
-- [如何看待北野动物园举办抓美国白蛾毛毛虫大赛，冠军抓超一公斤虫子？此类活动值得全城推广吗？](http://www.play.hengshemaoyi.cn/xiju/5943556.htm)
-- [比亚迪9月销量46.36万辆，连续数月环比增长，如何看待比亚迪目前的销量走势？](http://www.daogukj.com/9530499)
-- [继巨型吊牌之后，女装网店启用「防拆带」应对恶意退货，这会更有效吗？有人说市场信任崩溃了，为什么会这样？](http://www.movie.hkepx.cn/xiju/0808829.htm)
-- [迪拜航空“空中浩劫”是怎样被扭转的](http://www.play.hengshemaoyi.cn/kongbu/8834808.htm)
-- [网友称高铁候补订单凌晨兑现，早上睡醒发现车已开走，12306回应可设置截止兑现时间，还有更好的解法吗？](http://www.movie.hkepx.cn/xiju/0940758.htm)
-- [孙千1条日常分享带6个广](http://www.movie.hkepx.cn/movie/9022890.htm)
-- [电影《食神》演员怒斥周星驰](http://www.play.hengshemaoyi.cn/kongbu/2216390.htm)
-- [国际金价银价上涨](http://www.play.hengshemaoyi.cn/xiju/1375823.htm)
-- [购票有捷径和妙招？12306辟谣](http://www.daogukj.com/goeqgpai/)
-- [郑钦文的身价还会涨吗](http://www.play.hengshemaoyi.cn/kongbu/1757591.htm)
-- [为什么港剧的豪门恩怨，如罗嘉良的创世纪、刘青云的大时代，很受观众的喜爱？而大陆剧的豪门恩怨却让人尴尬？](http://www.play.hengshemaoyi.cn/kongbu/9879555.htm)
-- [女子在国外被中国男演员救了一命](http://www.play.hengshemaoyi.cn/xiju/7503553.htm)
-- [电视剧名 奶茶名](http://www.movie.hkepx.cn/xiju/5861166.htm)
-- [医生谈取消艾滋感染者入境限制](http://www.play.hengshemaoyi.cn/xiju/5549607.htm)
+- [魏延是刘备一手提拔的大将，被杀后评为罪臣，公平吗？](http://www.play.hengshemaoyi.cn/xiju/2367459.htm)
+- [国足半场0比3巴勒斯坦](http://www.daogukj.com/whykihfw/)
+- [中国游客如何让老外也过上“黄金周”](http://www.daogukj.com/1896871)
+- [披荆斩棘四公](http://www.movie.hkepx.cn/movie/7726331.htm)
+- [ピノキオピー - えねみぃ feat. 初音ミク・重音テト](http://www.play.hengshemaoyi.cn/kongbu/7591988.htm)
+- [“像造车一样盖房”真的来了](http://www.movie.hkepx.cn/movie/9833785.htm)
+- [北舞教授回应闪身步狗熊哆嗦毛出圈](http://www.movie.hkepx.cn/movie/5639163.htm)
+- [国足2球落后巴勒斯坦](http://www.daogukj.com/2186746)
+- [现在自动驾驶技术研究是不是进入了瓶颈？](http://www.play.hengshemaoyi.cn/kongbu/2268018.htm)
+- [《原神》剧情PV-「燕归来」](http://www.play.hengshemaoyi.cn/kongbu/6473132.htm)
+- [《义勇军进行曲》在名古屋奏响160多次](http://www.daogukj.com/1106243)
+- [危险！胃险？薇险！【手搓动画大赛】](http://www.play.hengshemaoyi.cn/xiju/5943556.htm)
+- [如何评价小沈阳夫妇主演的喜剧电影《什么意思夫妇》？](http://www.daogukj.com/9530499)
+- [清华北大是本身有含金量，还是因为13亿人高考内卷出来的排名靠前的学生有含金量？](http://www.movie.hkepx.cn/xiju/0808829.htm)
+- [港股收盘：三大指数齐跌](http://www.play.hengshemaoyi.cn/kongbu/8834808.htm)
+- [动捕演员摆POSE真的要考虑那么多吗？！](http://www.movie.hkepx.cn/xiju/0940758.htm)
+- [蔡天凤被诱骗上车遭铁锤袭击](http://www.movie.hkepx.cn/movie/9022890.htm)
+- [香港名媛蔡天凤碎尸案细节](http://www.play.hengshemaoyi.cn/kongbu/2216390.htm)
+- [孙继海：国足踢法违背了基本原则](http://www.play.hengshemaoyi.cn/xiju/1375823.htm)
+- [如何看待一男子在广西柳州站擅自爬上D1884次动车车顶遭电击坠落，官方称该男子暂无生命危险？](http://www.daogukj.com/goeqgpai/)
+- [日本亚运会为什么状况百出](http://www.play.hengshemaoyi.cn/kongbu/1757591.htm)
+- [国庆节留守儿童的痛](http://www.play.hengshemaoyi.cn/kongbu/9879555.htm)
+- [黄河“鸳鸯锅”出圈](http://www.play.hengshemaoyi.cn/xiju/7503553.htm)
+- [JDG生死战对阵T1](http://www.movie.hkepx.cn/xiju/5861166.htm)
+- [孙楠披哥主题曲C位](http://www.play.hengshemaoyi.cn/xiju/5549607.htm)
 - [【纪录片】生命奇观2 03 川西山地](http://www.play.hengshemaoyi.cn/kongbu/6769731.htm)
-- [Mate90登场 能打苹果的还得是华为](http://www.play.hengshemaoyi.cn/xiju/8003531.htm)
-- [孙千1条日常分享带6个软广](http://www.movie.hkepx.cn/xiju/9172364.htm)
-- [美国退伍女兵原定截右腿醒来左腿没了](http://www.movie.hkepx.cn/movie/6262590.htm)
-- [普京称若领土遭袭考虑动用全部武器](http://www.play.hengshemaoyi.cn/kongbu/5906748.htm)
-- [古偶剧名同质化是不是越来越严重了？锦、月、星、梦等字随意排列组合就是一个剧名，为什么会出现这种情况？](http://www.daogukj.com/goynbzba/)
-- [十个 Claude5.5 协作攻克百年汤姆逊难题，这意味着什么？](http://www.daogukj.com/oqkhnwnb/)
-- [“诈骗”拯救世界？20世纪规模最大的慈善演唱会是如何诞生的？](http://www.movie.hkepx.cn/xiju/8878997.htm)
-- [曝C罗退队与迷你罗落选有关](http://www.daogukj.com/frbhpamg/)
-- [农村的消亡可能远超预期](http://www.daogukj.com/8218296)
-- [《兰香如故》为何能黑马杀出，成为爆款剧集？](http://www.movie.hkepx.cn/xiju/3382411.htm)
-- [李小冉 你们还有戏拍](http://www.play.hengshemaoyi.cn/kongbu/3195197.htm)
-- [【独家】时光代理人 第三季 PartOne 第9集 坦白【8月国创】](http://www.movie.hkepx.cn/xiju/8373508.htm)
-- [小朋友求合影特警下意识用手捂住枪口](http://www.daogukj.com/uamigzyj/)
-- [【10月电脑配置推荐】平均省400+，这才是正常人要的配置单，花费20万，只为教你把预算都花都在DIY装机刀刃上](http://www.daogukj.com/uevljbcs/)
-- [莫氏鸡煲国庆假期首日上座约六成](http://www.play.hengshemaoyi.cn/xiju/4322946.htm)
-- [葡媒称 C 罗国家队生涯已结束且做出不可逆决定，如何评价他的国家队生涯？](http://www.movie.hkepx.cn/movie/3471289.htm)
-- [中国游客在全世界表白祖国](http://www.movie.hkepx.cn/movie/3873340.htm)
-- [如何看待樊振东与波尔谈退役时表示「希望多年后人们谈起自己时还能觉得我是一个好人和好球员」？](http://www.daogukj.com/0908523)
-- [美国总统特朗普！卖的黄金手机！到底什么样？竟然中国制造？](http://www.daogukj.com/7782066)
-- [国庆档首日《神探之痕迹》票房夺冠](http://www.play.hengshemaoyi.cn/kongbu/3377780.htm)
-- [《下一个是谁》第七季（5）](http://www.play.hengshemaoyi.cn/xiju/9852587.htm)
-- [TFBOYS亲签 350万](http://www.daogukj.com/njwfupeo/)
-- [孙继海：国足踢法违背了基本原则](http://www.play.hengshemaoyi.cn/kongbu/1527267.htm)
-- [房贷贴息落地 客户房东都坐不住了](http://www.play.hengshemaoyi.cn/xiju/3775329.htm)
+- [WTT中国大满贯单打抽签表](http://www.play.hengshemaoyi.cn/xiju/8003531.htm)
+- [兰香如故碧芜登场](http://www.movie.hkepx.cn/xiju/9172364.htm)
+- [沈腾李小冉也没戏拍了吗](http://www.movie.hkepx.cn/movie/6262590.htm)
+- [现在是买黄金的好时机吗](http://www.play.hengshemaoyi.cn/kongbu/5906748.htm)
+- [网友称高铁候补订单凌晨兑现，早上睡醒发现车已开走，12306回应可设置截止兑现时间，还有更好的解法吗？](http://www.daogukj.com/goynbzba/)
+- [为什么全球的水没有慢慢渗到地球内部去，是地精给地球表面做了防渗水吗？](http://www.daogukj.com/oqkhnwnb/)
+- [你敢信？我在太平洋赶海竟然发现上百斤重的巨型砗磲！这么大的家伙，吃起来什么味道？](http://www.movie.hkepx.cn/xiju/8878997.htm)
+- [蒂芙尼月饼事件舆论反转](http://www.daogukj.com/frbhpamg/)
+- [国际油价大涨会加速油电替代进程吗](http://www.daogukj.com/8218296)
+- [比亚迪9月销量46.36万辆，连续数月环比增长，如何看待比亚迪目前的销量走势？](http://www.movie.hkepx.cn/xiju/3382411.htm)
+- [顾廷烨 二婚男](http://www.play.hengshemaoyi.cn/kongbu/3195197.htm)
+- [这些涉及假期的网传信息都是假的](http://www.movie.hkepx.cn/xiju/8373508.htm)
+- [EDG连续两年止步16强](http://www.daogukj.com/uamigzyj/)
+- [如何在家自制脆皮炸牛奶？](http://www.daogukj.com/uevljbcs/)
+- [脑梗发作前有哪些信号](http://www.play.hengshemaoyi.cn/xiju/4322946.htm)
+- [如何看待美国田纳西州死刑犯接受两轮致死注射后，不仅没死还打起了鼾？可能是哪个环节的问题？](http://www.movie.hkepx.cn/movie/3471289.htm)
+- [普京建议西方国家清醒评估局势](http://www.movie.hkepx.cn/movie/3873340.htm)
+- [半个包子的真相](http://www.daogukj.com/0908523)
+- [《舌尖上的国庆高速堵车》](http://www.daogukj.com/7782066)
+- [阿联酋：迪拜航空驾驶舱冲突系恐袭](http://www.play.hengshemaoyi.cn/kongbu/3377780.htm)
+- [意大利公交中国人太多挤到刷不上卡](http://www.play.hengshemaoyi.cn/xiju/9852587.htm)
+- [购票有捷径和妙招？12306辟谣](http://www.daogukj.com/njwfupeo/)
+- [为什么中国车站叫“站”而日韩朝叫“驿”?](http://www.play.hengshemaoyi.cn/kongbu/1527267.htm)
+- [原来薯条盒侧边可以放番茄酱](http://www.play.hengshemaoyi.cn/xiju/3775329.htm)
 
 </details>
 
 ## 原始来源
 
-- [陶喆是否被吹过头了？他之于华语乐坛的意义（引进r&b）是否大于他的水平？](https://www.zhihu.com/question/464611186)
+- [如何看待北野动物园举办抓美国白蛾毛毛虫大赛，冠军抓超一公斤虫子？此类活动值得全城推广吗？](https://www.zhihu.com/question/2088258526736904490)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f3cb413f96042b6fac1e -->
+<!-- content-fingerprint: 7e834b34c8f52515cfe0 -->
