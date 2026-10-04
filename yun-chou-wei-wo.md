@@ -1,35 +1,35 @@
 [热点索引](README.md)
 
-# 如何用5分钟让听日语歌的和唱中文歌的都沉默☝️
+# 中国队169金89银83铜收官
 
-> 来源：哔哩哔哩热门 · 排名：第 17 位 · 热度：1769170 · 分类：翻唱 · 更新：2026-10-04T06:08:55+08:00
+> 来源：微博热搜 · 排名：第 18 位 · 热度：179826 · 分类：体育 · 更新：2026-10-04T08:35:12+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“如何用5分钟让听日语歌的和唱中文歌的都沉默☝️”位列第 17 位，公开热度指标为 1769170，榜单分类为“翻唱”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“中国队169金89银83铜收官”位列第 18 位，公开热度指标为 179826，榜单分类为“体育”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：全国各地都能学会的日语歌教学第一期（雾） 这次请来了高人@鹿火CAVY 助阵！ 【电子斗曲曲】这个系列会根据大家反馈持续更新的（明示），欢迎大家在评论区为我们补充歌单和选题！ 往期传送门↓ 普通的粤语第一期：BV1q1SEBMEL5 普通的粤语第二期：BV1YY6qBoEHc 普通的粤语第三期：BV1L9QcBoEeH 普通的粤语第四期：BV1ndTs64Etd 普通的闽南语第一期：BV1km27BTEzr 普通的英语Episode 1：BV1sFcQzMExM 普通的英语Episode 2：B
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `翻唱`
+`微博热搜` `实时热搜` `热点资讯` `体育`
 
 ## 相关热点
 
-- [在冰岛报外国团只有导游是外国人](shen-mou-yuan-lv.md)
-- [美方指责星巴克在新疆开门店](ming-cha-qiu-hao.md)
-- [媒体：央行“四箭齐发”释放利好](jian-wei-zhi-zhu.md)
-- [如何评价一人之下834（779）话？](du-ju-hui-yan.md)
+- [俄军反复轰炸基辅一座桥有何意图](shen-mou-yuan-lv.md)
+- [六神是怎么做到在花露水市场常年稳居第一的？甚至有不少人除了六神好像都不了解其他的花露水品牌？](ming-cha-qiu-hao.md)
+- [我记得课本里的新疆，不是这样的啊？？](jian-wei-zhi-zhu.md)
+- [12岁独居男孩已搬离出租房 租金未付](du-ju-hui-yan.md)
 
 ## 站内推荐
 
-- [《霸凌の意志》](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [现在再看，这些话全都是作者对妹妹的思念](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [危险！胃险？薇险！【手搓动画大赛】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [今天带小沈阳自律！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [没看住对面牢玩家，又让他出去祸害我队友了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [当你穿进老钱班36](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [中俄白等八国超4.7万人集结大练兵](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [成都天价回锅肉3片卖105](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [刘学义做的菜都是谭松韵爱吃的](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [披荆斩棘五公队长](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
@@ -37,62 +37,62 @@
 <summary>展开更多相关内容</summary>
 
 - [网友吐槽美团、高德、大众点评可随意造假评论，自家店铺还没开门就遭差评，该机制合理吗？该怎样应对和改进？](http://www.daogukj.com/ujmpetju/)
-- [偏瘫婆婆被儿媳带练到生活自理](http://www.movie.hkepx.cn/xiju/2326006.htm)
-- [美方指责星巴克在新疆开门店](http://www.daogukj.com/fklrdyry/)
-- [旅游第二天就车祸了？？【出发吧少年 02】](http://www.daogukj.com/fcqoynal/)
-- [汉大帮高育良的外甥女陆亦可为什么被大家厌恶？她和侯亮平是一类人吗？](http://www.movie.hkepx.cn/movie/7286781.htm)
-- [12岁独居男孩已搬离出租房 租金未付](http://www.movie.hkepx.cn/xiju/5270399.htm)
-- [有人被水猴子吸干血？警方辟谣](http://www.play.hengshemaoyi.cn/xiju/5019563.htm)
-- [男子多次恶意举报足浴店涉黄被行拘](http://www.play.hengshemaoyi.cn/xiju/6772680.htm)
-- [长假第3天不少家庭已“战火纷飞”](http://www.play.hengshemaoyi.cn/kongbu/4064427.htm)
-- [中国队169金89银83铜收官](http://www.play.hengshemaoyi.cn/kongbu/8483720.htm)
-- [古诗词中出现频率最多的字是什么？](http://www.play.hengshemaoyi.cn/kongbu/8579970.htm)
-- [葡足协主席希望C罗「以体面的方式谢幕」，正推动其重返国家队，如何理解当前各方态度？最终可能怎样收场？](http://www.movie.hkepx.cn/xiju/0134223.htm)
-- [马斯克与高管女友分手 两人育有4孩](http://www.play.hengshemaoyi.cn/kongbu/4502768.htm)
-- [中国队169金89银83铜](http://www.movie.hkepx.cn/movie/9639468.htm)
-- [莱巴金娜中网爆冷出局](http://www.daogukj.com/eugwmshe/)
-- [6连鞭！吴宜泽6-1特鲁姆普进决赛](http://www.daogukj.com/1626617)
-- [没看住对面牢玩家，又让他出去祸害我队友了](http://www.movie.hkepx.cn/movie/2260283.htm)
-- [网友称纹身是免疫细胞一辈子的战斗，这是真的吗？对健康会有哪些影响？](http://www.movie.hkepx.cn/xiju/0424593.htm)
-- [全网刷屏的天安门小猫 后续来了](http://www.play.hengshemaoyi.cn/xiju/5090288.htm)
-- [新华社：0:5给中国足球的又一记警钟](http://www.daogukj.com/3625115)
-- [媒体：央行“四箭齐发”释放利好](http://www.daogukj.com/jieawbfe/)
+- [克罗地亚0-7英格兰](http://www.movie.hkepx.cn/xiju/2326006.htm)
+- [六神是怎么做到在花露水市场常年稳居第一的？甚至有不少人除了六神好像都不了解其他的花露水品牌？](http://www.daogukj.com/fklrdyry/)
+- [张雪回应被评“最寒酸亿万富翁”](http://www.daogukj.com/fcqoynal/)
+- [纯电车主称增程车应让出充电桩](http://www.movie.hkepx.cn/movie/7286781.htm)
+- [司机开着“智驾”在高速上睡着了](http://www.movie.hkepx.cn/xiju/5270399.htm)
+- [4名枪匪闯入豪宅，中国男子4秒13枪疯狂反击！](http://www.play.hengshemaoyi.cn/xiju/5019563.htm)
+- [女子别车遭脚踹被罚200元](http://www.play.hengshemaoyi.cn/xiju/6772680.htm)
+- [中方回应“美方批星巴克在新疆开店”](http://www.play.hengshemaoyi.cn/kongbu/4064427.htm)
+- [省下面的市有正式的简称吗？每个都有吗？](http://www.play.hengshemaoyi.cn/kongbu/8483720.htm)
+- [日本人遭遇餐桌危机](http://www.play.hengshemaoyi.cn/kongbu/8579970.htm)
+- [巴勒斯坦球员向国足道歉](http://www.movie.hkepx.cn/xiju/0134223.htm)
+- [迪丽热巴穿明艳红裙漫步巴黎](http://www.play.hengshemaoyi.cn/kongbu/4502768.htm)
+- [克罗地亚0比7英格兰](http://www.movie.hkepx.cn/movie/9639468.htm)
+- [为什么部分人喝牛奶会腹泻，乳糖不耐受的本质是什么，为什么不同地区人群乳糖耐受能力差异巨大？](http://www.daogukj.com/eugwmshe/)
+- [媒体人：难怪当年许昕说林诗栋是天才](http://www.daogukj.com/1626617)
+- [披荆斩棘五公队长](http://www.movie.hkepx.cn/movie/2260283.htm)
+- [浅谈iPhone 18 Pro：赶紧骂，骂完还得买！](http://www.movie.hkepx.cn/xiju/0424593.htm)
+- [小沈阳夫妇电影为何能实现票房逆袭](http://www.play.hengshemaoyi.cn/xiju/5090288.htm)
+- [学校水质调查](http://www.daogukj.com/3625115)
+- [我记得课本里的新疆，不是这样的啊？？](http://www.daogukj.com/jieawbfe/)
 - [巴勒斯坦球员向国足致歉](http://www.play.hengshemaoyi.cn/xiju/1843269.htm)
-- [郭晓东全程跑调](http://www.movie.hkepx.cn/movie/9978600.htm)
-- [巴勒斯坦球员向国足道歉](http://www.movie.hkepx.cn/movie/6924230.htm)
-- [迪丽热巴穿明艳红裙漫步巴黎](http://www.daogukj.com/etibyexa/)
-- [人狐情未了！谁不想要一个狐仙女友啊！](http://www.play.hengshemaoyi.cn/kongbu/7016583.htm)
-- [《明日方舟》SideStory「昨日海」活动宣传PV](http://www.movie.hkepx.cn/xiju/6012346.htm)
-- [“一国两制”台湾方案在岛内引热议](http://www.movie.hkepx.cn/xiju/3257128.htm)
-- [亚运男足颁奖只有日本队笑不出来](http://www.play.hengshemaoyi.cn/kongbu/4442696.htm)
-- [新能源电车还有多少想象空间](http://www.play.hengshemaoyi.cn/kongbu/3696154.htm)
-- [国庆“杭州落地签”火了](http://www.daogukj.com/8707603)
-- [知否 剧情设定](http://www.movie.hkepx.cn/xiju/1792227.htm)
-- [明明我们的造梗能力也不差，我国为什么很少做出像《尼古喵喵》这样充满神人和生活气息的作品？](http://www.movie.hkepx.cn/xiju/1821928.htm)
-- [美国中期选举临近，懂王一根筋最多可以几头堵？丨中国坐标](http://www.play.hengshemaoyi.cn/xiju/7826824.htm)
-- [话糙理不糙大家多存钱](http://www.play.hengshemaoyi.cn/kongbu/4982284.htm)
-- [六神是怎么做到在花露水市场常年稳居第一的？甚至有不少人除了六神好像都不了解其他的花露水品牌？](http://www.movie.hkepx.cn/xiju/2461964.htm)
-- [如何看待DeepSeek Harness在新版本中加入Claude Code Mods兼容？](http://www.movie.hkepx.cn/movie/7422271.htm)
-- [【剧情】终极一班4（2016）01【曾沛慈 / 罗宏正】](http://www.play.hengshemaoyi.cn/kongbu/8190186.htm)
-- [法国博主吐槽中国演员被偷相机](http://www.play.hengshemaoyi.cn/kongbu/3600255.htm)
-- [《霸凌の意志》](http://www.movie.hkepx.cn/movie/9483466.htm)
-- [《西游记》作曲许镜清向星火社维权](http://www.play.hengshemaoyi.cn/kongbu/5693401.htm)
-- [韩国“梦之队”完败给中国队](http://www.daogukj.com/wstcuheo/)
-- [如何评价一人之下834（779）话？](http://www.movie.hkepx.cn/movie/3882558.htm)
-- [亚运会男足铜牌战，李昊扑出两个点球助中国队获得铜牌，完成这样的扑救有多难？会怎样影响球队？](http://www.movie.hkepx.cn/movie/0855056.htm)
-- [一飞机在百慕大飞往波士顿途中失联](http://www.daogukj.com/wflinrtr/)
+- [她 难听](http://www.movie.hkepx.cn/movie/9978600.htm)
+- [闭幕式中国旗手 毕焜](http://www.movie.hkepx.cn/movie/6924230.htm)
+- [【功夫女足】至尊无敌杯开赛！](http://www.daogukj.com/etibyexa/)
+- [男足亚运摘铜登上《新闻联播》](http://www.play.hengshemaoyi.cn/kongbu/7016583.htm)
+- [妻子收内藏2万现金礼盒 副局长被处分](http://www.movie.hkepx.cn/xiju/6012346.htm)
+- [俄被曝谋划把基辅炸回“石器时代”](http://www.movie.hkepx.cn/xiju/3257128.htm)
+- [葡足协主席希望C罗「以体面的方式谢幕」，正推动其重返国家队，如何理解当前各方态度？最终可能怎样收场？](http://www.play.hengshemaoyi.cn/kongbu/4442696.htm)
+- [周扬青自嘲脸「馒化」了，什么是「馒化脸」？医美技术发展能避免这种情况吗？](http://www.play.hengshemaoyi.cn/kongbu/3696154.htm)
+- [亚运男足颁奖韩国国旗没升上去](http://www.daogukj.com/8707603)
+- [金价坐“过山车” 谁在入手](http://www.movie.hkepx.cn/xiju/1792227.htm)
+- [“水猴子拖人下水淹死”系谣言](http://www.movie.hkepx.cn/xiju/1821928.htm)
+- [亚运男足颁奖只有日本队笑不出来](http://www.play.hengshemaoyi.cn/xiju/7826824.htm)
+- [网友质疑国足0比5惨败却让17岁小将赵松源接受采访，如何看待这种安排？是有意为之吗？](http://www.play.hengshemaoyi.cn/kongbu/4982284.htm)
+- [真龙天子，全员影帝！丐帮帮主成皇帝了，最好笑的一局！万字细嗦《我不是大师》第五局 包含；剧情、细节、历史科普、骗术拆解等](http://www.movie.hkepx.cn/xiju/2461964.htm)
+- [全网刷屏的天安门小猫 后续来了](http://www.movie.hkepx.cn/movie/7422271.htm)
+- [难怪老外都说中国人嘴巴毒](http://www.play.hengshemaoyi.cn/kongbu/8190186.htm)
+- [苹果将为受影响用户免费更换新机](http://www.play.hengshemaoyi.cn/kongbu/3600255.htm)
+- [当你穿进老钱班36](http://www.movie.hkepx.cn/movie/9483466.htm)
+- [没看住对面牢玩家，又让他出去祸害我队友了](http://www.play.hengshemaoyi.cn/kongbu/5693401.htm)
+- [贺炜：这不是简单的一枚铜牌](http://www.daogukj.com/wstcuheo/)
+- [12岁独居男孩已搬离出租房 租金未付](http://www.movie.hkepx.cn/movie/3882558.htm)
+- [花218元全资进组的年轻人在横店演爽](http://www.movie.hkepx.cn/movie/0855056.htm)
+- [做梦是大脑的什么活动产物，为什么大部分梦境醒来很快就遗忘，梦境的内容是否可以反映大脑真实的思维？](http://www.daogukj.com/wflinrtr/)
 - [家国长歌](http://www.daogukj.com/4055553)
-- [中国队亚运169金收官](http://www.play.hengshemaoyi.cn/kongbu/5702984.htm)
-- [这些粗粮可能比米饭还升糖](http://www.movie.hkepx.cn/movie/9880116.htm)
-- [“好冷空气”来了 对气候有何影响](http://www.daogukj.com/ujvkpjtv/)
-- [军媒：祖国完全统一历史任务定能实现](http://www.play.hengshemaoyi.cn/kongbu/4315002.htm)
+- [【剧情】终极一班4（2016）01【曾沛慈 / 罗宏正】](http://www.play.hengshemaoyi.cn/kongbu/5702984.htm)
+- [网友称纹身是免疫细胞一辈子的战斗，这是真的吗？对健康会有哪些影响？](http://www.movie.hkepx.cn/movie/9880116.htm)
+- [人狐情未了！谁不想要一个狐仙女友啊！](http://www.daogukj.com/ujvkpjtv/)
+- [撞断双腿后，我把油门踩到底 【探照灯计划】](http://www.play.hengshemaoyi.cn/kongbu/4315002.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何用5分钟让听日语歌的和唱中文歌的都沉默☝️](https://b23.tv/BV1Wqaz6PEkZ)
+- [中国队169金89银83铜收官](https://s.weibo.com/weibo?q=%E4%B8%AD%E5%9B%BD%E9%98%9F169%E9%87%9189%E9%93%B683%E9%93%9C%E6%94%B6%E5%AE%98)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 7a1eec12b8ba97b65b34 -->
+<!-- content-fingerprint: eb28900b4fcd9378126d -->
