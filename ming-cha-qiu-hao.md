@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 拉马努金圆周率公式的原理是什么？
+# 如何评价上海一音乐教师赴泰后失联多日，手机 IP 曾显示在缅甸？目前情况如何？
 
-> 来源：知乎热榜 · 排名：第 18 位 · 热度：72 万热度 · 分类：问答 · 更新：2026-10-04T14:17:15+08:00
+> 来源：知乎热榜 · 排名：第 18 位 · 热度：105 万热度 · 分类：问答 · 更新：2026-10-04T20:31:15+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“拉马努金圆周率公式的原理是什么？”位列第 18 位，公开热度指标为 72 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何评价上海一音乐教师赴泰后失联多日，手机 IP 曾显示在缅甸？目前情况如何？”位列第 18 位，公开热度指标为 105 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：最近看到这么一个公式： \\frac{1}{\\pi}=\\frac{2\\sqrt{2}}{99^{2}}\\sum_{k=0}^{\\infty}{\\frac{(4k)!}{k!^{4}}\\frac{26390k+1103}{396^{4k}}} 当算到k=1时，算出的结果已经突破了计算器的精度。我和小伙伴们惊呆了！这公式里的数看上去跟圆周率风马牛不相及，但是居然是对的。哪位数学大手能解释一下其中的原理？广告度根本解决不了我的问题。
+来源公开摘要显示：10月2日，泰国头条新闻社收到网友求助，称一名来自中国上海的33岁音乐教师王棋于9月24日赴泰后失联。家属提供的信息显示，其手机IP地址曾两次显示在缅甸克伦邦南部，警方初步判断案件“高度疑似被骗出境”。 中国驻泰国大使馆10月2日回应称，已接到相关求助，并向泰国警方通报情况。目前，案件正在侦办中。 据悉，10月1日，有网友在社交媒体发布紧急寻人启事。寻人信息显示，王棋，男，33岁，上海人，系华东师范大学音乐学院2017届本科毕业生，目前在上海一所国际双语学校担任音乐教师。 据家属介绍，9月24日下班后，王棋独自驾车前往上海浦东国际机场，将车辆停放在机场地
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [没看住对面牢玩家，又让他出去祸害我队友了](jian-wei-zhi-zhu.md)
-- [为何要花超700亿元修条运河](du-ju-hui-yan.md)
-- [提到张家齐爸爸锤娜丽莎气懵多次](bie-ju-jiang-xin.md)
-- [部分一线城市月供接近房租说明啥](qiao-duo-tian-gong.md)
+- [真龙天子，全员影帝！丐帮帮主成皇帝了，最好笑的一局！万字细嗦《我不是大师》第五局 包含；剧情、细节、历史科普、骗术拆解等](jian-wei-zhi-zhu.md)
+- [中国人民银行公开征求意见](du-ju-hui-yan.md)
+- [仙逆动画避天棺剧情](bie-ju-jiang-xin.md)
+- [《山歌万里》音乐会深圳站落幕](qiao-duo-tian-gong.md)
 
 ## 站内推荐
 
-- [萨巴伦卡爆冷出局](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [平台回应慧慧饱饱被禁止关注](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [网红慧慧饱饱被封号](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [俄被曝谋划把基辅炸回“石器时代”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [马伯庸是影视化改编最多的作家，但是为什么没有出现几个全民爆款，到底是哪里出问题？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [中国代表团超2/3运动员首次征战亚运](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [网传俄罗斯一实验室助理打破试管后感染鼠疫死亡，近200人被纳入医学观察，有哪些信息值得关注？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [为什么现在下属越来越不尊重领导了，你说一句，他顶10句？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [有哪些演员演了完全不符合本人气质的角色，结果却意外封神？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [周扬青自嘲脸「馒化」了，什么是「馒化脸」？医美技术发展能避免这种情况吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [2026 无畏契约上海全球冠军赛 CN 赛区遭遇大场八连败全军覆没，如何评价各队表现？](http://www.daogukj.com/4857502)
-- [牛奶倒进大海还得葱省大神回答](http://www.daogukj.com/fxomsuem/)
-- [各地如何接住“大流量”](http://www.play.hengshemaoyi.cn/xiju/4881423.htm)
-- [中网再爆大冷门](http://www.movie.hkepx.cn/xiju/2224998.htm)
-- [“补贴+贴息”激发假日消费活力](http://www.daogukj.com/xislksiq/)
-- [村民用近500斤辣椒拼出国旗](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
-- [【功夫女足】至尊无敌杯开赛！](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
-- [网传俄罗斯一实验室助理打破试管后感染鼠疫死亡，近200人被纳入医学观察，有哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/3925704.htm)
-- [《大明王朝1566》里「改稻为桑」这么一个虚构出来的议题，本来解决起来很简单，怎么就搞得这么复杂？](http://www.daogukj.com/zjqbftsa/)
-- [系外行星无线电信号首次被捕获](http://www.daogukj.com/odtszjmj/)
-- [蔡天凤去世当日正带准买家看楼](http://www.movie.hkepx.cn/movie/8285885.htm)
-- [网红慧慧饱饱被封号](http://www.movie.hkepx.cn/xiju/1770369.htm)
-- [萨巴伦卡爆冷出局](http://www.daogukj.com/8527580)
-- [普京谈苏联解体：盲信西方君子协定](http://www.daogukj.com/9299314)
-- [日本向美方提出抗议](http://www.daogukj.com/5812229)
-- [【剧情】终极一班4（2016）01【曾沛慈 / 罗宏正】](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
-- [景区文创陷入「冤种三件套」，从护手霜到冰箱贴，为啥文创越来越同质化？怎样的景区文创才能让你愿意买单？](http://www.daogukj.com/5338633)
-- [游客打卡政府食堂吃了500斤饭400斤鹅](http://www.movie.hkepx.cn/xiju/7272064.htm)
-- [没看住对面牢玩家，又让他出去祸害我队友了](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
-- [你见过最朴素的善意是什么？](http://www.daogukj.com/3351222)
-- [徐良演唱会救活了即将倒闭的面包厂](http://www.play.hengshemaoyi.cn/xiju/0501282.htm)
-- [意大利姑娘来中国学拳嫁给拳师](http://www.movie.hkepx.cn/movie/7142641.htm)
-- [俄被曝谋划把基辅炸回“石器时代”](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
-- [德国教材「很多中国人没有汽车，出行靠自行车或步行」等内容引争议，这真是现行教材吗？为何会出现这种错误？](http://www.movie.hkepx.cn/xiju/5072930.htm)
-- [兔子有思想么？还是它除了吃只会吃？](http://www.daogukj.com/mkxvsuhn/)
-- [中方回应是否延长“喀秋莎”租借期限](http://www.daogukj.com/9044973)
-- [凌玲：不气盛叫年轻人吗！](http://www.daogukj.com/6197852)
-- [【独家】牧神记 第103集 温酒](http://www.daogukj.com/ryrqoiii/)
-- [中美俄领导人2022年后将首次同框](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
-- [你管这叫留守老人？](http://www.play.hengshemaoyi.cn/kongbu/7063878.htm)
-- [余承东 余总转发文案](http://www.movie.hkepx.cn/movie/2552102.htm)
-- [这才是真正的音乐啊😇](http://www.movie.hkepx.cn/xiju/2129564.htm)
-- [张展硕7金无缘亚运会MVP](http://www.daogukj.com/1731517)
-- [「雨爱 (司凤版)」|“邦吧邦吧邦吧”| "听完感觉老通透了"](http://www.daogukj.com/0178251)
-- [如何看待深圳一车主连续两次占用应急车道，被按深圳特区法规罚 6000 元？你支持全国推广吗？](http://www.movie.hkepx.cn/movie/2491274.htm)
-- [亚运三大球中国1金2铜收官](http://www.daogukj.com/1710555)
-- [《霸凌の意志》](http://www.daogukj.com/iqnxgakx/)
-- [中国队169金89银83铜](http://www.daogukj.com/evhpdqcv/)
-- [《鸣潮》剧情动画 | 朝月喜事](http://www.movie.hkepx.cn/movie/9669872.htm)
-- [韩国U23国脚称金牌不重要只为免兵役](http://www.play.hengshemaoyi.cn/xiju/7739320.htm)
-- [今天带小沈阳自律！](http://www.movie.hkepx.cn/xiju/6624711.htm)
-- [崔晋 李勒优](http://www.movie.hkepx.cn/movie/0041132.htm)
-- [部分一线城市月供接近房租说明啥](http://www.movie.hkepx.cn/xiju/9486629.htm)
-- [省下面的市有正式的简称吗？每个都有吗？](http://www.movie.hkepx.cn/movie/9796335.htm)
-- [如何看待法国多地爆发学生抗议，部分示威活动逐渐演变成暴力行为？ 背后有哪些原因？](http://www.daogukj.com/0823826)
-- [现在再看，这些话全都是作者对妹妹的思念](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
-- [用九宫格打开亚运赛场的中国红](http://www.movie.hkepx.cn/movie/5397309.htm)
-- [首部 AI 院线电影《三星堆：未来往事》定档 10 月 23 日上映，对此你有何期待？](http://www.daogukj.com/0899815)
-- [美国小女孩外出玩耍直接带回一只猞猁](http://www.play.hengshemaoyi.cn/xiju/2828553.htm)
-- [疑似张元英粉丝群聊天记录曝光](http://www.daogukj.com/cachqmkl/)
+- [2026 赛季 F1 巴林大奖赛马来西亚站，维斯塔潘夺冠，勒克莱尔第四，如何评价本场比赛？](http://www.daogukj.com/4857502)
+- [广东小孩哥家门口捡到6500万年前恐龙蛋](http://www.daogukj.com/fxomsuem/)
+- [中国正编织六张超级大网](http://www.play.hengshemaoyi.cn/xiju/4881423.htm)
+- [安东尼奥：U23国足像我的亲儿子](http://www.movie.hkepx.cn/xiju/2224998.htm)
+- [华裔科学家李飞飞称10年后人工智能普及，全球将只剩下两类劳动，如何理解？](http://www.daogukj.com/xislksiq/)
+- [粤J2888T来老君山了](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
+- [OPPO三2亿让青春有了高清版](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
+- [珠峰堵人不会在国庆假期](http://www.movie.hkepx.cn/xiju/3925704.htm)
+- [【独家】牧神记 第103集 温酒](http://www.daogukj.com/zjqbftsa/)
+- [高市早苗强烈要求美方配合调查](http://www.daogukj.com/odtszjmj/)
+- [中美俄领导人2022年后将首次同框](http://www.movie.hkepx.cn/movie/8285885.htm)
+- [为什么现在下属越来越不尊重领导了，你说一句，他顶10句？](http://www.movie.hkepx.cn/xiju/1770369.htm)
+- [中国代表团超2/3运动员首次征战亚运](http://www.daogukj.com/8527580)
+- [中国游客听到China一呼百应](http://www.daogukj.com/9299314)
+- [乌克兰首都基辅响起强烈爆炸声](http://www.daogukj.com/5812229)
+- [用鳃呼吸吧沃雅妮莎！](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
+- [可恶的蚊子你也有今天](http://www.daogukj.com/5338633)
+- [台当局危险驱离大陆渔船致船只受损](http://www.movie.hkepx.cn/xiju/7272064.htm)
+- [真龙天子，全员影帝！丐帮帮主成皇帝了，最好笑的一局！万字细嗦《我不是大师》第五局 包含；剧情、细节、历史科普、骗术拆解等](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
+- [“宇宙第一大站”最短发车间隔40秒](http://www.daogukj.com/3351222)
+- [余承东：华为已量产381款韬芯片](http://www.play.hengshemaoyi.cn/xiju/0501282.htm)
+- [大风降温！冷空气“冻”真格了](http://www.movie.hkepx.cn/movie/7142641.htm)
+- [有哪些演员演了完全不符合本人气质的角色，结果却意外封神？](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
+- [韩国网友不满亚运会夺金牌就能免兵役，你怎么看？这到底算正当奖励还是过度特权？](http://www.movie.hkepx.cn/xiju/5072930.htm)
+- [泰国媒体提前剧透汶颂力压张展硕获得亚运会MVP，如何评价？](http://www.daogukj.com/mkxvsuhn/)
+- [代露娃发烧被妈妈说别人能行你咋不行](http://www.daogukj.com/9044973)
+- [莫雷加德说樊振东迷人且富有体育精神](http://www.daogukj.com/6197852)
+- [日本197人专案组连夜抓捕驻日美士兵](http://www.daogukj.com/ryrqoiii/)
+- [有用版新植物：空调寒冰](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
+- [李勒优 接受一切事与愿违](http://www.play.hengshemaoyi.cn/kongbu/7063878.htm)
+- [2027 年泰晤士大学排名出炉，清华首次超越欧洲大陆所有高校，有哪些信息值得关注？](http://www.movie.hkepx.cn/movie/2552102.htm)
+- [莫雷加德感谢王楚钦](http://www.movie.hkepx.cn/xiju/2129564.htm)
+- [亚运银牌 回家也得掰苞米](http://www.daogukj.com/1731517)
+- [【剧情】终极一班4（2016）01【曾沛慈 / 罗宏正】](http://www.daogukj.com/0178251)
+- [“这将是一场漫长的别离，在你再次见到我之前.”【Never see me again】【遗忘の小曲】](http://www.movie.hkepx.cn/movie/2491274.htm)
+- [【抢先版】刑满释放遇女友，我被哄骗踏入缅北炼狱！！！](http://www.daogukj.com/1710555)
+- [亚运会闭幕式](http://www.daogukj.com/iqnxgakx/)
+- [冷空气来袭 多地气温将创新低](http://www.daogukj.com/evhpdqcv/)
+- [全国客流持续高位运行](http://www.movie.hkepx.cn/movie/9669872.htm)
+- [如何看待深圳一车主连续两次占用应急车道，被按深圳特区法规罚 6000 元？你支持全国推广吗？](http://www.play.hengshemaoyi.cn/xiju/7739320.htm)
+- [现在再看，这些话全都是作者对妹妹的思念](http://www.movie.hkepx.cn/xiju/6624711.htm)
+- [今年亚运会哪一场比赛最让你热血沸腾？](http://www.movie.hkepx.cn/movie/0041132.htm)
+- [《山歌万里》音乐会深圳站落幕](http://www.movie.hkepx.cn/xiju/9486629.htm)
+- [民进党危险驱离大陆渔船 媒体发声](http://www.movie.hkepx.cn/movie/9796335.htm)
+- [你管这叫留守老人？](http://www.daogukj.com/0823826)
+- [饭后腹痛难忍？可能是它在求救](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
+- [中国健儿追梦之路永不停歇](http://www.movie.hkepx.cn/movie/5397309.htm)
+- [国庆出行警惕票务诈骗陷阱](http://www.daogukj.com/0899815)
+- [景区文创陷入「冤种三件套」，从护手霜到冰箱贴，为啥文创越来越同质化？怎样的景区文创才能让你愿意买单？](http://www.play.hengshemaoyi.cn/xiju/2828553.htm)
+- [《大明王朝1566》里「改稻为桑」这么一个虚构出来的议题，本来解决起来很简单，怎么就搞得这么复杂？](http://www.daogukj.com/cachqmkl/)
 
 </details>
 
 ## 原始来源
 
-- [拉马努金圆周率公式的原理是什么？](https://www.zhihu.com/question/26427252)
+- [如何评价上海一音乐教师赴泰后失联多日，手机 IP 曾显示在缅甸？目前情况如何？](https://www.zhihu.com/question/2089658031193773369)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9073be9f29f064fdb51e -->
+<!-- content-fingerprint: 67e9d8ef9d0982b870e9 -->
