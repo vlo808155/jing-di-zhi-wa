@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 冲绳知事谈驻日美军杀人案多次发笑
+# 一位数学家如何证明自己没有使用AI做论文？
 
-> 来源：今日头条热榜 · 排名：第 19 位 · 热度：5399026 · 更新：2026-10-06T01:05:04+08:00
+> 来源：知乎热榜 · 排名：第 19 位 · 热度：58 万热度 · 分类：问答 · 更新：2026-10-06T07:07:48+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“冲绳知事谈驻日美军杀人案多次发笑”位列第 19 位，公开热度指标为 5399026。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“一位数学家如何证明自己没有使用AI做论文？”位列第 19 位，公开热度指标为 58 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：应该没法自证吧？
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [你对于 2026 年诺贝尔物理学奖的预测是什么？](gui-fu-shen-gong.md)
-- [【完整版】纪录片《缅北电诈覆灭纪实》第一集《利剑出鞘》](jin-shang-tian-hua.md)
-- [老君山1元午餐火了](hua-long-dian-jing.md)
-- [中国警方缅北战火下挖出同胞遗体](miao-bi-sheng-hua.md)
+- [以前真是白活了](gui-fu-shen-gong.md)
+- [人在东北澡堂 没有AI的一天](jin-shang-tian-hua.md)
+- [缅甸电诈园区或卷土重来](hua-long-dian-jing.md)
+- [美日导弹将部署与那国岛距台110公里](miao-bi-sheng-hua.md)
 
 ## 站内推荐
 
 - [放假期间 这7种照片建议别发朋友圈](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [游客下地割出9000碗米饭](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [缅北电诈园区枪决底层人员](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [郑合惠子：不强行共情杜翠雀的恶](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [中国航协：乘务员人格尊严不容践踏](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [代露娃不被同情的原因](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [参加过的最混乱婚礼](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [缅北电诈头目家中钱多到发霉](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [武侠游戏里“朝廷”永远不参与江湖纷争，是为了省工作量，还是因为一旦入场整个游戏逻辑就会崩塌？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [人在东北澡堂 没有AI的一天](http://www.movie.hkepx.cn/movie/3926125.htm)
-- [如何看待「绿灯军团」播出后引发的粉丝认为其不还原漫画的争议？如何看待漫改影视在还原原作方面的问题？](http://www.daogukj.com/jbrqqhbh/)
-- [台媒：解放军17艘船舰位台海周边活动](http://www.daogukj.com/6283106)
-- [在大银幕看《生化危机：爆发夜》感受如何？](http://www.play.hengshemaoyi.cn/xiju/3501535.htm)
-- [大学生挑战国庆7天一个人爆改包浆宿舍](http://www.daogukj.com/tfcvjhpk/)
-- [小孩菜实力排行](http://www.daogukj.com/4841868)
-- [刘亦菲 掉代言](http://www.play.hengshemaoyi.cn/kongbu/6429820.htm)
+- [李勒优现在正在拼豆店打工](http://www.movie.hkepx.cn/movie/3926125.htm)
+- [怎么评价《蜗居》里小贝不肯借6万全部存款给海萍买房的行为？](http://www.daogukj.com/jbrqqhbh/)
+- [连续抛硬币出了十次正面，第十一次选反面真的更聪明吗？](http://www.daogukj.com/6283106)
+- [印度军事这次支棱起来了](http://www.play.hengshemaoyi.cn/xiju/3501535.htm)
+- [【抢先看】重回2002，永不空军的鱼竿被军方收编？军方进仓库一看：激光炮手电、隐身涂层、全球降雨弹……你管这叫鱼竿？](http://www.daogukj.com/tfcvjhpk/)
+- [游客下地割出9000碗米饭](http://www.daogukj.com/4841868)
+- [金价大跌后国庆上海金店排长队](http://www.play.hengshemaoyi.cn/kongbu/6429820.htm)
 - [中国空心光纤网速更快了](http://www.daogukj.com/jehuxdgs/)
-- [公交国有化改革 谁来托底](http://www.movie.hkepx.cn/xiju/1384580.htm)
-- [曝腾讯退了几部大剧](http://www.daogukj.com/qyeqjnqv/)
-- [山东一景区推1元大锅菜配馒头](http://www.movie.hkepx.cn/movie/7212048.htm)
-- [广州街唱《万疆》唱到一半，李玉刚本人来了？！](http://www.movie.hkepx.cn/xiju/5780029.htm)
-- [被执行死刑的巫鸿明、白应苍出镜](http://www.daogukj.com/efezhgld/)
-- [《AIZO》司凤版😍乙骨听完整个人都通透了，轻松新宿一串二【AI音乐】](http://www.play.hengshemaoyi.cn/kongbu/8328027.htm)
-- [全 站 最 烧 心 版 本！！！](http://www.movie.hkepx.cn/xiju/5360773.htm)
-- [你吃饭老跟我闺蜜互动什么呀？](http://www.movie.hkepx.cn/movie/9566975.htm)
-- [看这个视频我不烧心！](http://www.daogukj.com/8649041)
-- [肖战全世界正数第一严谨之人](http://www.daogukj.com/zvuykujr/)
-- [孙颖莎重返世排第一后迎首胜](http://www.daogukj.com/smataala/)
-- [各位厨神，豆腐有哪些简单易学的做法吗？](http://www.daogukj.com/mzqlfhhq/)
-- [谭松韵面相都变了](http://www.play.hengshemaoyi.cn/kongbu/8184754.htm)
-- [你对于 2026 年诺贝尔物理学奖的预测是什么？](http://www.movie.hkepx.cn/movie/8042143.htm)
-- [为什么别人的裤子穿的就是比你好看？](http://www.play.hengshemaoyi.cn/xiju/7145463.htm)
+- [建议大家买房一定要远离公园](http://www.movie.hkepx.cn/xiju/1384580.htm)
+- [三千的工资愣是存了80万](http://www.daogukj.com/qyeqjnqv/)
+- [江苏一公园多只鳄鱼被绑嘴 官方回应](http://www.movie.hkepx.cn/movie/7212048.htm)
+- [最想结婚的年轻人扎堆去网红景区领证](http://www.movie.hkepx.cn/xiju/5780029.htm)
+- [水刚咽下去，口渴怎么就缓解了？身体从哪里知道我喝水了？](http://www.daogukj.com/efezhgld/)
+- [《我上哪给你整假的》](http://www.play.hengshemaoyi.cn/kongbu/8328027.htm)
+- [游客免费住宿舍学生同意了吗](http://www.movie.hkepx.cn/xiju/5360773.htm)
+- [为什么仅靠储蓄难以实现财富积累？](http://www.movie.hkepx.cn/movie/9566975.htm)
+- [男子收到短信吓懵：欠费16.1亿元](http://www.daogukj.com/8649041)
+- [大兴安岭的秋看一眼就醉了](http://www.daogukj.com/zvuykujr/)
+- [国安部通报境外组织借医疗检测非法采血样，曾有超10万份孕妇血样被偷运出境，会对生物安全产生哪些影响？](http://www.daogukj.com/smataala/)
+- [食人魔王、内战、石油，乌干达百年国运，怎么比小说还离谱【东非04｜乌干达】](http://www.daogukj.com/mzqlfhhq/)
+- [年轻人开始不买景区冤种三件套了](http://www.play.hengshemaoyi.cn/kongbu/8184754.htm)
+- [以前真是白活了](http://www.movie.hkepx.cn/movie/8042143.htm)
+- [【哥布林故事总集篇】愿你也能像哥布林一样，开启逆袭翻盘的旅途](http://www.play.hengshemaoyi.cn/xiju/7145463.htm)
 - [“黄金睡眠时长”出炉](http://www.play.hengshemaoyi.cn/kongbu/4548535.htm)
-- [张居正 胡歌](http://www.daogukj.com/0313251)
-- [如何评价陈飞宇在电影《神探之痕迹》中的表现？](http://www.play.hengshemaoyi.cn/kongbu/0820222.htm)
-- [水刚咽下去，口渴怎么就缓解了？身体从哪里知道我喝水了？](http://www.daogukj.com/btolggbq/)
-- [【完整版】纪录片《缅北电诈覆灭纪实》第一集《利剑出鞘》](http://www.play.hengshemaoyi.cn/xiju/2703241.htm)
-- [夏果新片《山鸟》](http://www.play.hengshemaoyi.cn/xiju/1475778.htm)
-- [建议大家买房一定要远离公园](http://www.play.hengshemaoyi.cn/xiju/4475779.htm)
-- [耐克股价年内跌幅近 50%且计划裁员重组，其市场表现缘何急转直下？](http://www.play.hengshemaoyi.cn/xiju/3969235.htm)
-- [缅北电诈头目家中钱多到发霉](http://www.play.hengshemaoyi.cn/kongbu/1797022.htm)
-- [医生辟谣高铁座椅或为HPV感染重灾区](http://www.movie.hkepx.cn/xiju/9886322.htm)
-- [巴黎现麻辣烫店：人均150排队半小时](http://www.play.hengshemaoyi.cn/xiju/1914744.htm)
-- [金价大跌后国庆上海金店排长队](http://www.movie.hkepx.cn/movie/2301491.htm)
-- [巨型“充电宝”驶进多地服务区](http://www.play.hengshemaoyi.cn/xiju/2353249.htm)
-- [为什么孩子明明知道做错了事，可被指出错误时第一反应不是认错，而是立刻反驳、辩解，甚至顶嘴？](http://www.daogukj.com/fownzino/)
-- [谁在制造让中产上瘾的纸片](http://www.play.hengshemaoyi.cn/xiju/3652466.htm)
-- [中国航协：乘务员人格尊严不容践踏](http://www.daogukj.com/7447842)
+- [超10万份孕妇血样被偷运出境](http://www.daogukj.com/0313251)
+- [医生辟谣高铁座椅或为HPV感染重灾区](http://www.play.hengshemaoyi.cn/kongbu/0820222.htm)
+- [老外动作过于热情女特警礼貌拒绝](http://www.daogukj.com/btolggbq/)
+- [人在东北澡堂 没有AI的一天](http://www.play.hengshemaoyi.cn/xiju/2703241.htm)
+- [七龙珠沙鲁篇中最后决战悟空和沙鲁究竟谁更胜一筹？](http://www.play.hengshemaoyi.cn/xiju/1475778.htm)
+- [工人给乐山大佛掏耳朵鼻孔系AI生成](http://www.play.hengshemaoyi.cn/xiju/4475779.htm)
+- [惊惊惊惊惊惊惊惊了](http://www.play.hengshemaoyi.cn/xiju/3969235.htm)
+- [2026 年巴西总统选举首轮投票无人胜出，将进行第二轮角逐，目前的形势如何？](http://www.play.hengshemaoyi.cn/kongbu/1797022.htm)
+- [刘亦菲 掉代言](http://www.movie.hkepx.cn/xiju/9886322.htm)
+- [谭松韵面相都变了](http://www.play.hengshemaoyi.cn/xiju/1914744.htm)
+- [第一批返程的“大聪明”又失算了](http://www.movie.hkepx.cn/movie/2301491.htm)
+- [公交国有化改革 谁来托底](http://www.play.hengshemaoyi.cn/xiju/2353249.htm)
+- [为何日本的铁轨坚持不和世界统一？一直用窄轨，有什么好处？](http://www.daogukj.com/fownzino/)
+- [中国警方缅北战火下挖出同胞遗体](http://www.play.hengshemaoyi.cn/xiju/3652466.htm)
+- [武侠游戏里“朝廷”永远不参与江湖纷争，是为了省工作量，还是因为一旦入场整个游戏逻辑就会崩塌？](http://www.daogukj.com/7447842)
 - [放假期间 这7种照片建议别发朋友圈](http://www.daogukj.com/kzpjmnze/)
-- [【哥布林故事总集篇】愿你也能像哥布林一样，开启逆袭翻盘的旅途](http://www.play.hengshemaoyi.cn/kongbu/4160936.htm)
-- [⚡️黄仁勋 世界巡演⚡️【AI MV大赛】](http://www.daogukj.com/5391271)
-- [医生辟谣「高铁座椅或为HPV感染重灾区」，这个说法怎么来的？坐高铁有必要使用一次性座套吗？](http://www.play.hengshemaoyi.cn/xiju/1037193.htm)
-- [代露娃持续掉粉](http://www.daogukj.com/4166842)
-- [孙心然0比2高芙](http://www.movie.hkepx.cn/xiju/6638941.htm)
-- [明军有大炮，后金没有，为什么萨尔浒之战明军还输了？](http://www.play.hengshemaoyi.cn/kongbu/4151588.htm)
-- [王冰冰现场观看郑钦文比赛](http://www.daogukj.com/jguwcjlw/)
+- [这种鞋可能正在毁掉你的脚](http://www.play.hengshemaoyi.cn/kongbu/4160936.htm)
+- [华为与高通达成协议](http://www.daogukj.com/5391271)
+- [耐克股价年内跌幅近 50%且计划裁员重组，其市场表现缘何急转直下？](http://www.play.hengshemaoyi.cn/xiju/1037193.htm)
+- [王一博CHANEL大秀出图](http://www.daogukj.com/4166842)
+- [央视迎来两位新主播](http://www.movie.hkepx.cn/xiju/6638941.htm)
+- [为什么孩子明明知道做错了事，可被指出错误时第一反应不是认错，而是立刻反驳、辩解，甚至顶嘴？](http://www.play.hengshemaoyi.cn/kongbu/4151588.htm)
+- [肖战神之十九秒](http://www.daogukj.com/jguwcjlw/)
 - [国庆假期返程 这份安全提示请收好](http://www.movie.hkepx.cn/xiju/6322184.htm)
-- [孙颖莎开始整顿乒乓球观赛礼仪](http://www.play.hengshemaoyi.cn/xiju/2530472.htm)
-- [孙心然被破发后落泪](http://www.daogukj.com/5202971)
+- [法医确认煲汤内有蔡天凤身体组织](http://www.play.hengshemaoyi.cn/xiju/2530472.htm)
+- [鲍军峰被抓画面曝光](http://www.daogukj.com/5202971)
 
 </details>
 
 ## 原始来源
 
-- [冲绳知事谈驻日美军杀人案多次发笑](https://www.toutiao.com/trending/7692965525126725678/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%221%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227692965525126725678%22%2C%22hot_board_impr_id%22%3A%22202610060105012BA400FDB971F10581FE%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [一位数学家如何证明自己没有使用AI做论文？](https://www.zhihu.com/question/2088882471890859810)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6f826d1bdf5b7748b880 -->
+<!-- content-fingerprint: 1b4c34f9063b399432b9 -->
