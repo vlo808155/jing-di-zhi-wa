@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 惊惊惊惊惊惊惊惊了
+# 国庆前五天平均每天有3亿人次出行
 
-> 来源：哔哩哔哩热门 · 排名：第 17 位 · 热度：1615895 · 分类：搞笑 · 更新：2026-10-06T10:55:43+08:00
+> 来源：今日头条热榜 · 排名：第 17 位 · 热度：9042108 · 更新：2026-10-06T17:45:05+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“惊惊惊惊惊惊惊惊了”位列第 17 位，公开热度指标为 1615895，榜单分类为“搞笑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“国庆前五天平均每天有3亿人次出行”位列第 17 位，公开热度指标为 9042108。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：希望观众朋友们可以喜欢这个系列！ （希望你们喜欢，记得一键三连！）
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `搞笑`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [中国警方缅北战火下挖出同胞遗体](hai-kuo-tian-kong.md)
-- [代露娃不被同情的原因](gao-zhan-yuan-zhu.md)
-- [被执行死刑的巫鸿明、白应苍出镜](xiong-you-cheng-zhu.md)
-- [刘国正谈王楚钦「单核扛重担」，他现在遇到的很多难题是之前几代主力都没有经历过的，你认同吗？](yun-chou-wei-wo.md)
+- [媒体称破铜烂铁、废纸壳、废塑料可能正在创造巨量财富，这是真的吗？为啥「破烂」正在变成黄金赛道？](hai-kuo-tian-kong.md)
+- [有用版新植物：情敌双发](gao-zhan-yuan-zhu.md)
+- [今年十一县城没人吃喜酒了](xiong-you-cheng-zhu.md)
+- [ZUIAN两次面签未通过](yun-chou-wei-wo.md)
 
 ## 站内推荐
 
-- [流动的中国活力拉满](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [胡塞武装的神秘领导人是谁](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [医生辟谣高铁座椅或为HPV感染重灾区](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [当我把verity变成双重人格！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [《大回忆时代》战斗篇](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [国庆假期返程9个小贴士请收好](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [年轻人婚礼 不早起不请司仪不办仪式](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [“稻城亚丁景区封闭”系谣言](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [在华严寺感觉被盯上 抬头是只乌萨奇](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [如何看待当下的大学生就业？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [明珍珍笑着讲述杀人埋尸](http://www.play.hengshemaoyi.cn/xiju/2682331.htm)
-- [明学昌畏罪自杀身亡照片曝光](http://www.movie.hkepx.cn/movie/3552953.htm)
-- [邓紫棋演唱会刷新一项世界纪录](http://www.movie.hkepx.cn/xiju/5501331.htm)
-- [国庆假期出境打针？跨境医疗的生意，路子越来越野了](http://www.daogukj.com/5865714)
-- [小孩菜实力排行](http://www.movie.hkepx.cn/xiju/6974026.htm)
-- [AI显示用户假期一天增重1.91万斤](http://www.movie.hkepx.cn/movie/6932309.htm)
-- [OpenAI 启动 28 天计划日更 Codex 与 Work，将带来哪些改变？](http://www.play.hengshemaoyi.cn/xiju/6279680.htm)
-- [医生辟谣高铁座椅或为HPV感染重灾区](http://www.movie.hkepx.cn/movie/2684858.htm)
-- [食人魔王、内战、石油，乌干达百年国运，怎么比小说还离谱【东非04｜乌干达】](http://www.daogukj.com/4259523)
-- [为什么有的人好像什么都知道但现实中却一事无成？](http://www.daogukj.com/qgjsruwo/)
-- [黄仁勋世界巡演](http://www.play.hengshemaoyi.cn/kongbu/0099761.htm)
-- [如何看待小沈阳夫妇电影《什么意思夫妇》逆袭成国庆档票房黑马？你预测之后表现会怎样？](http://www.play.hengshemaoyi.cn/kongbu/2800065.htm)
-- [这期有绷得住的风险吗？](http://www.movie.hkepx.cn/xiju/7938027.htm)
-- [王心凌 你没报批不能上来](http://www.daogukj.com/yxmhbgmj/)
-- [游客住学生宿舍 教育局：离开还打扫了](http://www.daogukj.com/ysjajnjj/)
-- [《大回忆时代》战斗篇](http://www.daogukj.com/4118538)
-- [【春物语】我的婚后生活果然有问题 第1话：于是，结婚半年的两人还没叫过对方的名字。](http://www.play.hengshemaoyi.cn/kongbu/8139573.htm)
-- [10万民警抵达中缅边境参与专项行动](http://www.daogukj.com/bgjdqoal/)
-- [网友称泰山躲雨80元一小时](http://www.play.hengshemaoyi.cn/kongbu/1399796.htm)
-- [《我上哪给你整假的》](http://www.movie.hkepx.cn/xiju/1312398.htm)
-- [工人给乐山大佛掏耳朵鼻孔系AI生成](http://www.daogukj.com/hqgapaxs/)
-- [夏果新片《山鸟》](http://www.play.hengshemaoyi.cn/xiju/5373978.htm)
-- [回老家掰苞米感觉世界割裂](http://www.daogukj.com/1191954)
-- [陈梦现身WTT中国大满贯观看比赛](http://www.daogukj.com/6834210)
-- [超级富二代3D打印手枪暗杀万亿总裁！淡定吃汉堡等待美警刑侦全明星！](http://www.movie.hkepx.cn/movie/6540828.htm)
-- [普宁教师岗考生称因HIV体检不合格被教育局劝签自愿放弃聘用，这合理吗？日常教学接触会传染到学生吗？](http://www.movie.hkepx.cn/movie/7210597.htm)
-- [为什么孩子明明知道做错了事，可被指出错误时第一反应不是认错，而是立刻反驳、辩解，甚至顶嘴？](http://www.movie.hkepx.cn/xiju/0123432.htm)
-- [一批大国重器与重点工程迎来新突破](http://www.play.hengshemaoyi.cn/kongbu/3128174.htm)
-- [真实事件不改编](http://www.daogukj.com/7181360)
-- [诺奖得主论文曾因看不出实际用途被拒](http://www.daogukj.com/6926357)
-- [黄子韬直播回应王鹤棣为人如何](http://www.play.hengshemaoyi.cn/kongbu/9049497.htm)
-- [雨中爬岳麓山遇“蘑菇大军”](http://www.daogukj.com/eiphdnwm/)
-- [被 解 救 的 杰 戈](http://www.movie.hkepx.cn/xiju/7401130.htm)
-- [网红慧慧饱饱账号被禁止关注，客服称该用户因违反社区规范被处置，后账号恢复，未回应异常原因，具体咋回事？](http://www.movie.hkepx.cn/movie/7110434.htm)
-- [区委书记逐一核查值班人员是否在岗](http://www.play.hengshemaoyi.cn/kongbu/4490690.htm)
-- [重庆盗矿案件7人死亡](http://www.movie.hkepx.cn/movie/6518386.htm)
-- [缅北电诈主犯杀陌生人祭天](http://www.daogukj.com/8067678)
-- [代露娃不被同情的原因](http://www.play.hengshemaoyi.cn/kongbu/6649001.htm)
-- [国庆假期高速收费站区域事故多发](http://www.daogukj.com/htblbqcb/)
-- [【哥布林故事总集篇】愿你也能像哥布林一样，开启逆袭翻盘的旅途](http://www.play.hengshemaoyi.cn/xiju/4658280.htm)
-- [缅北电诈主犯随机杀人祭天](http://www.movie.hkepx.cn/xiju/0000676.htm)
-- [两岸同胞共议统一才是台湾前途](http://www.play.hengshemaoyi.cn/kongbu/4700540.htm)
-- [李荣浩回复邓紫棋](http://www.movie.hkepx.cn/xiju/2723766.htm)
-- [中方曾三次约见缅北四大家族代表](http://www.daogukj.com/sxyjxhms/)
-- [英航一客机7分钟急坠8230米](http://www.play.hengshemaoyi.cn/kongbu/7497786.htm)
-- [明珍珍临刑前画面曝光](http://www.play.hengshemaoyi.cn/kongbu/0039607.htm)
-- [媒体：孙颖莎学会耐心与伤病共处](http://www.daogukj.com/9799008)
-- [C罗还能够回到葡萄牙国家队吗？](http://www.daogukj.com/uavkxthj/)
-- [敢为人先，向前走，心就属于自己](http://www.play.hengshemaoyi.cn/xiju/1469979.htm)
-- [中方工作组曾 3 次约见果敢「四大家族」代表但收效甚微，背后的深层原因是什么？](http://www.play.hengshemaoyi.cn/kongbu/2837480.htm)
+- [专家建议把存量财富拿出给居民消费](http://www.play.hengshemaoyi.cn/xiju/2682331.htm)
+- [缅北“血手印”的主人还活着](http://www.movie.hkepx.cn/movie/3552953.htm)
+- [第一批返程的“大聪明”又失算了](http://www.movie.hkepx.cn/xiju/5501331.htm)
+- [乌军一夜650架无人机袭莫斯科地区](http://www.daogukj.com/5865714)
+- [曝邓紫棋已低调完婚](http://www.movie.hkepx.cn/xiju/6974026.htm)
+- [网红慧慧饱饱账号被禁止关注，客服称该用户因违反社区规范被处置，后账号恢复，未回应异常原因，具体咋回事？](http://www.movie.hkepx.cn/movie/6932309.htm)
+- [何超盈孕期体重220斤](http://www.play.hengshemaoyi.cn/xiju/6279680.htm)
+- [“稻城亚丁景区封闭”系谣言](http://www.movie.hkepx.cn/movie/2684858.htm)
+- [鹳雀楼签名墙被陕西游客签到黢黑](http://www.daogukj.com/4259523)
+- [医学八年制学了一半，突然不喜欢医学了，怎么办？](http://www.daogukj.com/qgjsruwo/)
+- [曝邓紫棋结婚](http://www.play.hengshemaoyi.cn/kongbu/0099761.htm)
+- [兰香如故不是亲生终究不一样](http://www.play.hengshemaoyi.cn/kongbu/2800065.htm)
+- [崔晋妈说李勒优之前很单纯](http://www.movie.hkepx.cn/xiju/7938027.htm)
+- [纪录片《缅北电诈覆灭纪实》首播，有哪些抓捕细节和内幕值得关注？](http://www.daogukj.com/yxmhbgmj/)
+- [媒体曝多项研究证实最佳睡眠时长为7小时，这一结论的依据是啥？为什么很多网友觉得黄金睡眠时长一直在缩水？](http://www.daogukj.com/ysjajnjj/)
+- [如何看待当下的大学生就业？](http://www.daogukj.com/4118538)
+- [缅北电诈主犯随机杀人祭天](http://www.play.hengshemaoyi.cn/kongbu/8139573.htm)
+- [俄军打击乌主要城市数据中心](http://www.daogukj.com/bgjdqoal/)
+- [四分钟看完华强买瓜【AI MV大赛】](http://www.play.hengshemaoyi.cn/kongbu/1399796.htm)
+- [如何看待TES上单zuian签证两次被拒，369紧急成为TES S16首发上单？](http://www.movie.hkepx.cn/xiju/1312398.htm)
+- [国庆假期已过半，这个假期你们开心吗？](http://www.daogukj.com/hqgapaxs/)
+- [白应苍临刑前称随口1个资金盘就20亿](http://www.play.hengshemaoyi.cn/xiju/5373978.htm)
+- [小孩菜实力排行](http://www.daogukj.com/1191954)
+- [《明日方舟》干员「克莱门莎」技能展示PV](http://www.daogukj.com/6834210)
+- [缅北明家犯罪证据宣读了两个半小时](http://www.movie.hkepx.cn/movie/6540828.htm)
+- [ZUIAN美签被卡原因](http://www.movie.hkepx.cn/movie/7210597.htm)
+- [左航穿越南国旗裤子引争议](http://www.movie.hkepx.cn/xiju/0123432.htm)
+- [国庆假期返程天气指南](http://www.play.hengshemaoyi.cn/kongbu/3128174.htm)
+- [Lisa关车门这下](http://www.daogukj.com/7181360)
+- [真实事件不改编](http://www.daogukj.com/6926357)
+- [这期有绷得住的风险吗？](http://www.play.hengshemaoyi.cn/kongbu/9049497.htm)
+- [如何看待小沈阳夫妇电影《什么意思夫妇》逆袭成国庆档票房黑马？你预测之后表现会怎样？](http://www.daogukj.com/eiphdnwm/)
+- [媒体曝腾讯 70 亿美元租用甲骨文海外算力，此举出于哪些考量？会带来哪些影响？](http://www.movie.hkepx.cn/xiju/7401130.htm)
+- [JDG对战Hero](http://www.movie.hkepx.cn/movie/7110434.htm)
+- [缅北电诈武装用AK47扫射逃跑人员](http://www.play.hengshemaoyi.cn/kongbu/4490690.htm)
+- [藏匿在方块世界下的神秘酒吧？！！「地下酒吧」](http://www.movie.hkepx.cn/movie/6518386.htm)
+- [凡事尽力而为 最是圆满](http://www.daogukj.com/8067678)
+- [有用版新植物：情敌双发](http://www.play.hengshemaoyi.cn/kongbu/6649001.htm)
+- [【哥布林故事总集篇】愿你也能像哥布林一样，开启逆袭翻盘的旅途](http://www.daogukj.com/htblbqcb/)
+- [粤J2888T车主抵达景区喜提专属车位](http://www.play.hengshemaoyi.cn/xiju/4658280.htm)
+- [订单排到2027年！又一行业爆单了](http://www.movie.hkepx.cn/xiju/0000676.htm)
+- [全站首个恰饭对决！百万UP主真会做视频吗？](http://www.play.hengshemaoyi.cn/kongbu/4700540.htm)
+- [平时管孩子多被说太严厉，出游时女儿只黏爸爸、刻意疏远我，很难过，该怎么调整心态？](http://www.movie.hkepx.cn/xiju/2723766.htm)
+- [“哈喽 你这个帽子在景区里不行的”](http://www.daogukj.com/sxyjxhms/)
+- [王一博说期待回酒店卸妆](http://www.play.hengshemaoyi.cn/kongbu/7497786.htm)
+- [韩国国防部回应男足免兵役争议](http://www.play.hengshemaoyi.cn/kongbu/0039607.htm)
+- [央视曝光网红打卡地“牛奶湖”](http://www.daogukj.com/9799008)
+- [缅北魏家接班人自曝布局军政两界](http://www.daogukj.com/uavkxthj/)
+- [余承东详解华为手机“拼好网”](http://www.play.hengshemaoyi.cn/xiju/1469979.htm)
+- [如何看待教育部要求辅导员与学生同吃同住同生活、思政工作下沉至学生私生活？](http://www.play.hengshemaoyi.cn/kongbu/2837480.htm)
 
 </details>
 
 ## 原始来源
 
-- [惊惊惊惊惊惊惊惊了](https://b23.tv/BV1BJao6BE71)
+- [国庆前五天平均每天有3亿人次出行](https://www.toutiao.com/trending/7692711718432047131/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227692711718432047131%22%2C%22hot_board_impr_id%22%3A%22202610061745037F501892BB7E6BC1F98A%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 555b2471ae8137a7252d -->
+<!-- content-fingerprint: 56950a72098759457b5c -->
