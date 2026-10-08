@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 全国社保基金二十五年赚两点三万亿
+# 为什么药物要分“左右”
 
-> 来源：微博热搜 · 排名：第 20 位 · 热度：212046 · 分类：财经 · 更新：2026-10-08T07:46:06+08:00
+> 来源：今日头条热榜 · 排名：第 20 位 · 热度：3183370 · 更新：2026-10-08T11:00:22+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“全国社保基金二十五年赚两点三万亿”位列第 20 位，公开热度指标为 212046，榜单分类为“财经”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“为什么药物要分“左右””位列第 20 位，公开热度指标为 3183370。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `财经`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [车主花350元将车拖20多米到加油站](sheng-dong-huo-po.md)
-- [为什么网坛三巨头费德勒、纳达尔都退役了，徳约科维奇39岁了还不退役呢？](xu-xu-ru-sheng.md)
-- [虽败犹荣](huo-ling-huo-xian.md)
-- [便宜但可能致癌的小东西](you-sheng-you-se.md)
+- [在高速上龟速行驶的车，司机知道自己在龟速驾驶影响到后面排队嘛，他们怎么想的？](sheng-dong-huo-po.md)
+- [我锻造了一把39亿的绝世宝剑！](xu-xu-ru-sheng.md)
+- [9个舅舅染彩发给侄女婚礼撑腰](huo-ling-huo-xian.md)
+- [寒露时节注意心脑血管和呼吸道防护](you-sheng-you-se.md)
 
 ## 站内推荐
 
-- [【春物语】我的婚后生活果然有问题 第3话：雪之下雪乃说，要做就正式地做。](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [【科学史】那些年，科学家用光遗传做的鬼畜实验……](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [郑钦文晋级中网八强](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [时代峰峻超likeTOP20](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [缅北地图密密麻麻全是电诈窝点](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [3台尊界V800 刹车踏板支架断裂](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
+- [央视曝光当晚 海南省委书记部署整改](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [尊界V800测试中刹车踏板支架断裂](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [郑钦文明日迎战斯维托丽娜](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [寒露：丹枫叠彩 秋光如饴](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [警惕这个“无声的杀手”](http://www.play.hengshemaoyi.cn/xiju/5042626.htm)
-- [曾经红极一时的春都火腿肠是怎样走向没落的？](http://www.play.hengshemaoyi.cn/xiju/7956106.htm)
-- [中国新能源跑出四个“全球第一”](http://www.movie.hkepx.cn/movie/4841456.htm)
-- [今夜股债双杀](http://www.movie.hkepx.cn/xiju/7247523.htm)
-- [年轻人为何觉得景区越来越没意思了](http://www.movie.hkepx.cn/movie/5948248.htm)
-- [孙颖莎爆冷1-3不敌泰国选手](http://www.daogukj.com/jeqkpawe/)
-- [58岁主妇假期在景区当兼职NPC](http://www.daogukj.com/4687345)
+- [为什么电诈园区会扎根缅北](http://www.play.hengshemaoyi.cn/xiju/5042626.htm)
+- [吃了不烧心是什么梗【梗指南】](http://www.play.hengshemaoyi.cn/xiju/7956106.htm)
+- [红军树下新事多](http://www.movie.hkepx.cn/movie/4841456.htm)
+- [寒露时节养生注意这5点](http://www.movie.hkepx.cn/xiju/7247523.htm)
+- [C罗公开发声致歉](http://www.movie.hkepx.cn/movie/5948248.htm)
+- [后备箱装十箱矿泉水被罚？专家回应](http://www.daogukj.com/jeqkpawe/)
+- [张韶涵演唱会砸烂苹果](http://www.daogukj.com/4687345)
 - [在大山支教 学校宿舍水太小又冷，已经半个月没洗澡了，扛不住了抓住假期的尾巴出山进城开房洗澡 买菜 拿物资..](http://www.daogukj.com/vpnhlcyn/)
-- [对手谈孙颖莎比赛状态](http://www.movie.hkepx.cn/movie/1315163.htm)
-- [超慢跑让你轻松“暴击”内脏脂肪](http://www.daogukj.com/rwppwnza/)
-- [演员王星4天被卖3次](http://www.play.hengshemaoyi.cn/kongbu/1523322.htm)
-- [泰山辟谣网传躲雨80元1小时](http://www.daogukj.com/2194242)
-- [曝王晓慧有孩子了](http://www.play.hengshemaoyi.cn/xiju/4017132.htm)
-- [国庆假期上海售楼经理忙到脚肿](http://www.movie.hkepx.cn/xiju/3408542.htm)
-- [九个舅舅染不同发色参加侄女婚礼](http://www.daogukj.com/awgjlldl/)
-- [飞天奖](http://www.play.hengshemaoyi.cn/xiju/6207562.htm)
-- [【春物语】我的婚后生活果然有问题 第3话：雪之下雪乃说，要做就正式地做。](http://www.daogukj.com/mrofapbq/)
-- [演员王星发文感恩祖国](http://www.play.hengshemaoyi.cn/kongbu/5453073.htm)
-- [孙颖莎爆冷止步32强](http://www.play.hengshemaoyi.cn/xiju/6087046.htm)
-- [吴奇隆被曝因国庆手举国旗遭台机构取消活动，本人晒游览天坛视频，称不赚钱也是这个立场，怎样看待他的做法？](http://www.movie.hkepx.cn/movie/8965197.htm)
-- [“幸好你玩游戏，明白这个视频的意义。”](http://www.play.hengshemaoyi.cn/kongbu/7748359.htm)
-- [特朗普将向马斯克颁发科学成就奖](http://www.movie.hkepx.cn/xiju/0862966.htm)
-- [檀健次卢昱晓 身高差](http://www.play.hengshemaoyi.cn/kongbu/9726074.htm)
-- [缅北地图密密麻麻全是电诈窝点](http://www.movie.hkepx.cn/movie/4830470.htm)
-- [为什么网坛三巨头费德勒、纳达尔都退役了，徳约科维奇39岁了还不退役呢？](http://www.play.hengshemaoyi.cn/xiju/3660611.htm)
-- [演员王星案牵出跨境人口贩卖集团，其4天被卖3次，打击跨境犯罪有哪些难点？我们要提高哪些防骗意识？](http://www.daogukj.com/7984737)
-- [日本前外相：中日关系恶化责任在日本](http://www.movie.hkepx.cn/movie/5738447.htm)
-- [今日寒露](http://www.daogukj.com/cjltxhnp/)
-- [央视点名过度依赖辅助驾驶现象](http://www.play.hengshemaoyi.cn/kongbu/7175788.htm)
-- [全球纯燃油车销量占比首次跌破 50%，将对全球汽车产业链格局带来哪些影响？](http://www.movie.hkepx.cn/movie/4124367.htm)
-- [如何看待华为余承东官宣鸿蒙出海：正在考虑未来逐步将 HarmonyOS 推向全球市场，你怎么看？](http://www.play.hengshemaoyi.cn/xiju/7951635.htm)
-- [俄官方称鼠疫研究机构一名员工确诊「不明原因肺炎」，具体情况如何？扩散风险有多大？](http://www.play.hengshemaoyi.cn/xiju/9311263.htm)
-- [老师太显小](http://www.daogukj.com/qhynwuoo/)
-- [中国乒协发布声明，将推动建立赛场禁入名单制度，能有效治理粉丝乱象吗？](http://www.play.hengshemaoyi.cn/xiju/2836720.htm)
-- [时隔14年进口片再夺国庆档票房日冠](http://www.daogukj.com/0046089)
-- [柬埔寨太子集团头目陈志押解画面曝光，太子集团以及陈志曾犯下过哪些罪行？接下来他可能面对哪些刑罚？](http://www.play.hengshemaoyi.cn/kongbu/6160337.htm)
-- [【科学史】那些年，科学家用光遗传做的鬼畜实验……](http://www.play.hengshemaoyi.cn/kongbu/7581667.htm)
-- [为什么学校不统一打印作业](http://www.movie.hkepx.cn/movie/1557680.htm)
-- [韩国考虑废除「金牌免兵役」制度，如果真的废除将对韩国职业足球、体育行业带来哪些影响？](http://www.movie.hkepx.cn/movie/5183784.htm)
-- [吴奇隆 不赚钱也是这个立场](http://www.movie.hkepx.cn/xiju/8111897.htm)
-- [为什么每个APP都想追着借钱给你](http://www.play.hengshemaoyi.cn/kongbu/4378701.htm)
-- [白俄罗斯女歌手在缅甸遭拐卖后被杀](http://www.daogukj.com/7904792)
-- [对面牢玩家一整局都在偷塔，怎么把我的活干了](http://www.movie.hkepx.cn/xiju/7283893.htm)
-- [离加油站20米燃油耗尽 车主求助被拒](http://www.daogukj.com/4389315)
-- [时代峰峻超likeTOP20](http://www.movie.hkepx.cn/xiju/0722929.htm)
-- [为什么药物要分“左右手”](http://www.play.hengshemaoyi.cn/kongbu/4443491.htm)
-- [为何清北的牌子在哪儿都能吃得开，唯独学术圈吃不开？](http://www.daogukj.com/4354382)
-- [【PVZ小动画】硬 币 劫 案](http://www.daogukj.com/4226089)
-- [俄罗斯现不明原因肺炎死亡病例](http://www.movie.hkepx.cn/xiju/3342028.htm)
-- [为什么中国厨师做菜加佐料都是少许，适量，而外国却精确到克？](http://www.daogukj.com/jkvkxuzz/)
+- [东北一家人牛大妈扮演者彭玉去世](http://www.movie.hkepx.cn/movie/1315163.htm)
+- [中国警方：缅北电诈死灰复燃也不怕](http://www.daogukj.com/rwppwnza/)
+- [寒露有哪些习俗](http://www.play.hengshemaoyi.cn/kongbu/1523322.htm)
+- [【我在现代当幽差】：赶着去投胎啊！！！！【UP动画】](http://www.daogukj.com/2194242)
+- [新娘九个舅舅染不同颜色头发送嫁](http://www.play.hengshemaoyi.cn/xiju/4017132.htm)
+- [国庆高速免费最后1分钟车主卡点通过](http://www.movie.hkepx.cn/xiju/3408542.htm)
+- [国庆高速免费最后1分钟车主极限卡点](http://www.daogukj.com/awgjlldl/)
+- [演员王星4天被卖3次](http://www.play.hengshemaoyi.cn/xiju/6207562.htm)
+- [3台尊界V800 刹车踏板支架断裂](http://www.daogukj.com/mrofapbq/)
+- [2026 年中网女单第四轮，郑钦文 2-1 力克查拉耶娃，晋级八强，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/5453073.htm)
+- [在泰失联的上海音乐教师已安全回国，具体情况如何？此事有哪些警示意义？](http://www.play.hengshemaoyi.cn/xiju/6087046.htm)
+- [带班主任体验黄毛的一天](http://www.movie.hkepx.cn/movie/8965197.htm)
+- [五角大楼指示美军备战对伊朗军事行动](http://www.play.hengshemaoyi.cn/kongbu/7748359.htm)
+- [带三个姑娘相亲，现场真炸裂，这就是乡村爱情故事吗？](http://www.movie.hkepx.cn/xiju/0862966.htm)
+- [林志玲36岁时和木村拓哉演的日剧](http://www.play.hengshemaoyi.cn/kongbu/9726074.htm)
+- [寒露：丹枫叠彩 秋光如饴](http://www.movie.hkepx.cn/movie/4830470.htm)
+- [我锻造了一把39亿的绝世宝剑！](http://www.play.hengshemaoyi.cn/xiju/3660611.htm)
+- [警方辟谣四川五通桥一处楼房垮掉](http://www.daogukj.com/7984737)
+- [业内：A股10月或迎修复行情](http://www.movie.hkepx.cn/movie/5738447.htm)
+- [羊剃毛前以为要死了](http://www.daogukj.com/cjltxhnp/)
+- [新华社痛批男足 0 比 5 惨败巴勒斯坦「亵渎国脚身份」，暴露出国足哪些深层问题？](http://www.play.hengshemaoyi.cn/kongbu/7175788.htm)
+- [当我用莫奈的眼睛看长白山，才发现那些细节也太惊艳了！](http://www.movie.hkepx.cn/movie/4124367.htm)
+- [全球纯燃油车销量占比首次跌破 50%，将对全球汽车产业链格局带来哪些影响？](http://www.play.hengshemaoyi.cn/xiju/7951635.htm)
+- [缅方从一直通报无中国人死亡到与中方联合成立调查组，缅方的态度转变是从什么时候开始的？受哪些因素驱动？](http://www.play.hengshemaoyi.cn/xiju/9311263.htm)
+- [王星4天被卖3次](http://www.daogukj.com/qhynwuoo/)
+- [河北电商据称把成本压到极致，发1万单倒赔130，利润来自「卖纸壳」，是真的吗？河北电商是怎样一个存在？](http://www.play.hengshemaoyi.cn/xiju/2836720.htm)
+- [九个舅舅染不同发色参加外甥女婚礼](http://www.daogukj.com/0046089)
+- [【完整版】纪录片《缅北电诈覆灭纪实》第三集《共筑天网》](http://www.play.hengshemaoyi.cn/kongbu/6160337.htm)
+- [央视曝光当晚 海南省委书记部署整改](http://www.play.hengshemaoyi.cn/kongbu/7581667.htm)
+- [牛顿和爱因斯坦的后人现在如何了？](http://www.movie.hkepx.cn/movie/1557680.htm)
+- [【EPL表演赛】当CS的最强教练们再次进入服务器](http://www.movie.hkepx.cn/movie/5183784.htm)
+- [古代写字要避皇帝讳，那大家如果不知道皇帝名字又避讳不了，那古人是怎么知道皇帝或者新皇帝名字是啥的？](http://www.movie.hkepx.cn/xiju/8111897.htm)
+- [彭玉去世 曾主演《东北一家人》](http://www.play.hengshemaoyi.cn/kongbu/4378701.htm)
+- [安踏集团的板块也太大了](http://www.daogukj.com/7904792)
+- [【科学史】那些年，科学家用光遗传做的鬼畜实验……](http://www.movie.hkepx.cn/xiju/7283893.htm)
+- [俄罗斯不明病因肺炎事件四种说法](http://www.daogukj.com/4389315)
+- [郑钦文明日迎战斯维托丽娜](http://www.movie.hkepx.cn/xiju/0722929.htm)
+- [女子买房多年得知客厅上方有座坟](http://www.play.hengshemaoyi.cn/kongbu/4443491.htm)
+- [反向旅游 陕西铜川！这次我要把铜川拍透…](http://www.daogukj.com/4354382)
+- [伊朗F-5战机贴脸袭击美军基地](http://www.daogukj.com/4226089)
+- [俄罗斯鼠疫事件](http://www.movie.hkepx.cn/xiju/3342028.htm)
+- [耗时一年，改造善良老人晚年，完整后续来了！](http://www.daogukj.com/jkvkxuzz/)
 
 </details>
 
 ## 原始来源
 
-- [全国社保基金二十五年赚两点三万亿](https://s.weibo.com/weibo?q=%E5%85%A8%E5%9B%BD%E7%A4%BE%E4%BF%9D%E5%9F%BA%E9%87%91%E4%BA%8C%E5%8D%81%E4%BA%94%E5%B9%B4%E8%B5%9A%E4%B8%A4%E7%82%B9%E4%B8%89%E4%B8%87%E4%BA%BF)
+- [为什么药物要分“左右”](https://www.toutiao.com/trending/7693904815239204371/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2213%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227693904815239204371%22%2C%22hot_board_impr_id%22%3A%2220261008110021EEFB052996B84B1CDB35%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: a411b1c098c1b609dc39 -->
+<!-- content-fingerprint: 7ece66c9fa097573ed45 -->

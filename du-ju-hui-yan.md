@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 警惕这个“无声的杀手”
+# 为什么电诈园区会扎根缅北
 
-> 来源：百度热搜 · 排名：第 18 位 · 热度：6090053 · 更新：2026-10-08T07:46:06+08:00
+> 来源：微博热搜 · 排名：第 19 位 · 热度：381420 · 分类：民生新闻 · 更新：2026-10-08T11:00:22+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“警惕这个“无声的杀手””位列第 18 位，公开热度指标为 6090053。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“为什么电诈园区会扎根缅北”位列第 19 位，公开热度指标为 381420，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8日是全国高血压日。在很多人的观念中，“头晕”“头疼”是高血压的很多表现，但实际上高血压是一个“无声的杀手”，其损害往往在出现明显症状前就已悄然发生。最新数据显示，我国18岁及以上成年人群高血压患病率高达31.6%，超半数患者对病情一无所知。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `民生新闻`
 
 ## 相关热点
 
-- [代露娃 谢谢所有骂醒我的人](bie-ju-jiang-xin.md)
-- [演员王星发文感恩祖国](qiao-duo-tian-gong.md)
-- [全球纯燃油车销量占比首次跌破 50%，将对全球汽车产业链格局带来哪些影响？](gui-fu-shen-gong.md)
-- [“幸好你玩游戏，明白这个视频的意义。”](jin-shang-tian-hua.md)
+- [缅北电诈窝点距我口岸仅200米](bie-ju-jiang-xin.md)
+- [2026 年中网女单第四轮，郑钦文 2-1 力克查拉耶娃，晋级八强，如何评价这场比赛？](qiao-duo-tian-gong.md)
+- [当我用莫奈的眼睛看长白山，才发现那些细节也太惊艳了！](gui-fu-shen-gong.md)
+- [五角大楼指示美军备战对伊朗军事行动](jin-shang-tian-hua.md)
 
 ## 站内推荐
 
-- [缅方从一直通报无中国人死亡到与中方联合成立调查组，缅方的态度转变是从什么时候开始的？受哪些因素驱动？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [韩国考虑废除「金牌免兵役」制度，如果真的废除将对韩国职业足球、体育行业带来哪些影响？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [寒露 贴秋膘](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [离加油站20米燃油耗尽 车主求助被拒](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [便宜但可能致癌的小东西](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [韩国考虑废除「金牌免兵役」制度，如果真的废除将对韩国职业足球、体育行业带来哪些影响？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [【EPL表演赛】当CS的最强教练们再次进入服务器](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [女子买房多年才得知客厅上方有座坟](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [俄罗斯不明病因肺炎事件四种说法](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [寒露时节注意心脑血管和呼吸道防护](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [央视点名过度依赖辅助驾驶现象](http://www.daogukj.com/7203067)
+- [新华社痛批男足 0 比 5 惨败巴勒斯坦「亵渎国脚身份」，暴露出国足哪些深层问题？](http://www.daogukj.com/7203067)
 - [《每日邮报》报道俄罗斯鼠疫出现第二例死亡患者，美督促在俄公民立即离境接受14天隔离，如何看待此事？](http://www.daogukj.com/gowgjlqg/)
-- [李玉刚宣布《万疆》永久免费授权](http://www.daogukj.com/7329084)
-- [【完整版】纪录片《缅北电诈覆灭纪实》第三集《共筑天网》](http://www.daogukj.com/tafakdgo/)
-- [演员王星4天被卖3次](http://www.play.hengshemaoyi.cn/kongbu/6822731.htm)
-- [便宜但可能致癌的小东西](http://www.movie.hkepx.cn/movie/9763774.htm)
-- [为什么网坛三巨头费德勒、纳达尔都退役了，徳约科维奇39岁了还不退役呢？](http://www.movie.hkepx.cn/movie/5499528.htm)
-- [檀健次卢昱晓 身高差](http://www.movie.hkepx.cn/xiju/2091376.htm)
-- [中国警方：缅北电诈死灰复燃也不怕](http://www.movie.hkepx.cn/movie/3384485.htm)
-- [新一轮油价调整时间定了](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
-- [9岁儿童骑车横穿车道致他人十级伤残，家长称「孩子年纪小不懂事」，法院调解最终其赔付4.2万，如何解读？](http://www.daogukj.com/0541072)
-- [建议女孩子多用原相机拍照](http://www.daogukj.com/jyvgfrcg/)
-- [泰山辟谣网传躲雨80元1小时](http://www.daogukj.com/3891590)
-- [演员王星发文感恩祖国](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
-- [上3休1再上5休2](http://www.movie.hkepx.cn/xiju/8805715.htm)
-- [代露娃 谢谢所有骂醒我的人](http://www.daogukj.com/5398424)
-- [旧秩序正在失灵，今日的中国该如何迎接新秩序？丨中国坐标](http://www.movie.hkepx.cn/xiju/6277332.htm)
-- [孙颖莎比赛前一晚一直在发烧](http://www.movie.hkepx.cn/xiju/7873556.htm)
-- [门诊告示豆包诊断患者改问千问](http://www.play.hengshemaoyi.cn/xiju/9370456.htm)
-- [年轻人为何觉得景区越来越没意思了](http://www.daogukj.com/nzepuewx/)
-- [祁连县对学生宿舍全面消杀](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
-- [【科学史】那些年，科学家用光遗传做的鬼畜实验……](http://www.movie.hkepx.cn/movie/0752879.htm)
-- [曾经红极一时的春都火腿肠是怎样走向没落的？](http://www.movie.hkepx.cn/xiju/3642771.htm)
-- [如何看待华为余承东官宣鸿蒙出海：正在考虑未来逐步将 HarmonyOS 推向全球市场，你怎么看？](http://www.daogukj.com/5617601)
-- [吃了不烧心是什么梗【梗指南】](http://www.daogukj.com/8998145)
-- [曝王晓慧有孩子了](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
-- [韩国考虑废除「金牌免兵役」制度，如果真的废除将对韩国职业足球、体育行业带来哪些影响？](http://www.movie.hkepx.cn/xiju/8984384.htm)
-- [全国社保基金二十五年赚两点三万亿](http://www.movie.hkepx.cn/xiju/1180114.htm)
-- [【春物语】我的婚后生活果然有问题 第3话：雪之下雪乃说，要做就正式地做。](http://www.movie.hkepx.cn/movie/0847312.htm)
-- [缅北地图密密麻麻全是电诈窝点](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
-- [德印韩等 7 国有意申办 2036 奥运会，谁的胜算更大？各自有哪些优劣势？](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
-- [11位学生与86岁老师重逢](http://www.movie.hkepx.cn/xiju/6763243.htm)
-- [孙颖莎 1-3 不敌泰国选手，止步 WTT 中国大满贯女单 32 强，怎样评价本场比赛？](http://www.movie.hkepx.cn/xiju/9186695.htm)
-- [国乒首次无缘中国大满贯混双领奖台](http://www.daogukj.com/pxvooxke/)
-- [九个舅舅染不同发色参加侄女婚礼](http://www.movie.hkepx.cn/xiju/1116357.htm)
-- [【PVZ小动画】硬 币 劫 案](http://www.movie.hkepx.cn/xiju/0923150.htm)
-- [离加油站20米燃油耗尽 车主求助被拒](http://www.daogukj.com/wwpryopq/)
-- [为什么药物要分“左右手”](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
-- [一次心跳的0.8秒](http://www.movie.hkepx.cn/xiju/6581777.htm)
-- [为什么每个APP都想追着借钱给你](http://www.daogukj.com/ydetypas/)
-- [今日寒露](http://www.movie.hkepx.cn/xiju/1440565.htm)
-- [为什么学校不统一打印作业](http://www.movie.hkepx.cn/movie/0748348.htm)
-- [对面牢玩家一整局都在偷塔，怎么把我的活干了](http://www.daogukj.com/7529047)
-- [国庆假期上海售楼经理忙到脚肿](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
-- [【我在现代当幽差】：赶着去投胎啊！！！！【UP动画】](http://www.movie.hkepx.cn/movie/9462286.htm)
-- [老师太显小](http://www.movie.hkepx.cn/xiju/6577988.htm)
-- [土耳其和巴基斯坦向沙特派兵意味什么](http://www.movie.hkepx.cn/movie/1711969.htm)
-- [网红小四爷 缅北](http://www.movie.hkepx.cn/movie/1556531.htm)
-- [国庆假期北大仓秋收正酣](http://www.play.hengshemaoyi.cn/kongbu/3467795.htm)
-- [日本前外相：中日关系恶化责任在日本](http://www.movie.hkepx.cn/movie/2027222.htm)
+- [程序员为帮女友挂专家号写出「抢号软件」，后帮人收费「抢号」，最终获刑一年，怎样从法律角度解读？](http://www.daogukj.com/7329084)
+- [711关闭印度全部门店](http://www.daogukj.com/tafakdgo/)
+- [寒露有哪些习俗](http://www.play.hengshemaoyi.cn/kongbu/6822731.htm)
+- [寒露时节注意心脑血管和呼吸道防护](http://www.movie.hkepx.cn/movie/9763774.htm)
+- [我锻造了一把39亿的绝世宝剑！](http://www.movie.hkepx.cn/movie/5499528.htm)
+- [林志玲36岁时和木村拓哉演的日剧](http://www.movie.hkepx.cn/xiju/2091376.htm)
+- [上3休1再上5休2](http://www.movie.hkepx.cn/movie/3384485.htm)
+- [为什么坐车看手机容易晕，自己开车却很少晕车？](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
+- [“幸好你玩游戏，明白这个视频的意义。”](http://www.daogukj.com/0541072)
+- [彭玉去世](http://www.daogukj.com/jyvgfrcg/)
+- [【我在现代当幽差】：赶着去投胎啊！！！！【UP动画】](http://www.daogukj.com/3891590)
+- [2026 年中网女单第四轮，郑钦文 2-1 力克查拉耶娃，晋级八强，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
+- [嫁金钗启宣](http://www.movie.hkepx.cn/xiju/8805715.htm)
+- [缅北电诈窝点距我口岸仅200米](http://www.daogukj.com/5398424)
+- [央行将开展12000亿买断式逆回购操作](http://www.movie.hkepx.cn/xiju/6277332.htm)
+- [可以莫名其妙教一个技能吗？](http://www.movie.hkepx.cn/xiju/7873556.htm)
+- [尊界 懂车帝](http://www.play.hengshemaoyi.cn/xiju/9370456.htm)
+- [C罗公开发声致歉](http://www.daogukj.com/nzepuewx/)
+- [俄向世卫通报不明原因肺炎进展](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
+- [央视曝光当晚 海南省委书记部署整改](http://www.movie.hkepx.cn/movie/0752879.htm)
+- [吃了不烧心是什么梗【梗指南】](http://www.movie.hkepx.cn/xiju/3642771.htm)
+- [全球纯燃油车销量占比首次跌破 50%，将对全球汽车产业链格局带来哪些影响？](http://www.daogukj.com/5617601)
+- [对面牢玩家一整局都在偷塔，怎么把我的活干了](http://www.daogukj.com/8998145)
+- [新娘九个舅舅染不同颜色头发送嫁](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
+- [【EPL表演赛】当CS的最强教练们再次进入服务器](http://www.movie.hkepx.cn/xiju/8984384.htm)
+- [为什么药物要分“左右”](http://www.movie.hkepx.cn/xiju/1180114.htm)
+- [3台尊界V800 刹车踏板支架断裂](http://www.movie.hkepx.cn/movie/0847312.htm)
+- [寒露：丹枫叠彩 秋光如饴](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
+- [国内有哪些「德不配位」的 5A 级景区？](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
+- [机票大跳水比高铁还便宜](http://www.movie.hkepx.cn/xiju/6763243.htm)
+- [如何评价懂车帝测试过程中3台尊界V800刹车踏板支架断裂？](http://www.movie.hkepx.cn/xiju/9186695.htm)
+- [A股](http://www.daogukj.com/pxvooxke/)
+- [国庆高速免费最后1分钟车主极限卡点](http://www.movie.hkepx.cn/xiju/1116357.htm)
+- [伊朗F-5战机贴脸袭击美军基地](http://www.movie.hkepx.cn/xiju/0923150.htm)
+- [俄罗斯不明病因肺炎事件四种说法](http://www.daogukj.com/wwpryopq/)
+- [女子买房多年得知客厅上方有座坟](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
+- [德印韩等 7 国有意申办 2036 奥运会，谁的胜算更大？各自有哪些优劣势？](http://www.movie.hkepx.cn/xiju/6581777.htm)
+- [彭玉去世 曾主演《东北一家人》](http://www.daogukj.com/ydetypas/)
+- [羊剃毛前以为要死了](http://www.movie.hkepx.cn/xiju/1440565.htm)
+- [牛顿和爱因斯坦的后人现在如何了？](http://www.movie.hkepx.cn/movie/0748348.htm)
+- [【科学史】那些年，科学家用光遗传做的鬼畜实验……](http://www.daogukj.com/7529047)
+- [国庆高速免费最后1分钟车主卡点通过](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
+- [为什么每个APP都想追着借钱给你](http://www.movie.hkepx.cn/movie/9462286.htm)
+- [王星4天被卖3次](http://www.movie.hkepx.cn/xiju/6577988.htm)
+- [李在明称「抗日穷三代韩奸掌实权」不能重演，为何韩国清算亲日派如此艰难？](http://www.movie.hkepx.cn/movie/1711969.htm)
+- [头孢停药3天能喝酒？谣言](http://www.movie.hkepx.cn/movie/1556531.htm)
+- [流动的中国活力满满](http://www.play.hengshemaoyi.cn/kongbu/3467795.htm)
+- [业内：A股10月或迎修复行情](http://www.movie.hkepx.cn/movie/2027222.htm)
 
 </details>
 
 ## 原始来源
 
-- [警惕这个“无声的杀手”](https://www.baidu.com/s?wd=%E8%AD%A6%E6%83%95%E8%BF%99%E4%B8%AA%E2%80%9C%E6%97%A0%E5%A3%B0%E7%9A%84%E6%9D%80%E6%89%8B%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
+- [为什么电诈园区会扎根缅北](https://s.weibo.com/weibo?q=%E4%B8%BA%E4%BB%80%E4%B9%88%E7%94%B5%E8%AF%88%E5%9B%AD%E5%8C%BA%E4%BC%9A%E6%89%8E%E6%A0%B9%E7%BC%85%E5%8C%97)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: bcd2637f9a63165fedc9 -->
+<!-- content-fingerprint: fbc0a2b4f92d92416bdc -->
