@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 对话孙宇晨：年轻人如何抓住AI时代的机会？
+# 白鹿新剧被张亮扇巴掌
 
-> 来源：哔哩哔哩热门 · 排名：第 18 位 · 热度：627307 · 分类：设计·创意 · 更新：2026-10-11T07:52:43+08:00
+> 来源：微博热搜 · 排名：第 19 位 · 热度：364474 · 分类：剧集 · 更新：2026-10-11T11:15:00+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“对话孙宇晨：年轻人如何抓住AI时代的机会？”位列第 18 位，公开热度指标为 627307，榜单分类为“设计·创意”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“白鹿新剧被张亮扇巴掌”位列第 19 位，公开热度指标为 364474，榜单分类为“剧集”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：如果重新回到20岁，没有人脉、没有资源，孙宇晨会如何开始？ 这次，我和孙宇晨聊了四个多小时。从用AI管理饮食、训练和工作，到年轻人的机会、Crypto与商业；从财富自由，到婚姻、感情，以及有钱之后仍然需要寻找的人生方向。 十年前的《财富自由革命之路》，影响了我过去十年的选择。这次对话，我想继续追问：十年之后，他的想法有哪些变化？当赚钱不再是唯一目标，下一步又该往哪里走？ 本期我们聊到： • 没有资源的年轻人，如何借助AI寻找方向？ • 做决定之前，为什么要先“探图”？ • 为什么他开始认真练薄肌、重
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `设计·创意`
+`微博热搜` `实时热搜` `热点资讯` `剧集`
 
 ## 相关热点
 
-- [垃圾桶里捡72张5元纸币 疑被做成花束](bie-ju-jiang-xin.md)
-- [郑钦文创中网历史](qiao-duo-tian-gong.md)
-- [“面包刺客”卖不动了吗](gui-fu-shen-gong.md)
-- [在职场中，A承担了 80% 的工作量，B只做 20%，但B零失误，为什么最后奖金、升职全是干活少的B？](jin-shang-tian-hua.md)
+- [中使馆提醒在沙特公民加强安全防范](bie-ju-jiang-xin.md)
+- [你家有没有哪道年菜是你从小到大每年必吃，味道也一丝没变？](qiao-duo-tian-gong.md)
+- [【纪录片】中国救护2 04 心是一座城](gui-fu-shen-gong.md)
+- [英雄联盟S16主题曲彩蛋](jin-shang-tian-hua.md)
 
 ## 站内推荐
 
 - [女子称 38 元买榴莲，切开后发现里面都是假果肉，还塞着年糕和土豆，是真的吗？可以怎样维权？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [中网女单半决赛，郑钦文总比分2-0战胜梅尔滕斯，首次闯进中网决赛，如何评价本场比赛以及她的个人表现？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [后来的我才明白...](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [零号大坝沉浸式捡垃圾](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [【豪物语】：就你叫嘉豪啊 【UP动画】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [男子租车返程：候补9班高铁全失败](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [电诈园区打人视频曝光](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [尿毒症大多是吃出来的](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [小黄豆宣布与刘琳琳绝交](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [曝李勒优崔晋私下和解](http://www.daogukj.com/7203067)
-- [梅艳芳骨灰被盗近3月无线索](http://www.daogukj.com/gowgjlqg/)
-- [吉利银河战舰700能拿下硬派越野市场吗](http://www.daogukj.com/7329084)
-- [倒查三年流水，顶级商K集体关门！商K经济终于崩盘了？](http://www.daogukj.com/tafakdgo/)
-- [乌方抛出全面无条件停火方案有何意图](http://www.play.hengshemaoyi.cn/kongbu/6822731.htm)
-- [【豪物语】：就你叫嘉豪啊 【UP动画】](http://www.movie.hkepx.cn/movie/9763774.htm)
-- [人社部：全面推进“退休预服务”](http://www.movie.hkepx.cn/movie/5499528.htm)
-- [张雪机车德比斯夺葡萄牙站首回合第6](http://www.movie.hkepx.cn/xiju/2091376.htm)
-- [沙特利雅得机场遭袭12死309伤](http://www.movie.hkepx.cn/movie/3384485.htm)
-- [员工拒绝晚上六点至八点加班被辞退](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
-- [盛家把视后视帝包揽了](http://www.daogukj.com/0541072)
-- [明知不该买房却想要自己的家](http://www.daogukj.com/jyvgfrcg/)
-- [男子在 ICU 抢救，母亲却取不出儿子存款救命，银行称家属须出具法定监护人身份证明，这规定合理吗？](http://www.daogukj.com/3891590)
-- [郑钦文创中网历史](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
-- [检查你发的朋友圈 这7种照片建议删掉](http://www.movie.hkepx.cn/xiju/8805715.htm)
-- [垃圾桶里捡72张5元纸币 疑被做成花束](http://www.daogukj.com/5398424)
-- [顾客称在胖东来购物结账时发现多收 27.79 元，次日退还款项还额外补偿两百元，如何看待这一处理方式？](http://www.movie.hkepx.cn/xiju/6277332.htm)
-- [两名中国男子国庆赴泰旅游失联](http://www.movie.hkepx.cn/xiju/7873556.htm)
-- [泰国警方回应大概率已被转至缅甸](http://www.play.hengshemaoyi.cn/xiju/9370456.htm)
-- [特朗普：乌克兰是时候换个新总统了](http://www.daogukj.com/nzepuewx/)
-- [deepseek 翻唱《人是猫》完整版，大肥鱼觉得人和猫一样可爱,所以人是猫](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
-- [超市里……未检测到人脸……](http://www.movie.hkepx.cn/movie/0752879.htm)
-- [国庆景区热度前十被小城包揽，这会成为一种旅游趋势吗？你会选择大城市出游还是小城呢？](http://www.movie.hkepx.cn/xiju/3642771.htm)
-- [台湾民众街头举五星红旗高喊要统一](http://www.daogukj.com/5617601)
-- [根据《国家通用语言文字法》，在正式场合把“兆”当作“万亿”来使用是不是违法行为？](http://www.daogukj.com/8998145)
-- [乒坛进入“战国时代”](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
-- [中网女单半决赛，郑钦文总比分2-0战胜梅尔滕斯，首次闯进中网决赛，如何评价本场比赛以及她的个人表现？](http://www.movie.hkepx.cn/xiju/8984384.htm)
-- [桂花香 “非牛顿流体”](http://www.movie.hkepx.cn/xiju/1180114.htm)
+- [2627赛季英超联赛英超第6轮阿森纳 2:1 利兹联，如何评价这场比赛？](http://www.daogukj.com/7203067)
+- [倒查三年流水，顶级商K集体关门！商K经济终于崩盘了？](http://www.daogukj.com/gowgjlqg/)
+- [如果把我和男朋友这几年的约会地点列出来](http://www.daogukj.com/7329084)
+- [男子国庆被排7天班 1天都没去遭开除](http://www.daogukj.com/tafakdgo/)
+- [沙特利雅得机场遭袭12死309伤](http://www.play.hengshemaoyi.cn/kongbu/6822731.htm)
+- [小黄豆宣布与刘琳琳绝交](http://www.movie.hkepx.cn/movie/9763774.htm)
+- [“豆包问诊改问千问”是恶搞“请AI当判官”是日常，医患之间信任的沟壑不是AI挖的 AI也填不平（评论员：王珍珍 编辑：刘嘉欣）](http://www.movie.hkepx.cn/movie/5499528.htm)
+- [柳杰克：台湾就是中国的一个省](http://www.movie.hkepx.cn/xiju/2091376.htm)
+- [中国人亲历机场遇袭：多人被巨响吓哭](http://www.movie.hkepx.cn/movie/3384485.htm)
+- [2627 赛季英超联赛英超第 6 轮曼联 1-1 热刺，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
+- [【豪物语】：就你叫嘉豪啊 【UP动画】](http://www.daogukj.com/0541072)
+- [在曼谷失联摄影师已回国](http://www.daogukj.com/jyvgfrcg/)
+- [反复流传的孩子被拐寻人启事系谣言](http://www.daogukj.com/3891590)
+- [你家有没有哪道年菜是你从小到大每年必吃，味道也一丝没变？](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
+- [虎鲸妈妈带幼崽尸体十七天](http://www.movie.hkepx.cn/xiju/8805715.htm)
+- [中使馆提醒在沙特公民加强安全防范](http://www.daogukj.com/5398424)
+- [人社部：全面推进“退休预服务”](http://www.movie.hkepx.cn/xiju/6277332.htm)
+- [美国买俄柴油为何引全球关注](http://www.movie.hkepx.cn/xiju/7873556.htm)
+- [大二专科生称靠切片三年赚七百万](http://www.play.hengshemaoyi.cn/xiju/9370456.htm)
+- [台湾民众街头举五星红旗高喊要统一](http://www.daogukj.com/nzepuewx/)
+- [王楚然现发4口碑反转](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
+- [台湾民众在台北街头高喊我们要统一](http://www.movie.hkepx.cn/movie/0752879.htm)
+- [超市里……未检测到人脸……](http://www.movie.hkepx.cn/xiju/3642771.htm)
+- [杀人经历写进小说，意外成为名作家？现实比剧更离奇！万字解析《悬案：旅馆案》下](http://www.daogukj.com/5617601)
+- [女子陪孩子看病顺带查出自己患癌](http://www.daogukj.com/8998145)
+- [男性衰老时身体或会有4大变化](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
+- [男子租车返程：候补9班高铁全失败](http://www.movie.hkepx.cn/xiju/8984384.htm)
+- [王仁君朗诵《七律·长征》](http://www.movie.hkepx.cn/xiju/1180114.htm)
 - [【独家】《凡人修仙传之慕兰之战》第19集【总第195集】](http://www.movie.hkepx.cn/movie/0847312.htm)
-- [母亲为被骚扰女儿讨说法 目击者发声](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
-- [长期这样吃饭全身炎症水平会上升](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
-- [讨伐型人格大合集](http://www.movie.hkepx.cn/xiju/6763243.htm)
-- [日媒曝黑客黑掉软银旗下云平台后留下225封勒索信，结果运维找7小时没发现勒索信只是一味重启，如何看待？](http://www.movie.hkepx.cn/xiju/9186695.htm)
-- [四部门终结速成车乱象](http://www.daogukj.com/pxvooxke/)
-- [抗癌药物研发迎来重要突破](http://www.movie.hkepx.cn/xiju/1116357.htm)
-- [两名内地女学生在澳门非法旅拍被捕，为什么属于非法务工？雇主和摄影师会面临什么处罚？](http://www.movie.hkepx.cn/xiju/0923150.htm)
-- [零号大坝沉浸式捡垃圾](http://www.daogukj.com/wwpryopq/)
-- [第一次见领奖一脸问号的飞天视帝](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
-- [医生两次对五胞胎母亲说希望别后悔](http://www.movie.hkepx.cn/xiju/6581777.htm)
-- [自闭症男童电梯被踹飞 当地妇联回应](http://www.daogukj.com/ydetypas/)
-- [美国有可能加入沙特对胡塞打击行动](http://www.movie.hkepx.cn/xiju/1440565.htm)
-- [男性衰老时身体或会有4大变化](http://www.movie.hkepx.cn/movie/0748348.htm)
-- [多家烘焙店陆续下架超长蛋挞，为啥网红小吃总难逃昙花一现的命运？有啥破局之法吗？](http://www.daogukj.com/7529047)
-- [交警上班发现：单位门口这辆车不对劲](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
-- [哪一行都不好干（84）](http://www.movie.hkepx.cn/movie/9462286.htm)
-- [内蒙古包头一婚礼主持人发现新人买的礼炮里塞满纸钱和骂人纸条，婚礼主持人：发现及时，没使用](http://www.movie.hkepx.cn/xiju/6577988.htm)
-- [四川巴中12345员工投诉欠薪](http://www.movie.hkepx.cn/movie/1711969.htm)
-- [【纪录片】威尔史密斯的极地纵横 02 深入亚马逊丛林](http://www.movie.hkepx.cn/movie/1556531.htm)
-- [以青春之我建强农之业](http://www.play.hengshemaoyi.cn/kongbu/3467795.htm)
-- [刘琳琳抖音账号被封](http://www.movie.hkepx.cn/movie/2027222.htm)
+- [人社部：要把未参保人员找到动员参保](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
+- [内蒙古包头一婚礼主持人发现新人买的礼炮里塞满纸钱和骂人纸条，婚礼主持人：发现及时，没使用](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
+- [施永青建议推会漏的避孕套](http://www.movie.hkepx.cn/xiju/6763243.htm)
+- [沙特利雅得机场遭袭，造成 12 人死亡 309 人受伤，哪些信息值得关注？对中东局势有何影响？](http://www.movie.hkepx.cn/xiju/9186695.htm)
+- [利雅得机场遭袭致12死309伤](http://www.daogukj.com/pxvooxke/)
+- [媒体人：飞天奖依旧是中女的天下](http://www.movie.hkepx.cn/xiju/1116357.htm)
+- [快把家里的盐换了 可以帮助控血压](http://www.movie.hkepx.cn/xiju/0923150.htm)
+- [尿毒症大多是吃出来的](http://www.daogukj.com/wwpryopq/)
+- [曝梅艳芳国际歌迷会发文称梅艳芳骨灰疑似被盗，表示警方已调查近三月无果，具体是什么情况？](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
+- [也是当上外卖大法官了](http://www.movie.hkepx.cn/xiju/6581777.htm)
+- [中国旅客：在机场听到巨响多人被吓哭](http://www.daogukj.com/ydetypas/)
+- [女子长期鼻塞查出患癌](http://www.movie.hkepx.cn/xiju/1440565.htm)
+- [如何看待有报道称 RTX 5090 / 5090 D v2 等基于 GB202 的游戏卡或将停产？](http://www.movie.hkepx.cn/movie/0748348.htm)
+- [泽连斯基最凶险的时刻来了](http://www.daogukj.com/7529047)
+- [医生两次对五胞胎母亲说希望别后悔](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
+- [香港近年多位名人骨灰被盗](http://www.movie.hkepx.cn/movie/9462286.htm)
+- [明知不该买房却想要自己的家](http://www.movie.hkepx.cn/xiju/6577988.htm)
+- [在职场中，A承担了 80% 的工作量，B只做 20%，但B零失误，为什么最后奖金、升职全是干活少的B？](http://www.movie.hkepx.cn/movie/1711969.htm)
+- [谢娜刘烨十多年都没有同台过](http://www.movie.hkepx.cn/movie/1556531.htm)
+- [每一个名字都是山河丰碑](http://www.play.hengshemaoyi.cn/kongbu/3467795.htm)
+- [国庆景区热度前十被小城包揽，这会成为一种旅游趋势吗？你会选择大城市出游还是小城呢？](http://www.movie.hkepx.cn/movie/2027222.htm)
 
 </details>
 
 ## 原始来源
 
-- [对话孙宇晨：年轻人如何抓住AI时代的机会？](https://b23.tv/BV1fcHD6cEw3)
+- [白鹿新剧被张亮扇巴掌](https://s.weibo.com/weibo?q=%E7%99%BD%E9%B9%BF%E6%96%B0%E5%89%A7%E8%A2%AB%E5%BC%A0%E4%BA%AE%E6%89%87%E5%B7%B4%E6%8E%8C)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 115893b14173c5e48f7a -->
+<!-- content-fingerprint: 1caf13e5f316051566d2 -->

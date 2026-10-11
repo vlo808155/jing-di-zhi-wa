@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 两名中国男子国庆赴泰旅游失联
+# 美国买俄柴油为何引全球关注
 
-> 来源：百度热搜 · 排名：第 20 位 · 热度：5893909 · 更新：2026-10-11T07:52:43+08:00
+> 来源：今日头条热榜 · 排名：第 21 位 · 热度：2717497 · 更新：2026-10-11T11:15:00+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“两名中国男子国庆赴泰旅游失联”位列第 20 位，公开热度指标为 5893909。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“美国买俄柴油为何引全球关注”位列第 21 位，公开热度指标为 2717497。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：10月8日，有网友在社交平台发帖求助，称两名中国男子于10月6日在泰国失联，疑似已被转至缅甸。10月10日，两名失联者的亲属宋先生向记者讲述了事发经过。目前，家属已向泰国警方报警，并联系了中国驻泰国大使馆和中国驻缅甸大使馆。
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [四川巴中12345员工投诉欠薪](jing-di-zhi-wa.md)
-- [盛家把视后视帝包揽了](hai-kuo-tian-kong.md)
-- [两名内地女学生在澳门非法旅拍被捕，为什么属于非法务工？雇主和摄影师会面临什么处罚？](gao-zhan-yuan-zhu.md)
-- [讨伐型人格大合集](xiong-you-cheng-zhu.md)
+- [在职场中，A承担了 80% 的工作量，B只做 20%，但B零失误，为什么最后奖金、升职全是干活少的B？](jing-di-zhi-wa.md)
+- [【豪物语】：就你叫嘉豪啊 【UP动画】](hai-kuo-tian-kong.md)
+- [快把家里的盐换了 可以帮助控血压](gao-zhan-yuan-zhu.md)
+- [施永青建议推会漏的避孕套](xiong-you-cheng-zhu.md)
 
 ## 站内推荐
 
-- [《司机の噩梦》](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
-- [哪一行都不好干（84）](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
-- [【纪录片】威尔史密斯的极地纵横 02 深入亚马逊丛林](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- [乒坛进入“战国时代”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [垃圾桶里捡72张5元纸币 疑被做成花束](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [《为何要生两个》](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
+- [香港近年多位名人骨灰被盗](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
+- [谢娜刘烨十多年都没有同台过](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
+- [男性衰老时身体或会有4大变化](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [中使馆提醒在沙特公民加强安全防范](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [驻沙特大使馆：尚无中国公民伤亡报告](http://www.daogukj.com/vrzctubb/)
-- [虽然命还在，但是鱼没了啊！！！【AI全民制作人】](http://www.daogukj.com/6886560)
-- [超市里……未检测到人脸……](http://www.movie.hkepx.cn/movie/9717106.htm)
-- [讨伐型人格大合集](http://www.play.hengshemaoyi.cn/xiju/5241849.htm)
-- [美国国债已攀升至约 41 万亿美元规模，会带来哪些影响？财长称将推出财政整顿计划，可能有哪些手段？](http://www.daogukj.com/0392707)
-- [社保卡有金卡？北京人社局：诈骗](http://www.play.hengshemaoyi.cn/kongbu/2803464.htm)
+- [公积金功能又上新了](http://www.daogukj.com/vrzctubb/)
+- [当我解锁了系统，把整个世界当成是游戏...](http://www.daogukj.com/6886560)
+- [台湾民众在台北街头高喊我们要统一](http://www.movie.hkepx.cn/movie/9717106.htm)
+- [施永青建议推会漏的避孕套](http://www.play.hengshemaoyi.cn/xiju/5241849.htm)
+- [金子涵称脸上被打了100多针](http://www.daogukj.com/0392707)
+- [哪一行都不好干（84）](http://www.play.hengshemaoyi.cn/kongbu/2803464.htm)
 - [梅艳芳骨灰被盗](http://www.movie.hkepx.cn/xiju/1334432.htm)
-- [郑钦文创中网历史](http://www.play.hengshemaoyi.cn/kongbu/2200403.htm)
-- [办社保卡金卡每月发补贴？系诈骗](http://www.play.hengshemaoyi.cn/kongbu/7911895.htm)
-- [盛家把视后视帝包揽了](http://www.movie.hkepx.cn/movie/9434304.htm)
-- [中网女单半决赛，郑钦文总比分2-0战胜梅尔滕斯，首次闯进中网决赛，如何评价本场比赛以及她的个人表现？](http://www.daogukj.com/9720422)
-- [男性衰老时身体或会有4大变化](http://www.daogukj.com/5290019)
-- [乌方抛出全面无条件停火方案有何意图](http://www.movie.hkepx.cn/movie/2595562.htm)
-- [美国有可能加入沙特对胡塞打击行动](http://www.movie.hkepx.cn/movie/1663396.htm)
-- [如何看待有报道称 RTX 5090 / 5090 D v2 等基于 GB202 的游戏卡或将停产？](http://www.daogukj.com/xmeoocun/)
-- [为什么中国的影视行业至今都没有一个有普遍大众公信力的奖项？](http://www.daogukj.com/srvnzwkb/)
+- [你家有没有哪道年菜是你从小到大每年必吃，味道也一丝没变？](http://www.play.hengshemaoyi.cn/kongbu/2200403.htm)
+- [社保卡有金卡？北京人社局：诈骗](http://www.play.hengshemaoyi.cn/kongbu/7911895.htm)
+- [【豪物语】：就你叫嘉豪啊 【UP动画】](http://www.movie.hkepx.cn/movie/9434304.htm)
+- [男子租车返程：候补9班高铁全失败](http://www.daogukj.com/9720422)
+- [如何看待有报道称 RTX 5090 / 5090 D v2 等基于 GB202 的游戏卡或将停产？](http://www.daogukj.com/5290019)
+- [沙特利雅得机场遭袭12死309伤](http://www.movie.hkepx.cn/movie/2595562.htm)
+- [女子长期鼻塞查出患癌](http://www.movie.hkepx.cn/movie/1663396.htm)
+- [如何评价浙江诸葛村改用汉服祭祀诸葛亮了？](http://www.daogukj.com/xmeoocun/)
+- [英雄联盟S16主题曲](http://www.daogukj.com/srvnzwkb/)
 - [【独家】《凡人修仙传之慕兰之战》第19集【总第195集】](http://www.daogukj.com/9309214)
-- [雅思考试取消考生在考场外大哭](http://www.play.hengshemaoyi.cn/kongbu/8088630.htm)
-- [王楚然接替金晨](http://www.play.hengshemaoyi.cn/xiju/2775140.htm)
-- [零号大坝沉浸式捡垃圾](http://www.play.hengshemaoyi.cn/kongbu/3428499.htm)
+- [美国可能加入沙特对胡塞打击行动](http://www.play.hengshemaoyi.cn/kongbu/8088630.htm)
+- [多家医院、卫生院暂停夜间门诊，为什么会这样？对患者夜间就诊影响有多大？](http://www.play.hengshemaoyi.cn/xiju/2775140.htm)
+- [尿毒症大多是吃出来的](http://www.play.hengshemaoyi.cn/kongbu/3428499.htm)
 - [女子称 38 元买榴莲，切开后发现里面都是假果肉，还塞着年糕和土豆，是真的吗？可以怎样维权？](http://www.daogukj.com/3278515)
-- [香港近年多位名人骨灰被盗](http://www.movie.hkepx.cn/xiju/0756083.htm)
-- [日媒曝黑客黑掉软银旗下云平台后留下225封勒索信，结果运维找7小时没发现勒索信只是一味重启，如何看待？](http://www.daogukj.com/yszfskeo/)
-- [长期这样吃饭全身炎症水平会上升](http://www.daogukj.com/exnmuhvg/)
-- [从什么时候开始，报喜不报忧成了本能？｜暗叫 - きくお](http://www.play.hengshemaoyi.cn/kongbu/0838017.htm)
-- [检查你发的朋友圈 这7种照片建议删掉](http://www.movie.hkepx.cn/xiju/4430016.htm)
-- [抗癌药物研发迎来重要突破](http://www.play.hengshemaoyi.cn/xiju/8509628.htm)
-- [多家烘焙店陆续下架超长蛋挞，为啥网红小吃总难逃昙花一现的命运？有啥破局之法吗？](http://www.daogukj.com/4084559)
-- [曝李勒优崔晋私下和解](http://www.play.hengshemaoyi.cn/kongbu/7290776.htm)
-- [两名内地女学生在澳门非法旅拍被捕，为什么属于非法务工？雇主和摄影师会面临什么处罚？](http://www.movie.hkepx.cn/xiju/8703656.htm)
-- [如果把我和男朋友这几年的约会地点列出来](http://www.daogukj.com/xgwhpfta/)
-- [新郎遭好友婚闹被砸鸡蛋泼酱油](http://www.play.hengshemaoyi.cn/kongbu/5234043.htm)
-- [四川巴中12345员工投诉欠薪](http://www.play.hengshemaoyi.cn/xiju/0981929.htm)
-- [特朗普：乌克兰是时候换个新总统了](http://www.daogukj.com/8836439)
-- [大冰称想把剩下时间浪费掉](http://www.daogukj.com/syjkuwqb/)
-- [乒坛进入“战国时代”](http://www.play.hengshemaoyi.cn/kongbu/5357592.htm)
-- [有一个百思不得其解的问题，也是我迟迟不想换电车的原因，电车电池虚标这么严重为什么没有人打假？](http://www.daogukj.com/5545136)
-- [华为整体成本涨了1400元](http://www.daogukj.com/myafughb/)
-- [国庆景区热度前十被小城包揽，这会成为一种旅游趋势吗？你会选择大城市出游还是小城呢？](http://www.daogukj.com/drenvtnu/)
-- [威尼修斯 皇马](http://www.movie.hkepx.cn/movie/8190790.htm)
-- [内蒙古包头一婚礼主持人发现新人买的礼炮里塞满纸钱和骂人纸条，婚礼主持人：发现及时，没使用](http://www.daogukj.com/uthpzicf/)
-- [顾客称在胖东来购物结账时发现多收 27.79 元，次日退还款项还额外补偿两百元，如何看待这一处理方式？](http://www.play.hengshemaoyi.cn/kongbu/9527939.htm)
+- [日媒曝黑客黑掉软银旗下云平台后留下225封勒索信，结果运维找7小时没发现勒索信只是一味重启，如何看待？](http://www.movie.hkepx.cn/xiju/0756083.htm)
+- [沙特利雅得机场遭袭，造成 12 人死亡 309 人受伤，哪些信息值得关注？对中东局势有何影响？](http://www.daogukj.com/yszfskeo/)
+- [内蒙古包头一婚礼主持人发现新人买的礼炮里塞满纸钱和骂人纸条，婚礼主持人：发现及时，没使用](http://www.daogukj.com/exnmuhvg/)
+- [闫妮自曝离婚后还会去前夫家里打掼蛋](http://www.play.hengshemaoyi.cn/kongbu/0838017.htm)
+- [虎鲸妈妈带幼崽尸体十七天](http://www.movie.hkepx.cn/xiju/4430016.htm)
+- [媒体人：飞天奖依旧是中女的天下](http://www.play.hengshemaoyi.cn/xiju/8509628.htm)
+- [泽连斯基最凶险的时刻来了](http://www.daogukj.com/4084559)
+- [2627赛季英超联赛英超第6轮阿森纳 2:1 利兹联，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/7290776.htm)
+- [快把家里的盐换了 可以帮助控血压](http://www.movie.hkepx.cn/xiju/8703656.htm)
+- [【苏星河】荣耀YOYO有多恐怖？siri最终形态不过如此…](http://www.daogukj.com/xgwhpfta/)
+- [【雀说】雀巢&鲸尾 | 自卑在哪一天消失](http://www.play.hengshemaoyi.cn/kongbu/5234043.htm)
+- [在职场中，A承担了 80% 的工作量，B只做 20%，但B零失误，为什么最后奖金、升职全是干活少的B？](http://www.play.hengshemaoyi.cn/xiju/0981929.htm)
+- [台湾民众街头举五星红旗高喊要统一](http://www.daogukj.com/8836439)
+- [买家花 15 元买蜜薯后「仅退款」，还称有本事就过来拿，商家驱车数百公里连夜取回，买家的行为算违法吗？](http://www.daogukj.com/syjkuwqb/)
+- [男性衰老时身体或会有4大变化](http://www.play.hengshemaoyi.cn/kongbu/5357592.htm)
+- [两名中国男子国庆赴泰旅游失联](http://www.daogukj.com/5545136)
+- [欧盟为什么解决不了目前的困境？](http://www.daogukj.com/myafughb/)
+- [超市里……未检测到人脸……](http://www.daogukj.com/drenvtnu/)
+- [多国战机导弹云集沙特将围攻胡塞吗](http://www.movie.hkepx.cn/movie/8190790.htm)
+- [明知不该买房却想要自己的家](http://www.daogukj.com/uthpzicf/)
+- [人社部：全面推进“退休预服务”](http://www.play.hengshemaoyi.cn/kongbu/9527939.htm)
 - [沙特利雅得机场遭袭 致12死309伤](http://www.daogukj.com/2678664)
-- [母亲为被骚扰女儿讨说法 目击者发声](http://www.daogukj.com/qevzlmky/)
-- [根据《国家通用语言文字法》，在正式场合把“兆”当作“万亿”来使用是不是违法行为？](http://www.play.hengshemaoyi.cn/kongbu/2252968.htm)
-- [未来五年推进就业有哪些新变化](http://www.movie.hkepx.cn/movie/6923701.htm)
-- [“面包刺客”卖不动了吗](http://www.daogukj.com/2329215)
-- [张雪机车德比斯夺葡萄牙站首回合第6](http://www.movie.hkepx.cn/movie/1652771.htm)
-- [唐国强无提词朗诵《出师表》](http://www.play.hengshemaoyi.cn/xiju/2768861.htm)
-- [第一次见领奖一脸问号的飞天视帝](http://www.daogukj.com/8449888)
+- [人社部：要把未参保人员找到动员参保](http://www.daogukj.com/qevzlmky/)
+- [女子陪孩子看病顺带查出自己患癌](http://www.play.hengshemaoyi.cn/kongbu/2252968.htm)
+- [中国新能源产业做对了什么](http://www.movie.hkepx.cn/movie/6923701.htm)
+- [【纪录片】中国救护2 04 心是一座城](http://www.daogukj.com/2329215)
+- [柳杰克：台湾就是中国的一个省](http://www.movie.hkepx.cn/movie/1652771.htm)
+- [耗时一年，改造善良老人晚年，完整后续来了！](http://www.play.hengshemaoyi.cn/xiju/2768861.htm)
+- [曝梅艳芳国际歌迷会发文称梅艳芳骨灰疑似被盗，表示警方已调查近三月无果，具体是什么情况？](http://www.daogukj.com/8449888)
 
 </details>
 
 ## 原始来源
 
-- [两名中国男子国庆赴泰旅游失联](https://www.baidu.com/s?wd=%E4%B8%A4%E5%90%8D%E4%B8%AD%E5%9B%BD%E7%94%B7%E5%AD%90%E5%9B%BD%E5%BA%86%E8%B5%B4%E6%B3%B0%E6%97%85%E6%B8%B8%E5%A4%B1%E8%81%94&sa=fyb_news&rsv_dl=fyb_news)
+- [美国买俄柴油为何引全球关注](https://www.toutiao.com/trending/7695169652241993267/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2213%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227695169652241993267%22%2C%22hot_board_impr_id%22%3A%222026101111145824FC69FD38A9C414968C%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 47ad0bfc078ee38a29f3 -->
+<!-- content-fingerprint: 01d696f47f43208852b4 -->
