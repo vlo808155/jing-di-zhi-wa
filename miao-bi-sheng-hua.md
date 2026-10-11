@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 王仁君朗诵《七律·长征》
+# 26/27 赛季英超联赛第 6 轮曼联 1-1 热刺，如何评价这场比赛？
 
-> 来源：今日头条热榜 · 排名：第 20 位 · 热度：3003299 · 分类：新事件上榜 · 更新：2026-10-11T11:15:00+08:00
+> 来源：知乎热榜 · 排名：第 20 位 · 热度：87 万热度 · 分类：问答 · 更新：2026-10-11T18:05:15+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“王仁君朗诵《七律·长征》”位列第 20 位，公开热度指标为 3003299，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“26/27 赛季英超联赛第 6 轮曼联 1-1 热刺，如何评价这场比赛？”位列第 20 位，公开热度指标为 87 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：【曼联 1-1 热刺】 ⚽第73分钟，库尼亚左路突破到禁区给身前，姆伯莫转身抽射破门。 第78分钟，本坦库尔被红牌罚下，热刺十人作战。 ⚽第90+2分钟，托纳利前场左路传中到禁区，索兰克头球破门。 曼联开赛6轮仅取得6分，创造英超时代同期最差战绩。 热刺仍然无缘赛季首胜（3平3负）。阿森纳逆转，切尔西大胜，热刺绝平曼联丨第6轮_腾讯新闻
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `新事件上榜`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [欧盟为什么解决不了目前的困境？](sheng-dong-huo-po.md)
-- [“豆包问诊改问千问”是恶搞“请AI当判官”是日常，医患之间信任的沟壑不是AI挖的 AI也填不平（评论员：王珍珍 编辑：刘嘉欣）](xu-xu-ru-sheng.md)
-- [两名中国男子国庆赴泰旅游失联](huo-ling-huo-xian.md)
-- [小黄豆宣布与刘琳琳绝交](you-sheng-you-se.md)
+- [疯牛失控窜行，民警到场一枪将其击毙，及时消除安全隐患。](sheng-dong-huo-po.md)
+- [两名中国男子国庆赴泰旅游失联](xu-xu-ru-sheng.md)
+- [代露娃被导演说没有教养](huo-ling-huo-xian.md)
+- [沙特遭袭 美联储的难题才刚开始](you-sheng-you-se.md)
 
 ## 站内推荐
 
-- [【独家】《凡人修仙传之慕兰之战》第19集【总第195集】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [台湾民众在台北街头高喊我们要统一](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [岸本齐史火影忍者全新漫画](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [韩国瑜：有一万个理由维护两岸和平](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [人社部：要把未参保人员找到动员参保](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [12个脑洞大开的做饭方式！](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
+- [新人第1次编曲耶](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [虽然命还在，但是鱼没了啊！！！【AI全民制作人】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [张帅组合中网亚军](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [史上最大退休潮来了，未来 14 年，平均每天 6 万人退休 ​，养老金体系该如何应对？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [白鹿新剧被张亮扇巴掌](http://www.play.hengshemaoyi.cn/xiju/5042626.htm)
-- [超市里……未检测到人脸……](http://www.play.hengshemaoyi.cn/xiju/7956106.htm)
-- [中国新能源产业做对了什么](http://www.movie.hkepx.cn/movie/4841456.htm)
-- [多国战机导弹云集沙特将围攻胡塞吗](http://www.movie.hkepx.cn/xiju/7247523.htm)
-- [台湾民众街头举五星红旗高喊要统一](http://www.movie.hkepx.cn/movie/5948248.htm)
-- [公积金功能又上新了](http://www.daogukj.com/jeqkpawe/)
-- [五旬女子称做美容手术后眼睛闭不上](http://www.daogukj.com/4687345)
-- [《为何要生两个》](http://www.daogukj.com/vpnhlcyn/)
-- [英国一男子闯入动物园虎区遇袭身亡](http://www.movie.hkepx.cn/movie/1315163.htm)
-- [买家花 15 元买蜜薯后「仅退款」，还称有本事就过来拿，商家驱车数百公里连夜取回，买家的行为算违法吗？](http://www.daogukj.com/rwppwnza/)
-- [沙特利雅得机场遭袭12死309伤](http://www.play.hengshemaoyi.cn/kongbu/1523322.htm)
-- [反复流传的孩子被拐寻人启事系谣言](http://www.daogukj.com/2194242)
-- [男性衰老时身体或会有4大变化](http://www.play.hengshemaoyi.cn/xiju/4017132.htm)
-- [医生两次对五胞胎母亲说希望别后悔](http://www.movie.hkepx.cn/xiju/3408542.htm)
-- [媒体人：飞天奖依旧是中女的天下](http://www.daogukj.com/awgjlldl/)
-- [根据《国家通用语言文字法》，在正式场合把“兆”当作“万亿”来使用是不是违法行为？](http://www.play.hengshemaoyi.cn/xiju/6207562.htm)
-- [【独家】《凡人修仙传之慕兰之战》第19集【总第195集】](http://www.daogukj.com/mrofapbq/)
-- [你家有没有哪道年菜是你从小到大每年必吃，味道也一丝没变？](http://www.play.hengshemaoyi.cn/kongbu/5453073.htm)
-- [为什么很多书法看着很丑评价很高?](http://www.play.hengshemaoyi.cn/xiju/6087046.htm)
-- [虽然命还在，但是鱼没了啊！！！【AI全民制作人】](http://www.movie.hkepx.cn/movie/8965197.htm)
-- [英雄联盟S16主题曲彩蛋](http://www.play.hengshemaoyi.cn/kongbu/7748359.htm)
-- [金子涵称脸上被打了100多针](http://www.movie.hkepx.cn/xiju/0862966.htm)
-- [柳杰克：台湾就是中国的一个省](http://www.play.hengshemaoyi.cn/kongbu/9726074.htm)
-- [人社部：要把未参保人员找到动员参保](http://www.movie.hkepx.cn/movie/4830470.htm)
-- [“豆包问诊改问千问”是恶搞“请AI当判官”是日常，医患之间信任的沟壑不是AI挖的 AI也填不平（评论员：王珍珍 编辑：刘嘉欣）](http://www.play.hengshemaoyi.cn/xiju/3660611.htm)
-- [男子在 ICU 抢救，母亲却取不出儿子存款救命，银行称家属须出具法定监护人身份证明，这规定合理吗？](http://www.daogukj.com/7984737)
-- [国庆景区热度前十被小城包揽，这会成为一种旅游趋势吗？你会选择大城市出游还是小城呢？](http://www.movie.hkepx.cn/movie/5738447.htm)
-- [女子长期鼻塞查出患癌](http://www.daogukj.com/cjltxhnp/)
-- [2627赛季英超联赛英超第6轮阿森纳 2:1 利兹联，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/7175788.htm)
-- [【纪录片】中国救护2 04 心是一座城](http://www.movie.hkepx.cn/movie/4124367.htm)
-- [杀人经历写进小说，意外成为名作家？现实比剧更离奇！万字解析《悬案：旅馆案》下](http://www.play.hengshemaoyi.cn/xiju/7951635.htm)
-- [如何看待给大模型投毒被字节索赔800 万的前实习生开启创业，已获近三千万美元融资？你看好其创业前景吗？](http://www.play.hengshemaoyi.cn/xiju/9311263.htm)
-- [明知不该买房却想要自己的家](http://www.daogukj.com/qhynwuoo/)
-- [如何评价浙江诸葛村改用汉服祭祀诸葛亮了？](http://www.play.hengshemaoyi.cn/xiju/2836720.htm)
-- [台湾民众在台北街头高喊要统一](http://www.daogukj.com/0046089)
-- [“和公主，在荒岛求生。”](http://www.play.hengshemaoyi.cn/kongbu/6160337.htm)
-- [台湾民众在台北街头高喊我们要统一](http://www.play.hengshemaoyi.cn/kongbu/7581667.htm)
-- [如何看待有报道称 RTX 5090 / 5090 D v2 等基于 GB202 的游戏卡或将停产？](http://www.movie.hkepx.cn/movie/1557680.htm)
-- [男子租车返程：候补9班高铁全失败](http://www.movie.hkepx.cn/movie/5183784.htm)
-- [红果短剧为何让人着迷？](http://www.movie.hkepx.cn/xiju/8111897.htm)
-- [中国旅客：在机场听到巨响多人被吓哭](http://www.play.hengshemaoyi.cn/kongbu/4378701.htm)
-- [泽连斯基与多个欧洲国家领导人通话](http://www.daogukj.com/7904792)
-- [泽连斯基最凶险的时刻来了](http://www.movie.hkepx.cn/xiju/7283893.htm)
-- [尿毒症大多是吃出来的](http://www.daogukj.com/4389315)
-- [韩国瑜：有一万个理由维护两岸和平](http://www.movie.hkepx.cn/xiju/0722929.htm)
-- [曝梅艳芳国际歌迷会发文称梅艳芳骨灰疑似被盗，表示警方已调查近三月无果，具体是什么情况？](http://www.play.hengshemaoyi.cn/kongbu/4443491.htm)
-- [耗时一年，改造善良老人晚年，完整后续来了！](http://www.daogukj.com/4354382)
-- [快把家里的盐换了 可以帮助控血压](http://www.daogukj.com/4226089)
-- [梅艳芳骨灰被盗近3月无线索](http://www.movie.hkepx.cn/xiju/3342028.htm)
-- [你们考驾照费劲吗？](http://www.daogukj.com/jkvkxuzz/)
+- [国防部批赖清德是“台湾之祸”](http://www.play.hengshemaoyi.cn/xiju/5042626.htm)
+- [WTT 中国大满贯男单半决赛，周启豪 2-4 松岛辉空，至此国乒无缘男单决赛，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/xiju/7956106.htm)
+- [本周中国“硬核”成绩刷屏](http://www.movie.hkepx.cn/movie/4841456.htm)
+- [王安宇 错不起都是我的对](http://www.movie.hkepx.cn/xiju/7247523.htm)
+- [46岁“数学家”AI炒股一年赚超640亿](http://www.movie.hkepx.cn/movie/5948248.htm)
+- [王曼昱卫冕中国大满贯女单冠军](http://www.daogukj.com/jeqkpawe/)
+- [吊车吊小麦时坠落 父亲迅速护住孩子](http://www.daogukj.com/4687345)
+- [也是当上外卖大法官了](http://www.daogukj.com/vpnhlcyn/)
+- [尼泊尔再次暴发严重山洪](http://www.movie.hkepx.cn/movie/1315163.htm)
+- [王楚然五子棋6步绝杀王安宇](http://www.daogukj.com/rwppwnza/)
+- [大闸蟹价格大跌](http://www.play.hengshemaoyi.cn/kongbu/1523322.htm)
+- [有人说一台苹果18的钱能在山东大集买到多少东西和多少人快乐，咱们一起来挑战和数数！](http://www.daogukj.com/2194242)
+- [张予曦不知道妈妈生了弟弟](http://www.play.hengshemaoyi.cn/xiju/4017132.htm)
+- [邻里闹纠纷一方拿出乾隆年间地契](http://www.movie.hkepx.cn/xiju/3408542.htm)
+- [最优的铁路轨距是多少？](http://www.daogukj.com/awgjlldl/)
+- [HLE选手爆料冠军皮肤](http://www.play.hengshemaoyi.cn/xiju/6207562.htm)
+- [12个脑洞大开的做饭方式！](http://www.daogukj.com/mrofapbq/)
+- [《不该存在的访客》继续用爱发电，耗费10000分钟制作，花费1000块](http://www.play.hengshemaoyi.cn/kongbu/5453073.htm)
+- [周启豪2-4新科世界第一松岛辉空](http://www.play.hengshemaoyi.cn/xiju/6087046.htm)
+- [深圳中小学将迎春秋假且不调休，会对双职工家庭带来哪些影响？](http://www.movie.hkepx.cn/movie/8965197.htm)
+- [胡歌称拍仙剑三很无聊](http://www.play.hengshemaoyi.cn/kongbu/7748359.htm)
+- [梅艳芳骨灰被盗](http://www.movie.hkepx.cn/xiju/0862966.htm)
+- [张帅组合女双决赛](http://www.play.hengshemaoyi.cn/kongbu/9726074.htm)
+- [史上最大退休潮来了，未来 14 年，平均每天 6 万人退休 ​，养老金体系该如何应对？](http://www.movie.hkepx.cn/movie/4830470.htm)
+- [两名中国男子国庆赴泰旅游失联](http://www.play.hengshemaoyi.cn/xiju/3660611.htm)
+- [喜剧的内核是悲剧，你对此有什么感受？](http://www.daogukj.com/7984737)
+- [梅启明悬赏5万港币欲寻回梅艳芳骨灰](http://www.movie.hkepx.cn/movie/5738447.htm)
+- [不到20人的团队配了76个AI员工](http://www.daogukj.com/cjltxhnp/)
+- [包贝尔出轨风波后与包文婧出游](http://www.play.hengshemaoyi.cn/kongbu/7175788.htm)
+- [银行业“反内卷”再升级](http://www.movie.hkepx.cn/movie/4124367.htm)
+- [张帅组合获中网女双亚军](http://www.play.hengshemaoyi.cn/xiju/7951635.htm)
+- [四部门发文严管汽车研发测试整治「速成车」，并设定一年三万公里指标，将对车企竞争和造车周期带来哪些改变？](http://www.play.hengshemaoyi.cn/xiju/9311263.htm)
+- [公路旁的山洞里出现了人民碎片](http://www.daogukj.com/qhynwuoo/)
+- [如何看待给大模型投毒被字节索赔800 万的前实习生开启创业，已获近三千万美元融资？你看好其创业前景吗？](http://www.play.hengshemaoyi.cn/xiju/2836720.htm)
+- [英国一男子闯动物园虎园遇袭身亡](http://www.daogukj.com/0046089)
+- [为什么五子棋始终没有发展起来？](http://www.play.hengshemaoyi.cn/kongbu/6160337.htm)
+- [新人第1次编曲耶](http://www.play.hengshemaoyi.cn/kongbu/7581667.htm)
+- [人民日报评刹车踏板风波](http://www.movie.hkepx.cn/movie/1557680.htm)
+- [如何评价电影《生化危机：爆发夜》的结局？](http://www.movie.hkepx.cn/movie/5183784.htm)
+- [中国人亲历机场遇袭：多人被巨响吓哭](http://www.movie.hkepx.cn/xiju/8111897.htm)
+- [王曼昱把日本选手打生气了](http://www.play.hengshemaoyi.cn/kongbu/4378701.htm)
+- [李连杰澄清抛妻弃子传闻](http://www.daogukj.com/7904792)
+- [后来的我才明白...](http://www.movie.hkepx.cn/xiju/7283893.htm)
+- [被《美人余》的“高端”饭局恶心到了](http://www.daogukj.com/4389315)
+- [张帅组合中网亚军](http://www.movie.hkepx.cn/xiju/0722929.htm)
+- [社保应该在应保尽保下功夫](http://www.play.hengshemaoyi.cn/kongbu/4443491.htm)
+- [网友：树枝挡到拍照了 广西：马上处理](http://www.daogukj.com/4354382)
+- [王安宇晒与黄景瑜合照](http://www.daogukj.com/4226089)
+- [张家齐妈妈饭下面怎么藏着肉](http://www.movie.hkepx.cn/xiju/3342028.htm)
+- [人社部提出「通过政策优化、数据找人等措施，力争基本养老保险参保率稳定在95%以上」，哪些信息值得关注？](http://www.daogukj.com/jkvkxuzz/)
 
 </details>
 
 ## 原始来源
 
-- [王仁君朗诵《七律·长征》](https://www.toutiao.com/trending/7694908768031113270/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%228%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227694908768031113270%22%2C%22hot_board_impr_id%22%3A%222026101111145824FC69FD38A9C414968C%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [26/27 赛季英超联赛第 6 轮曼联 1-1 热刺，如何评价这场比赛？](https://www.zhihu.com/question/2092412042389074237)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 92e05ec48f948b8fed88 -->
+<!-- content-fingerprint: c8005538d238c02516d2 -->
