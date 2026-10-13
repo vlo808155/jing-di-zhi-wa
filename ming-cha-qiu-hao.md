@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 夫妻点一杯58元咖啡只能一人落座，市监局称「一人一座一消费」合理与否不能一刀切判定，如何理解此事？
+# 超级“干净”的巴基斯坦汽水工厂，是一代人永远无法磨灭的伤痛
 
-> 来源：知乎热榜 · 排名：第 18 位 · 热度：92 万热度 · 分类：问答 · 更新：2026-10-13T16:22:56+08:00
+> 来源：哔哩哔哩热门 · 排名：第 18 位 · 热度：1290954 · 分类：美食侦探 · 更新：2026-10-14T00:11:42+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“夫妻点一杯58元咖啡只能一人落座，市监局称「一人一座一消费」合理与否不能一刀切判定，如何理解此事？”位列第 18 位，公开热度指标为 92 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“超级“干净”的巴基斯坦汽水工厂，是一代人永远无法磨灭的伤痛”位列第 18 位，公开热度指标为 1290954，榜单分类为“美食侦探”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，有网友在社交平台发帖吐槽，他和妻子途经青岛市黄岛区鱼鸣嘴梵夕咖啡店，进店选了一杯58元的香草籽咖啡准备付款时，被店家以“一人一座一消费”的规定拒绝入座，夫妻二人最终未在该店消费，这件事引发网友讨论。 发帖网友李先生告诉经视直播记者，当时他和妻子打算只点一杯咖啡，却被告知要遵守“一人一座一消费”的要求，否则无法落座。离开店内后，他们走到店门口二三十米外的一条长凳上坐下，商家工作人员随即上前告知该区域属于消费区，不能免费落座。二人在长凳上坐了三五分钟后离开。李先生认为，涉事咖啡店存在变相设置最低消费门槛的行为，质疑商家“一人一座一消费”的要求是霸王条款
+来源公开摘要显示：顾客：老板，有啥可乐之类的吗？ 聊版：有啊，没啥可乐 顾客：？
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `美食侦探`
 
 ## 相关热点
 
-- [精神小妹误闯天家](jian-wei-zhi-zhu.md)
-- [男生梦到妈妈去世醒来后情绪崩溃](du-ju-hui-yan.md)
-- [华熙生物原首席科学家郭学平病逝](bie-ju-jiang-xin.md)
-- [荒木飞吕彦称不理解《新世纪福音战士》等作品中「内心不想战斗的主角」，你更喜欢哪种？](qiao-duo-tian-gong.md)
+- [演员孙耀威被困电梯 现场画面曝光](jian-wei-zhi-zhu.md)
+- [黄奇帆接受审查调查](du-ju-hui-yan.md)
+- [AI女爱豆因怀孕暂停活动](bie-ju-jiang-xin.md)
+- [出去旅行有必要发朋友圈嘛?](qiao-duo-tian-gong.md)
 
 ## 站内推荐
 
-- [缅北四大家族覆灭时间线](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [领克10 EM-P坠百米崖舱体完好](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [男群演疑似猥亵女演员 剧组回应](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [《名侦探柯南》中服部平次终向和叶告白成功，如何评价这一剧情设计？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [【A2O】A2O LITE 'NEON' Official Video](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [老人凌晨下地干活被气枪击中身亡](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [机器狗进哀牢山拍到“冥界之花”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [传奇历史人物志——普朗克](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [德柱超市打工初体验](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [赵露思亲友自嗨神作《我不是npc》](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [为什么很多野生动物隔着很远就知道要躲人？](http://www.daogukj.com/4857502)
-- [华为披露下一代麒麟芯片进展](http://www.daogukj.com/fxomsuem/)
-- [去中国工厂“打卡”](http://www.play.hengshemaoyi.cn/xiju/4881423.htm)
-- [官方通报滴露物化女性广告](http://www.movie.hkepx.cn/xiju/2224998.htm)
-- [为什么李一桐演技一般，但每部电视都是女一？](http://www.daogukj.com/xislksiq/)
-- [霸王茶姬赠送奶茶成本加盟商承担](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
-- [楼上百日宴楼下婚宴最无辜的是孩子](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
-- [“新月飨宴”主题活动故事视频爆料：——“欢迎光临午夜的魔法厨房！今日是谁携美味闪亮登场？”](http://www.movie.hkepx.cn/xiju/3925704.htm)
-- [“轮回百世，嘴硬百世。”](http://www.daogukj.com/zjqbftsa/)
-- [白鹿泰国见面会退票](http://www.daogukj.com/odtszjmj/)
-- [特朗普为什么突然“倒向”俄罗斯](http://www.movie.hkepx.cn/movie/8285885.htm)
-- [男群演疑似猥亵女演员 剧组回应](http://www.movie.hkepx.cn/xiju/1770369.htm)
-- [缅北四大家族覆灭时间线](http://www.daogukj.com/8527580)
-- [缅北魏家犯罪集团覆灭始末](http://www.daogukj.com/9299314)
-- [网红晚安安自述从35楼坠楼生还经历](http://www.daogukj.com/5812229)
-- [乔丹比赛球衣拍出1400万美元](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
-- [苏联版“空中监狱”是什么？【神奇组织55】](http://www.daogukj.com/5338633)
-- [雅思](http://www.movie.hkepx.cn/xiju/7272064.htm)
-- [精神小妹误闯天家](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
-- [今年诺奖颁给了“大脑的开关”：光遗传学到底是什么](http://www.daogukj.com/3351222)
-- [肖战要求100%公开售票](http://www.play.hengshemaoyi.cn/xiju/0501282.htm)
-- [雅思主办方致歉](http://www.movie.hkepx.cn/movie/7142641.htm)
-- [《名侦探柯南》中服部平次终向和叶告白成功，如何评价这一剧情设计？](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
-- [媒体曝付费可进「中国天眼」核心区，中科院已成立调查组，这会对科研观测造成哪些危害？暴露出哪些管理问题？](http://www.movie.hkepx.cn/xiju/5072930.htm)
-- [【目标是最强共鸣者】第一话 流浪骑士卡提希娅，参上！](http://www.daogukj.com/mkxvsuhn/)
-- [吃播女网红去世前多次展示手背上的针眼](http://www.daogukj.com/9044973)
-- [国考](http://www.daogukj.com/6197852)
-- [“各位都什么原因没买一艘呢”](http://www.daogukj.com/ryrqoiii/)
-- [35岁前策划用5万元的token做出纯AI游戏，他说“单人能搓《原神》”，你认为这是暴论还是预言？](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
-- [男子标注贩毒人员车辆为某品牌被抓](http://www.play.hengshemaoyi.cn/kongbu/7063878.htm)
-- [中方：印度公布“标准地名”非法无效](http://www.movie.hkepx.cn/movie/2552102.htm)
-- [中方坚决反对印度方公布所谓标准地名](http://www.movie.hkepx.cn/xiju/2129564.htm)
-- [夫妻点一杯58元咖啡只能一人落座](http://www.daogukj.com/1731517)
-- [Visa中国获准筹备银行卡清算机构](http://www.daogukj.com/0178251)
-- [王兴兴称过去犯的最大的错是不够相信AI，如何看待此番言论？全力拥抱 AI 会给机器人行业带来哪些改变？](http://www.movie.hkepx.cn/movie/2491274.htm)
-- [如何看待海贼王漫画1187话，山治觉醒霸王色霸气？](http://www.daogukj.com/1710555)
-- [女孩刚出生妈妈去世 舅妈抚养22年](http://www.daogukj.com/iqnxgakx/)
-- [老人经常睡懒觉身体会有何变化](http://www.daogukj.com/evhpdqcv/)
-- [我来到了世界第10小国，生活在地中海岛上的人幸福吗?](http://www.movie.hkepx.cn/movie/9669872.htm)
-- [24岁女吃播猝死 或因缺钾](http://www.play.hengshemaoyi.cn/xiju/7739320.htm)
-- [赵露思亲友自嗨神作《我不是npc》](http://www.movie.hkepx.cn/xiju/6624711.htm)
-- [男子造谣多名游泳者死亡被依法处理](http://www.movie.hkepx.cn/movie/0041132.htm)
-- [荒木飞吕彦称不理解《新世纪福音战士》等作品中「内心不想战斗的主角」，你更喜欢哪种？](http://www.movie.hkepx.cn/xiju/9486629.htm)
-- [乌铜走银](http://www.movie.hkepx.cn/movie/9796335.htm)
-- [拦不住！当5岁小孩非要尝试重庆火锅...](http://www.daogukj.com/0823826)
-- [马克林去世 外交部：深切哀悼](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
-- [你我的长征](http://www.movie.hkepx.cn/movie/5397309.htm)
-- [土豆减肥降血压？土豆真能代替米饭面条吗？【主播说三农】](http://www.daogukj.com/0899815)
-- [外交部：对中国经济发展前景有信心](http://www.play.hengshemaoyi.cn/xiju/2828553.htm)
-- [星野源新垣结衣孩子出生](http://www.daogukj.com/cachqmkl/)
+- [《复联5》前必看！《复联4》后到底发生了啥？](http://www.daogukj.com/4857502)
+- [24岁女吃播猝死 或因缺钾](http://www.daogukj.com/fxomsuem/)
+- [未来五年看病就医会有哪些新变化](http://www.play.hengshemaoyi.cn/xiju/4881423.htm)
+- [疑似肖战经纪人朋友圈](http://www.movie.hkepx.cn/xiju/2224998.htm)
+- [红色热土上的新答卷](http://www.daogukj.com/xislksiq/)
+- [33岁销冠确诊胃癌晚期突然被辞退](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
+- [媒体评女子因老板拍肩上菜摔盘走人](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
+- [苏联版“空中监狱”是什么？【神奇组织55】](http://www.movie.hkepx.cn/xiju/3925704.htm)
+- [老人凌晨下地干活被气枪击中身亡，持气枪打猎合法吗？案件还有哪些疑点待查？涉事人员将承担什么法律责任？](http://www.daogukj.com/zjqbftsa/)
+- [问界汽车拟于2027年进入欧洲市场，赛力斯曾表示正推进问界车型全系出海，在海外还能复制国内热度吗？](http://www.daogukj.com/odtszjmj/)
+- [79岁老干妈陶华碧用AI一年赚54亿](http://www.movie.hkepx.cn/movie/8285885.htm)
+- [传奇历史人物志——普朗克](http://www.movie.hkepx.cn/xiju/1770369.htm)
+- [老人凌晨下地干活被气枪击中身亡](http://www.daogukj.com/8527580)
+- [方便面煮着吃为什么比泡着吃更香？](http://www.daogukj.com/9299314)
+- [有的孩子膝盖摔破了贴上创可贴还继续玩，有的稍微摔下什么伤都没有还哭成泪人，背后的真相是什么？](http://www.daogukj.com/5812229)
+- [患者送1.9元汽水后举报工作人员收礼](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
+- [如何看待Andrej Karpathy提出「AI能力认知漏斗」，少数专业人士已开始有「眩晕感」？](http://www.daogukj.com/5338633)
+- [10岁女童被男老师摸脸家长索赔20万](http://www.movie.hkepx.cn/xiju/7272064.htm)
+- [演员孙耀威被困电梯 现场画面曝光](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
+- [厚本回应特殊面容](http://www.daogukj.com/3351222)
+- [你们认为芯片圈里哪家公司的产品命名最为混乱？](http://www.play.hengshemaoyi.cn/xiju/0501282.htm)
+- [送1.9元汽水患者连续投诉医生2年](http://www.movie.hkepx.cn/movie/7142641.htm)
+- [德柱超市打工初体验](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
+- [雷波县教师被安排与「耻辱」二字合影，近 50 天仍未公布调查结果，为啥迟迟不公布？调查的难点在哪儿？](http://www.movie.hkepx.cn/xiju/5072930.htm)
+- [乌铜走银](http://www.daogukj.com/mkxvsuhn/)
+- [居民投诉月亮太亮影响睡觉白岩松回应](http://www.daogukj.com/9044973)
+- [人民日报评“双汇处罚到人”](http://www.daogukj.com/6197852)
+- [老了也要保持卡点上班的优雅习惯【AI全民制作人】](http://www.daogukj.com/ryrqoiii/)
+- [为什么这么多人讨厌陈岩石夫妇在饭桌上向沙瑞金告状的行为？](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
+- [长期用电动牙刷牙龈萎缩出血？误区](http://www.play.hengshemaoyi.cn/kongbu/7063878.htm)
+- [第一个抵制粉丝云包场的艺人](http://www.movie.hkepx.cn/movie/2552102.htm)
+- [湖北一老人下地干活被气枪击中身亡](http://www.movie.hkepx.cn/xiju/2129564.htm)
+- [机器狗第1次进哀牢山就拍到冥界之花](http://www.daogukj.com/1731517)
+- [苹果正式进军智能家居市场](http://www.daogukj.com/0178251)
+- [夫妻点一杯58元咖啡只能一人落座，市监局称「一人一座一消费」合理与否不能一刀切判定，如何理解此事？](http://www.movie.hkepx.cn/movie/2491274.htm)
+- [同姓的人一定拥有共同的祖先吗？](http://www.daogukj.com/1710555)
+- [《银牌的眼泪》｜最痛的，不是失败，是“差一点”](http://www.daogukj.com/iqnxgakx/)
+- [如何评价动画电影《小猪佩奇·完美假期》？](http://www.daogukj.com/evhpdqcv/)
+- [住手 你们不要再摇花手了](http://www.movie.hkepx.cn/movie/9669872.htm)
+- [血液太“黏”的5个信号](http://www.play.hengshemaoyi.cn/xiju/7739320.htm)
+- [冬天来了波司登却卖不动了吗](http://www.movie.hkepx.cn/xiju/6624711.htm)
+- [2027国考笔试公告发布，共计划招录3.57万人，笔试11月29日举行，今年有哪些变化？](http://www.movie.hkepx.cn/movie/0041132.htm)
+- [出去旅行有必要发朋友圈嘛?](http://www.movie.hkepx.cn/xiju/9486629.htm)
+- [朱琳真的美貌绝伦吗？为什么我看央视版《西游记》时觉得女儿国国王出场无感，蝎子精出场才有惊艳的感觉？](http://www.movie.hkepx.cn/movie/9796335.htm)
+- [吃播 催吐](http://www.daogukj.com/0823826)
+- [肖战全票发售撕开行业潜规则遮羞布](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
+- [永不褪色的红飘带](http://www.movie.hkepx.cn/movie/5397309.htm)
+- [今年诺奖颁给了“大脑的开关”：光遗传学到底是什么](http://www.daogukj.com/0899815)
+- [被送蛋！张帅止步武网首轮](http://www.play.hengshemaoyi.cn/xiju/2828553.htm)
+- [50块钱可以在熟食店卖那些东西？](http://www.daogukj.com/cachqmkl/)
 
 </details>
 
 ## 原始来源
 
-- [夫妻点一杯58元咖啡只能一人落座，市监局称「一人一座一消费」合理与否不能一刀切判定，如何理解此事？](https://www.zhihu.com/question/2093309415939991490)
+- [超级“干净”的巴基斯坦汽水工厂，是一代人永远无法磨灭的伤痛](https://b23.tv/BV1VKpR6TEa7)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: b3a1e46afd65753fcd43 -->
+<!-- content-fingerprint: 5bf68a7cf462deeab6d2 -->

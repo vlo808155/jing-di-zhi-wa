@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 微信消费数据显示「边陲城市消费增长超 60%」，反映了怎样的消费趋势？
+# 2026 年诺贝尔经济学奖表彰宏观经济研究，为什么经济学家仍难以预测经济危机？
 
-> 来源：知乎热榜 · 排名：第 20 位 · 热度：77 万热度 · 分类：问答 · 更新：2026-10-13T16:22:56+08:00
+> 来源：知乎热榜 · 排名：第 20 位 · 热度：59 万热度 · 分类：问答 · 更新：2026-10-14T00:11:42+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“微信消费数据显示「边陲城市消费增长超 60%」，反映了怎样的消费趋势？”位列第 20 位，公开热度指标为 77 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“2026 年诺贝尔经济学奖表彰宏观经济研究，为什么经济学家仍难以预测经济危机？”位列第 20 位，公开热度指标为 59 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：10 月 7 日，微信团队发布《2026 中秋国庆微信数据报告》。报告显示，今年跨省游人次占比近六成，消费热度由热门城市延伸至边陲地区；与此同时，长假也让距离较远的欧洲成为更多中国游客的目的地，出行半径扩大成为拉动消费增长的主要动力。 数据显示边陲城市消费笔数同比增长超 60%；停车、机动车充电、航空类小程序交易金额分别增长 54%、58%、38%；内地居民赴港消费笔数增近 30%，港人北上消费笔数增逾 50%；出国游中，欧洲国家微信支付笔数增速占前 20 国的 60%。 此外，微信读书日均阅读时长 56 分钟，微信运动人均日步数 5991 步。（来源：
+来源公开摘要显示：新华社斯德哥尔摩10月12日电 瑞典皇家科学院12日宣布，将2026年诺贝尔经济学奖授予美国经济学家罗伯特·霍尔和迈克尔·伍德福德，以表彰他们在奠定宏观经济稳定政策的微观经济学基础研究领域的突出贡献。两名美国经济学家获2026年诺贝尔经济学奖-新华网
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [【A2O】A2O LITE 'NEON' Official Video](xu-xu-ru-sheng.md)
-- [乔丹比赛球衣拍出1400万美元](huo-ling-huo-xian.md)
-- [国考岗位](you-sheng-you-se.md)
-- [华为披露下一代麒麟芯片进展](yin-ren-ru-sheng.md)
+- [赵露思亲友自嗨神作《我不是npc》](xu-xu-ru-sheng.md)
+- [患者送1.9元汽水后举报工作人员收礼](huo-ling-huo-xian.md)
+- [苹果发布会](you-sheng-you-se.md)
+- [24岁女吃播猝死 或因缺钾](yin-ren-ru-sheng.md)
 
 ## 站内推荐
 
-- [孩子越来越笨 AI正在惩罚下一代](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [吃播女网红去世前多次展示手背上的针眼](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [雅思](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [AI女爱豆因怀孕暂停活动](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [超1/3法国受访者愿购买中国品牌汽车](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [33岁销冠确诊胃癌晚期后突然被辞退](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [居民投诉月亮太亮影响睡觉白岩松回应](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [10岁女童被男老师摸脸家长索赔20万](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [刘国梁16岁女儿刘宇婕登顶高尔夫中国女子公开赛，成赛事创办以来首位业余冠军，哪些信息值得关注？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [江淮汽车股价一度大涨近 9%，这一轮上涨是否预示市场情绪迎来反转？涨势能持续多久？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [男群演疑似猥亵女演员 剧组回应](http://www.play.hengshemaoyi.cn/xiju/2367459.htm)
-- [教师因成绩差被迫耻辱合影调查进度0](http://www.daogukj.com/whykihfw/)
-- [缅北魏家犯罪集团覆灭始末](http://www.daogukj.com/1896871)
-- [周也大学四年到底学的什么](http://www.movie.hkepx.cn/movie/7726331.htm)
-- [我来到了世界第10小国，生活在地中海岛上的人幸福吗?](http://www.play.hengshemaoyi.cn/kongbu/7591988.htm)
-- [夫妻点一杯58元咖啡只能一人落座](http://www.movie.hkepx.cn/movie/9833785.htm)
-- [肖战工作室呼吁抵制黄牛票](http://www.movie.hkepx.cn/movie/5639163.htm)
-- [机器狗第一次进哀牢山就拍到冥界之花](http://www.daogukj.com/2186746)
-- [大蛇盘踞厕所 消防出勤30多次终抓获](http://www.play.hengshemaoyi.cn/kongbu/2268018.htm)
-- [网友称村上春树每天凌晨4点起、晚9点睡，一天工作5小时，剩余时间休息，真的吗？这样的生活方式健康吗？](http://www.play.hengshemaoyi.cn/kongbu/6473132.htm)
-- [女孩刚出生妈妈去世 舅妈抚养22年](http://www.daogukj.com/1106243)
-- [商人侵害14岁女孩案女孩确诊PTSD，至今无法就学就业，法律如何为其提供更充分赔偿？](http://www.play.hengshemaoyi.cn/xiju/5943556.htm)
-- [问界汽车拟于2027年进入欧洲市场，赛力斯曾表示正推进问界车型全系出海，在海外还能复制国内热度吗？](http://www.daogukj.com/9530499)
-- [苏联版“空中监狱”是什么？【神奇组织55】](http://www.movie.hkepx.cn/xiju/0808829.htm)
-- [央视曝光大棚闲置后当地连夜开会](http://www.play.hengshemaoyi.cn/kongbu/8834808.htm)
-- [一梯一户真的安全吗？运行规则是啥？](http://www.movie.hkepx.cn/xiju/0940758.htm)
-- [郭碧婷的美貌后继有人了](http://www.movie.hkepx.cn/movie/9022890.htm)
-- [上海一女子买房8年才知被登记赠与](http://www.play.hengshemaoyi.cn/kongbu/2216390.htm)
-- [华熙生物原首席科学家郭学平病逝](http://www.play.hengshemaoyi.cn/xiju/1375823.htm)
-- [男子造谣多名游泳者死亡被依法处理](http://www.daogukj.com/goeqgpai/)
-- [网红晚安安自述从35楼坠楼生还经历](http://www.play.hengshemaoyi.cn/kongbu/1757591.htm)
-- [2027国考笔试公告发布，共计划招录3.57万人，笔试11月29日举行，今年有哪些变化？](http://www.play.hengshemaoyi.cn/kongbu/9879555.htm)
-- [孩子越来越笨 AI正在惩罚下一代](http://www.play.hengshemaoyi.cn/xiju/7503553.htm)
-- [霸王茶姬赠送奶茶成本加盟商承担](http://www.movie.hkepx.cn/xiju/5861166.htm)
-- [男生梦到妈妈去世醒来后情绪崩溃](http://www.play.hengshemaoyi.cn/xiju/5549607.htm)
-- [“各位都什么原因没买一艘呢”](http://www.play.hengshemaoyi.cn/kongbu/6769731.htm)
-- [Visa中国获准筹备银行卡清算机构](http://www.play.hengshemaoyi.cn/xiju/8003531.htm)
-- [中方坚决反对印度方公布所谓标准地名](http://www.movie.hkepx.cn/xiju/9172364.htm)
-- [网红晚安安从35楼坠落生还 右腿截肢](http://www.movie.hkepx.cn/movie/6262590.htm)
-- [恋综男嘉宾回避赵奕欢的原因](http://www.play.hengshemaoyi.cn/kongbu/5906748.htm)
-- [私募大佬梁宏开炮称「某些险资巨头追涨杀跌的操作实在令人费解」，反映了当前 A 股怎样的生态？](http://www.daogukj.com/goynbzba/)
-- [为什么很多野生动物隔着很远就知道要躲人？](http://www.daogukj.com/oqkhnwnb/)
-- [【目标是最强共鸣者】第一话 流浪骑士卡提希娅，参上！](http://www.movie.hkepx.cn/xiju/8878997.htm)
-- [北美花生晒字节跳动入职邮件和工卡](http://www.daogukj.com/frbhpamg/)
-- [白鹿泰国见面会退票](http://www.daogukj.com/8218296)
-- [荒木飞吕彦称不理解《新世纪福音战士》等作品中「内心不想战斗的主角」，你更喜欢哪种？](http://www.movie.hkepx.cn/xiju/3382411.htm)
-- [国考岗位](http://www.play.hengshemaoyi.cn/kongbu/3195197.htm)
-- [土豆减肥降血压？土豆真能代替米饭面条吗？【主播说三农】](http://www.movie.hkepx.cn/xiju/8373508.htm)
-- [吃播女网红去世前多次展示手背上的针眼](http://www.daogukj.com/uamigzyj/)
-- [夫妻点一杯58元咖啡只能一人落座，市监局称「一人一座一消费」合理与否不能一刀切判定，如何理解此事？](http://www.daogukj.com/uevljbcs/)
-- [中方：印度公布“标准地名”非法无效](http://www.play.hengshemaoyi.cn/xiju/4322946.htm)
-- [超1/3法国受访者愿购买中国品牌汽车](http://www.movie.hkepx.cn/movie/3471289.htm)
-- [79岁老干妈陶华碧用AI一年赚了54亿](http://www.movie.hkepx.cn/movie/3873340.htm)
-- [如何看待海贼王漫画1187话，山治觉醒霸王色霸气？](http://www.daogukj.com/0908523)
-- [赵露思亲友自嗨神作《我不是npc》](http://www.daogukj.com/7782066)
-- [华为披露下一代麒麟芯片进展](http://www.play.hengshemaoyi.cn/kongbu/3377780.htm)
-- [《硬邦邦の八字》](http://www.play.hengshemaoyi.cn/xiju/9852587.htm)
-- [警方已确认与未成年金赛纶交往男星](http://www.daogukj.com/njwfupeo/)
-- [鸡蛋价格一个月下跌近 25%，从 6 元跌回 4 元时代，背后是什么原因？接下来还会继续降价吗？](http://www.play.hengshemaoyi.cn/kongbu/1527267.htm)
-- [滴露广告物化女性 被罚超100万](http://www.play.hengshemaoyi.cn/xiju/3775329.htm)
+- [传奇历史人物志——普朗克](http://www.play.hengshemaoyi.cn/xiju/2367459.htm)
+- [“0糖”到底有没有糖](http://www.daogukj.com/whykihfw/)
+- [方便面煮着吃为什么比泡着吃更香？](http://www.daogukj.com/1896871)
+- [4800元学习机AI讲题6遍讲出6个样](http://www.movie.hkepx.cn/movie/7726331.htm)
+- [住手 你们不要再摇花手了](http://www.play.hengshemaoyi.cn/kongbu/7591988.htm)
+- [机器狗第1次进哀牢山就拍到冥界之花](http://www.movie.hkepx.cn/movie/9833785.htm)
+- [小酒窝被医生夸比着尺子长的](http://www.movie.hkepx.cn/movie/5639163.htm)
+- [红果短剧千万别下载](http://www.daogukj.com/2186746)
+- [63小时？疯狂就在当下！！面包车直达新疆！赛里木湖！没白活！](http://www.play.hengshemaoyi.cn/kongbu/2268018.htm)
+- [为什么咒术回战不义游戏一个辅助类技能可以打死特级咒灵？](http://www.play.hengshemaoyi.cn/kongbu/6473132.htm)
+- [《银牌的眼泪》｜最痛的，不是失败，是“差一点”](http://www.daogukj.com/1106243)
+- [男群演疑似猥亵女演员 剧组回应](http://www.play.hengshemaoyi.cn/xiju/5943556.htm)
+- [大闸蟹为何跌出“地板价”](http://www.daogukj.com/9530499)
+- [如何看待Andrej Karpathy提出「AI能力认知漏斗」，少数专业人士已开始有「眩晕感」？](http://www.movie.hkepx.cn/xiju/0808829.htm)
+- [百果园2年亏掉了7个亿](http://www.play.hengshemaoyi.cn/kongbu/8834808.htm)
+- [《硬邦邦の八字》](http://www.movie.hkepx.cn/xiju/0940758.htm)
+- [法国人为什么愿意买中国车](http://www.movie.hkepx.cn/movie/9022890.htm)
+- [黄奇帆被查](http://www.play.hengshemaoyi.cn/kongbu/2216390.htm)
+- [AI女爱豆因怀孕暂停活动](http://www.play.hengshemaoyi.cn/xiju/1375823.htm)
+- [2027国考笔试公告发布，共计划招录3.57万人，笔试11月29日举行，今年有哪些变化？](http://www.daogukj.com/goeqgpai/)
+- [有的孩子膝盖摔破了贴上创可贴还继续玩，有的稍微摔下什么伤都没有还哭成泪人，背后的真相是什么？](http://www.play.hengshemaoyi.cn/kongbu/1757591.htm)
+- [A股上演“大奇迹日”](http://www.play.hengshemaoyi.cn/kongbu/9879555.htm)
+- [33岁销冠确诊胃癌晚期后突然被辞退](http://www.play.hengshemaoyi.cn/xiju/7503553.htm)
+- [33岁销冠确诊胃癌晚期突然被辞退](http://www.movie.hkepx.cn/xiju/5861166.htm)
+- [黄奇帆接受审查调查](http://www.play.hengshemaoyi.cn/xiju/5549607.htm)
+- [老了也要保持卡点上班的优雅习惯【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/6769731.htm)
+- [苹果正式进军智能家居市场](http://www.play.hengshemaoyi.cn/xiju/8003531.htm)
+- [湖北一老人下地干活被气枪击中身亡](http://www.movie.hkepx.cn/xiju/9172364.htm)
+- [73岁迟重瑞面色红润热情回应路人](http://www.movie.hkepx.cn/movie/6262590.htm)
+- [任泽平谈诺贝尔经济学奖](http://www.play.hengshemaoyi.cn/kongbu/5906748.htm)
+- [好好好，在暗部狙击我是吧！？鬼叔食堂！](http://www.daogukj.com/goynbzba/)
+- [《复联5》前必看！《复联4》后到底发生了啥？](http://www.daogukj.com/oqkhnwnb/)
+- [乌铜走银](http://www.movie.hkepx.cn/xiju/8878997.htm)
+- [俄称打击乌远程导弹和无人机生产车间](http://www.daogukj.com/frbhpamg/)
+- [问界汽车拟于2027年进入欧洲市场，赛力斯曾表示正推进问界车型全系出海，在海外还能复制国内热度吗？](http://www.daogukj.com/8218296)
+- [出去旅行有必要发朋友圈嘛?](http://www.movie.hkepx.cn/xiju/3382411.htm)
+- [苹果发布会](http://www.play.hengshemaoyi.cn/kongbu/3195197.htm)
+- [今年诺奖颁给了“大脑的开关”：光遗传学到底是什么](http://www.movie.hkepx.cn/xiju/8373508.htm)
+- [居民投诉月亮太亮影响睡觉白岩松回应](http://www.daogukj.com/uamigzyj/)
+- [超级“干净”的巴基斯坦汽水工厂，是一代人永远无法磨灭的伤痛](http://www.daogukj.com/uevljbcs/)
+- [第一个抵制粉丝云包场的艺人](http://www.play.hengshemaoyi.cn/xiju/4322946.htm)
+- [江淮汽车股价一度大涨近 9%，这一轮上涨是否预示市场情绪迎来反转？涨势能持续多久？](http://www.movie.hkepx.cn/movie/3471289.htm)
+- [高志凯：台海若爆发战争没开战就结束](http://www.movie.hkepx.cn/movie/3873340.htm)
+- [同姓的人一定拥有共同的祖先吗？](http://www.daogukj.com/0908523)
+- [冬天来了波司登却卖不动了吗](http://www.daogukj.com/7782066)
+- [24岁女吃播猝死 或因缺钾](http://www.play.hengshemaoyi.cn/kongbu/3377780.htm)
+- [重庆市原市长黄奇帆被查](http://www.play.hengshemaoyi.cn/xiju/9852587.htm)
+- [金晨说王楚然在现发撒得开](http://www.daogukj.com/njwfupeo/)
+- [菲副总统怒批总统对中国鲁莽挑衅](http://www.play.hengshemaoyi.cn/kongbu/1527267.htm)
+- [16岁女孩打咏春拳快出残影](http://www.play.hengshemaoyi.cn/xiju/3775329.htm)
 
 </details>
 
 ## 原始来源
 
-- [微信消费数据显示「边陲城市消费增长超 60%」，反映了怎样的消费趋势？](https://www.zhihu.com/question/2091468440653362456)
+- [2026 年诺贝尔经济学奖表彰宏观经济研究，为什么经济学家仍难以预测经济危机？](https://www.zhihu.com/question/2093043982565470288)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0a5e3bbfa9a0d8691290 -->
+<!-- content-fingerprint: e26fc5f12e7f11617bf4 -->
