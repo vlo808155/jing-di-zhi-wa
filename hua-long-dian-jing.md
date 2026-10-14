@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 护:哥你这不是给我俩送钱吗？护：不对！我掉进陷阱了！打了两天还是零进度的护子终于发现事情的严重性了
+# 两口子奄奄一息在家数钱吗
 
-> 来源：哔哩哔哩热门 · 排名：第 19 位 · 热度：733959 · 分类：网络游戏 · 更新：2026-10-14T18:08:14+08:00
+> 来源：微博热搜 · 排名：第 20 位 · 热度：292580 · 分类：情感 · 更新：2026-10-14T23:04:59+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“护:哥你这不是给我俩送钱吗？护：不对！我掉进陷阱了！打了两天还是零进度的护子终于发现事情的严重性了”位列第 19 位，公开热度指标为 733959，榜单分类为“网络游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“两口子奄奄一息在家数钱吗”位列第 20 位，公开热度指标为 292580，榜单分类为“情感”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：感谢各位义父的支持
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `网络游戏`
+`微博热搜` `实时热搜` `热点资讯` `情感`
 
 ## 相关热点
 
-- [女子听劝多查几遍 确诊早期乳腺癌](miao-bi-sheng-hua.md)
-- [油价明晚或迎年内第6次下调](sheng-dong-huo-po.md)
-- [如果人类会光合作用，还用上班吗？](xu-xu-ru-sheng.md)
-- [或许在某个平行宇宙中，他们的故事是这样展开的.....](huo-ling-huo-xian.md)
+- [妈妈误寄50斤羊粪到女儿母校放了20天](miao-bi-sheng-hua.md)
+- [如果人类会光合作用，还用上班吗？](sheng-dong-huo-po.md)
+- [常用医学小技能，才不是武术什么的呢](xu-xu-ru-sheng.md)
+- [男子高铁座位旁脱裤排便 12306回应](huo-ling-huo-xian.md)
 
 ## 站内推荐
 
-- [王星自曝在缅甸手机被拿走刷网贷，从法律角度看，被胁迫借下的网贷该还吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [百果园2年亏掉了7个亿，问题出在哪里？百果园既想做高品质水果，又想强调高性价比，品牌定位该如何取舍？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [宇树王兴兴在工博会上说，明年的 GPT-7 有可能「击穿」具身智能现在的瓶颈，你怎么看？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [为什么熊大熊二不许光头强伤害小动物，自己却捉鱼吃?](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [大庆，一座孤独的城市](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [微信上线绿泡泡短剧，腾讯此前多次进军短剧市场都效果平平，这次能成功吗？能撼动红果的地位吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [“这波秒开仙人，直接把六小龄童看呆了！”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [【萌黄一槽】是谁“电眼逼人”？迪鲁达全技能爆料！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [胡先煦 刁卓](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [奚梦瑶和现在简直判若两人](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [松岛辉空闪光灯事件真相大白](http://www.movie.hkepx.cn/movie/8910900.htm)
-- [《异环》明音凛角色PV丨Letters to me](http://www.play.hengshemaoyi.cn/kongbu/1452959.htm)
-- [香港发生珠宝大劫案](http://www.movie.hkepx.cn/movie/4326545.htm)
-- [有人高铁上开免提打 1 小时电话，前排乘客发声制止却被反问「和你有什么关系」，这种情况怎样处理最有效？](http://www.movie.hkepx.cn/movie/1643509.htm)
-- [宇树王兴兴在工博会上说，明年的 GPT-7 有可能「击穿」具身智能现在的瓶颈，你怎么看？](http://www.daogukj.com/3734905)
-- [医务人员收1.9元汽水被举报，涉事医院称不违反医德医风，当事人已报警，这算恶意举报吗？举报人要担责吗？](http://www.play.hengshemaoyi.cn/kongbu/4707077.htm)
-- [今天的飞拉达不简单啊，上来就是悬崖小飞车！](http://www.play.hengshemaoyi.cn/xiju/9679366.htm)
-- [鲁H2M222偶遇鲁H2W222](http://www.movie.hkepx.cn/movie/8897904.htm)
-- [网民编造起火消防车进不去被批评](http://www.play.hengshemaoyi.cn/xiju/8041326.htm)
-- [黄奇帆落马次日重庆开会表态](http://www.daogukj.com/8279615)
-- [原来这才是正确的消费观](http://www.movie.hkepx.cn/xiju/6205852.htm)
-- [官方通报女子高铁和男友开免提通话](http://www.movie.hkepx.cn/xiju/0712642.htm)
-- [人民日报评“双汇处罚到人”](http://www.movie.hkepx.cn/xiju/6035249.htm)
-- [陈小春失散多年的弟弟](http://www.daogukj.com/4744923)
-- [大庆，一座孤独的城市](http://www.movie.hkepx.cn/movie/5089029.htm)
-- [金晨自曝刚交完学费学校倒闭了](http://www.movie.hkepx.cn/movie/2615772.htm)
-- [为什么弹弓现在成了富哥运动？](http://www.play.hengshemaoyi.cn/kongbu/7334127.htm)
-- [新鸭绿江大桥仅用于货运？中方回应](http://www.daogukj.com/ptpekaap/)
-- [伍浩被双开](http://www.daogukj.com/7356664)
-- [女子听劝多查几遍 确诊早期乳腺癌](http://www.daogukj.com/ayichqdz/)
-- [红果短剧 降智](http://www.movie.hkepx.cn/xiju/2706147.htm)
-- [10岁女童被男老师摸脸 家长索赔20万](http://www.play.hengshemaoyi.cn/xiju/6688215.htm)
-- [辽宁盘锦地震](http://www.daogukj.com/cndcdbte/)
-- [霸王茶姬格局](http://www.daogukj.com/3515388)
-- [郑钦文夺冠，上汽奥迪发文「AUDI 全系买一送一」，送的却是车模引发热议，大家怎么看？](http://www.movie.hkepx.cn/movie/2280366.htm)
-- [《动物园之星2》正式上线！纯水族、大鸟舍首度登场，去广袤保护区放归生灵！](http://www.movie.hkepx.cn/xiju/9102843.htm)
-- [黑龙江代表团访日俄争议岛？中方回应](http://www.movie.hkepx.cn/xiju/6537051.htm)
-- [A股收评：超4400只个股飘绿](http://www.daogukj.com/vzsgeebf/)
-- [项羽如果得了天下，能治理好天下吗?会超过刘邦吗？](http://www.play.hengshemaoyi.cn/kongbu/3922698.htm)
-- [舒客广告“跟8个男人接吻”被罚50万](http://www.play.hengshemaoyi.cn/kongbu/6040149.htm)
-- [2026全球总决赛LPL赛区出征片《风起今朝》](http://www.daogukj.com/4077362)
-- [国台办肯定吴奇隆等台湾艺人祝福祖国](http://www.movie.hkepx.cn/movie/8186635.htm)
-- [同卵双胞胎能长得几乎一样，为什么偏偏复制不了指纹？](http://www.daogukj.com/hrahgoeh/)
-- [75元一斤卤牛肉竟是猪肉](http://www.movie.hkepx.cn/xiju/7623213.htm)
-- [徐良能抢到肖战的票吗](http://www.play.hengshemaoyi.cn/kongbu/4814140.htm)
-- [缅北四大家族3个已被中国宣判](http://www.daogukj.com/3537481)
-- [秋天建议多吃这种水果](http://www.play.hengshemaoyi.cn/kongbu/7154027.htm)
-- [小鹏正式宣布开始对外卖技术](http://www.play.hengshemaoyi.cn/xiju/0242395.htm)
-- [王星自曝在缅甸手机被拿走刷网贷，从法律角度看，被胁迫借下的网贷该还吗？](http://www.play.hengshemaoyi.cn/xiju/7718342.htm)
-- [中朝新鸭绿江大桥明日开通](http://www.play.hengshemaoyi.cn/kongbu/7089205.htm)
-- [国内不起眼的东西竟在非洲火了](http://www.play.hengshemaoyi.cn/xiju/7227900.htm)
-- [百日宴孩子母亲道歉](http://www.daogukj.com/9191044)
-- [群演疑似猥亵女演员，《此处通往繁星》剧组回应将撤下争议片段并调查，若属实剧组及涉事演员需承担哪些责任？](http://www.daogukj.com/6256754)
-- [网传“禁止教师用AI备课”系误读](http://www.play.hengshemaoyi.cn/kongbu/3838323.htm)
-- [肖战演唱会全网找不到人脉](http://www.movie.hkepx.cn/movie/3822357.htm)
-- [贾静雯证实女儿恋情](http://www.movie.hkepx.cn/movie/9519234.htm)
-- [“这波秒开仙人，直接把六小龄童看呆了！”](http://www.play.hengshemaoyi.cn/xiju/4782804.htm)
-- [如何评价老干妈引入AI 用于检验辣椒品质，将600人生产线减至48人？AI 能给食品制造业带来啥改变？](http://www.daogukj.com/urxbddis/)
-- [拳头限制《英雄联盟》下载他人录像权限，这将对游戏生态产生哪些影响？](http://www.movie.hkepx.cn/xiju/7315864.htm)
-- [【Re:从零开始的AI学习】第一季总集篇｜从入门到用好 AI](http://www.play.hengshemaoyi.cn/xiju/8904435.htm)
+- [2027年或成史上最热一年](http://www.movie.hkepx.cn/movie/8910900.htm)
+- [蛋黄到底该不该吃](http://www.play.hengshemaoyi.cn/kongbu/1452959.htm)
+- [李吉妮2比1萨巴伦卡](http://www.movie.hkepx.cn/movie/4326545.htm)
+- [整蛊！骗妈妈说给她接了野生狗奶广告…再和男友偷偷灌入超臭豆汁！](http://www.movie.hkepx.cn/movie/1643509.htm)
+- [【萌黄一槽】是谁“电眼逼人”？迪鲁达全技能爆料！](http://www.daogukj.com/3734905)
+- [佛光寺小狗门上刨洞被做成文创爆火](http://www.play.hengshemaoyi.cn/kongbu/4707077.htm)
+- [萨巴伦卡武网赛中砸球拍释放情绪](http://www.play.hengshemaoyi.cn/xiju/9679366.htm)
+- [如何看待网红女装品牌CHICYOU因使用狸花猫背部毛皮制作毛领遭网友抵制？哪些渠道的毛皮可能涉嫌违法？](http://www.movie.hkepx.cn/movie/8897904.htm)
+- [【Re:从零开始的AI学习】第一季总集篇｜从入门到用好 AI](http://www.play.hengshemaoyi.cn/xiju/8041326.htm)
+- [《琅琊榜》的权谋真的很幼稚吗？](http://www.daogukj.com/8279615)
+- [入职第一天因截图社死](http://www.movie.hkepx.cn/xiju/6205852.htm)
+- [香港发生珠宝大劫案](http://www.movie.hkepx.cn/xiju/0712642.htm)
+- [在冬夜，一块蛋糕，两个冻人](http://www.movie.hkepx.cn/xiju/6035249.htm)
+- [《异环》明音凛角色PV丨Letters to me](http://www.daogukj.com/4744923)
+- [奚梦瑶和现在简直判若两人](http://www.movie.hkepx.cn/movie/5089029.htm)
+- [韩国队后辈被曝不满队长孙兴慜领导甚至暗示退出，背后深层原因是什么？](http://www.movie.hkepx.cn/movie/2615772.htm)
+- [回老家有种没被AI“污染”过的美](http://www.play.hengshemaoyi.cn/kongbu/7334127.htm)
+- [怎么看 OpenAI 的 NS 数学证明被发现其实没遵循 Spanish program？](http://www.daogukj.com/ptpekaap/)
+- [如果人的脚进化成蹄子会怎么样？](http://www.daogukj.com/7356664)
+- [妈妈误寄50斤羊粪到女儿母校放了20天](http://www.daogukj.com/ayichqdz/)
+- [新鸭绿江大桥仅用于货运？中方回应](http://www.movie.hkepx.cn/xiju/2706147.htm)
+- [25岁韩国网红柳智媛跑半马离世](http://www.play.hengshemaoyi.cn/xiju/6688215.htm)
+- [成都警方通报“女子持U型锁打人”](http://www.daogukj.com/cndcdbte/)
+- [SpaceX为何对乌军用星链终端限速](http://www.daogukj.com/3515388)
+- [【TF家族练习生】《成长档案NO.0915-不熄灭的歌》张奕然生日纪录片](http://www.movie.hkepx.cn/movie/2280366.htm)
+- [郑钦文说终于脱离了黄毛](http://www.movie.hkepx.cn/xiju/9102843.htm)
+- [广州球迷联盟发表声明，要把广州豹当成新主队简直是无稽之谈，如何评价这份声明？为什么广州豹不被认可？](http://www.movie.hkepx.cn/xiju/6537051.htm)
+- [原来502胶水是这么来的！致敬伟大的科研人员！](http://www.daogukj.com/vzsgeebf/)
+- [印度排位对局👳🏽绝活天残脚vs丝滑半截山！😱从来没有见过这等招式！](http://www.play.hengshemaoyi.cn/kongbu/3922698.htm)
+- [警方通报一女子持U型锁伤人](http://www.play.hengshemaoyi.cn/kongbu/6040149.htm)
+- [这套被拆迁房正在寻找继承人](http://www.daogukj.com/4077362)
+- [黄奇帆落马 重庆开会表态](http://www.movie.hkepx.cn/movie/8186635.htm)
+- [肖战的烦恼](http://www.daogukj.com/hrahgoeh/)
+- [美国9月CPI同比增长3.7%](http://www.movie.hkepx.cn/xiju/7623213.htm)
+- [教师耻辱合影事件调查处理已完成](http://www.play.hengshemaoyi.cn/kongbu/4814140.htm)
+- [车间工人长相撞脸陈小春](http://www.daogukj.com/3537481)
+- [陈小春被网友喊话去找撞脸大哥认亲](http://www.play.hengshemaoyi.cn/kongbu/7154027.htm)
+- [群演疑似猥亵女演员，《此处通往繁星》剧组回应将撤下争议片段并调查，若属实剧组及涉事演员需承担哪些责任？](http://www.play.hengshemaoyi.cn/xiju/0242395.htm)
+- [微信上线绿泡泡短剧，腾讯此前多次进军短剧市场都效果平平，这次能成功吗？能撼动红果的地位吗？](http://www.play.hengshemaoyi.cn/xiju/7718342.htm)
+- [我对不同假期的态度](http://www.play.hengshemaoyi.cn/kongbu/7089205.htm)
+- [“萨克斯大爷”直呼太火自己不适应](http://www.play.hengshemaoyi.cn/xiju/7227900.htm)
+- [萨巴伦卡武网爆冷出局](http://www.daogukj.com/9191044)
+- [我去当司机大家觉得有搞头嘛！](http://www.daogukj.com/6256754)
+- [小心“人脸授权”背后的陷阱](http://www.play.hengshemaoyi.cn/kongbu/3838323.htm)
+- [如何看待新加坡长达多个月的烟霾，要持续多久，烧芭山火与气候条件加上厄尔尼诺对环境和新加坡影响多大？](http://www.movie.hkepx.cn/movie/3822357.htm)
+- [77天1400公里独自横穿羌塘，杨柳松与北方的空地](http://www.movie.hkepx.cn/movie/9519234.htm)
+- [免费马戏表演骗局卷土重来](http://www.play.hengshemaoyi.cn/xiju/4782804.htm)
+- [2026全球总决赛LPL赛区出征片《风起今朝》](http://www.daogukj.com/urxbddis/)
+- [年轻人爱上次抛衣 愁的不仅是商家](http://www.movie.hkepx.cn/xiju/7315864.htm)
+- [“女老虎”包惠被开除党籍](http://www.play.hengshemaoyi.cn/xiju/8904435.htm)
 
 </details>
 
 ## 原始来源
 
-- [护:哥你这不是给我俩送钱吗？护：不对！我掉进陷阱了！打了两天还是零进度的护子终于发现事情的严重性了](https://b23.tv/BV1utWc6jEo5)
+- [两口子奄奄一息在家数钱吗](https://s.weibo.com/weibo?q=%E4%B8%A4%E5%8F%A3%E5%AD%90%E5%A5%84%E5%A5%84%E4%B8%80%E6%81%AF%E5%9C%A8%E5%AE%B6%E6%95%B0%E9%92%B1%E5%90%97)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0c338a1054dc25cea6dc -->
+<!-- content-fingerprint: 4a3c09d81e83033c20c5 -->
