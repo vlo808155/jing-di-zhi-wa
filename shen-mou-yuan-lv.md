@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 77天1400公里独自横穿羌塘，杨柳松与北方的空地
+# 腾讯上线「绿泡泡短剧」小程序打造短剧闭环，你看好这一产品吗？它该如何撬动红果近 2 亿日活？
 
-> 来源：哔哩哔哩热门 · 排名：第 18 位 · 热度：692520 · 分类：影视杂谈 · 更新：2026-10-15T13:16:59+08:00
+> 来源：知乎热榜 · 排名：第 18 位 · 热度：150 万热度 · 分类：问答 · 更新：2026-10-15T18:02:25+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“77天1400公里独自横穿羌塘，杨柳松与北方的空地”位列第 18 位，公开热度指标为 692520，榜单分类为“影视杂谈”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“腾讯上线「绿泡泡短剧」小程序打造短剧闭环，你看好这一产品吗？它该如何撬动红果近 2 亿日活？”位列第 18 位，公开热度指标为 150 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：凌晨六点，天还未亮，西藏某处的一个高山山口。一辆装废铁的卡车停了下来，一名男子从车上取下一辆自行车以及一个个背包。之后他告别过司机，匆忙向漆黑的无人区深处走去。此时这名男子还不知道，几个月后自己将轰动全国，成为中国现代荒野探险里程碑式的人物。
+来源公开摘要显示：最近，微信上线「绿泡泡短剧」免费小程序，它的账号主体是腾讯公司。在小程序首页，设有「绿泡泡短剧」专区，在微信搜索「短剧」，也可以直接访问。 同时，视频号支持挂载剧集跳转链接， QQ 浏览器搜索相关剧名也会出现推荐位。用户在微信生态内即可完成从观看到分享的完整链路，不需要跳转至任何第三方产品。 这意味着，腾讯开始落地自己的短剧平台，虽然目前只是以微信小程序的形式。 背后是字节跳动旗下的红果短剧狂奔。 QuestMobile 数据显示，截至 2026 年 7 月，红果短剧独立 APP 日活跃用户达 1.68 亿，同比增长 107% 。这一数字已经超过腾讯视频
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `影视杂谈`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [顾客买850元脆皮捏捏 全捏碎后退货](ming-cha-qiu-hao.md)
-- [黄金直线反弹](jian-wei-zhi-zhu.md)
-- [演员王皓挑梁律政剧《蒸蒸日上》](du-ju-hui-yan.md)
-- [为什么很多玩家认为买断制游戏反而更划算？](bie-ju-jiang-xin.md)
+- [怎样在游戏里分辨中国坦克手和外国坦克手](ming-cha-qiu-hao.md)
+- [千万新房空置 被陌生人拆成毛坯](jian-wei-zhi-zhu.md)
+- [杨超越这部剧是女主吗](du-ju-hui-yan.md)
+- [中朝新鸭绿江大桥正式开通](bie-ju-jiang-xin.md)
 
 ## 站内推荐
 
-- [豆包对低认知人群有权威性](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [兰香电视剧到底在歌颂什么](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [小摩：本轮科技股暴跌与7月截然不同](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [咦？2045年的霍格沃茨，已经是一所国际魔法学校了？｜广东插班生｜第一章](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [【Re:从零开始的AI学习】第一季总集篇｜从入门到用好 AI](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [厄尔尼诺“达到峰值”意味着啥](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [日本一棵白菜卖42元](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [24岁猝死女子面试前已呼吸困难](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [前中国工程院院士、中南大学原校长张尧学被逮捕，受贿数额特别巨大，哪些信息值得关注？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [祀：冰火第四人，锦上添花还是画龙点睛？干员实战攻略，武器装备潜能配队全面测评](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [千万元空置房子被陌生男子拆成毛坯房](http://www.play.hengshemaoyi.cn/kongbu/7686149.htm)
-- [《西游记》里的二郎神坑杀了花果山无数猴精，孙悟空为何不计前嫌与其称兄道弟？](http://www.movie.hkepx.cn/movie/4579405.htm)
-- [全球股市大跌原因找到了](http://www.movie.hkepx.cn/xiju/3169477.htm)
-- [圆通总裁潘水苗出任影视飓风董事长](http://www.movie.hkepx.cn/xiju/8635128.htm)
-- [工人撞脸陈小春 拍摄者已离职](http://www.play.hengshemaoyi.cn/kongbu/9338626.htm)
-- [为什么很多玩家认为买断制游戏反而更划算？](http://www.play.hengshemaoyi.cn/kongbu/1542166.htm)
-- [大麦公布肖战演唱会可售票数](http://www.daogukj.com/0287665)
-- [怎样看待沙特阿美石油公司位于达曼的总部被胡塞武装的导弹击中，遭到大面积破坏？](http://www.movie.hkepx.cn/movie/7272745.htm)
-- [长实否认李嘉诚去世](http://www.play.hengshemaoyi.cn/xiju/6780679.htm)
-- [大麦崩了](http://www.daogukj.com/4477330)
-- [演员王皓挑梁律政剧《蒸蒸日上》](http://www.daogukj.com/0861506)
-- [闫妮像极了上班摸鱼的我](http://www.daogukj.com/9767084)
-- [「耻辱」合影事件最新进展，雷波县教体局局长已被调离，这样的处置方式如何？](http://www.movie.hkepx.cn/movie/5257500.htm)
-- [小城良方的宣发太有才了](http://www.daogukj.com/gykfwffn/)
-- [深圳APEC会议期间公交地铁票价5折](http://www.play.hengshemaoyi.cn/xiju/5052420.htm)
-- [短剧被指让人越看越「笨」，高密度反转的短剧真的会影响专注力吗？为啥短剧一刷就停不下来？](http://www.daogukj.com/xdtbrdmh/)
-- [苏轼连续被贬惠州儋州，为什么不辞官回乡，过普通人生活？](http://www.daogukj.com/0346242)
-- [豆包对低认知人群有权威性](http://www.movie.hkepx.cn/xiju/3607769.htm)
-- [这是一期重口味的怪兽盘点【破坏兽】（慎入！）](http://www.play.hengshemaoyi.cn/kongbu/0133104.htm)
-- [“新三样”产品出口增长43.6%](http://www.movie.hkepx.cn/xiju/7939480.htm)
-- [【抢先版】温柔刀天花板！没有生离狗血，只有跨物种安静又心碎的告别！](http://www.movie.hkepx.cn/xiju/0345684.htm)
-- [《各 地 人 刻 板 印 象》](http://www.movie.hkepx.cn/xiju/4105891.htm)
-- [你敢信苏联真的做过人猿杂交实验？走进地图上不存在的国家，探访那座被废弃的实验基地](http://www.movie.hkepx.cn/xiju/7210722.htm)
-- [知否里的台词值得全文背诵](http://www.movie.hkepx.cn/movie/8592737.htm)
-- [大庆，一座孤独的城市](http://www.play.hengshemaoyi.cn/xiju/5306630.htm)
-- [千万新房当嫁妆被陌生人拆成毛坯](http://www.daogukj.com/1659974)
-- [小沈阳炖3袋排骨5分钟就被抢光](http://www.movie.hkepx.cn/movie/0941539.htm)
-- [顾客买850元脆皮捏捏 全捏碎后退货](http://www.movie.hkepx.cn/movie/2635515.htm)
-- [兰香电视剧到底在歌颂什么](http://www.movie.hkepx.cn/xiju/6515808.htm)
-- [「晕车」是否说明人类的身体还未适应现代的生活方式？](http://www.play.hengshemaoyi.cn/xiju/8816869.htm)
-- [前中国工程院院士、中南大学原校长张尧学被逮捕，受贿数额特别巨大，哪些信息值得关注？](http://www.daogukj.com/dvtugytg/)
-- [常用医学小技能，才不是武术什么的呢](http://www.movie.hkepx.cn/xiju/6349162.htm)
-- [70周年广交会新玩法](http://www.daogukj.com/uiagrfmg/)
-- [新鸭绿江大桥仅用于货运？中方回应](http://www.movie.hkepx.cn/xiju/5108394.htm)
-- [水果罐头为啥不“甜”了](http://www.play.hengshemaoyi.cn/kongbu/2476719.htm)
-- [2026全球总决赛LPL赛区出征片《风起今朝》](http://www.play.hengshemaoyi.cn/kongbu/6062295.htm)
-- [【Re:从零开始的AI学习】第一季总集篇｜从入门到用好 AI](http://www.play.hengshemaoyi.cn/xiju/4493695.htm)
-- [AI偶像官宣怀孕 为何让人感觉被冒犯](http://www.daogukj.com/tnrfqrke/)
-- [黄金白银断崖式大跌](http://www.movie.hkepx.cn/xiju/4346084.htm)
+- [女子买iPhone18Pro被5名骑手冒领快递](http://www.play.hengshemaoyi.cn/kongbu/7686149.htm)
+- [油价本轮不调整](http://www.movie.hkepx.cn/movie/4579405.htm)
+- [黄子韬徐艺洋宣布当爸妈](http://www.movie.hkepx.cn/xiju/3169477.htm)
+- [哇青梅竹马天下第一【AI全民制作人】](http://www.movie.hkepx.cn/xiju/8635128.htm)
+- [也是当上外卖大法官了【第二集】](http://www.play.hengshemaoyi.cn/kongbu/9338626.htm)
+- [中朝新鸭绿江大桥正式开通](http://www.play.hengshemaoyi.cn/kongbu/1542166.htm)
+- [黄子韬徐艺洋孩子都这么大了](http://www.daogukj.com/0287665)
+- [小心“人脸授权”背后的陷阱](http://www.movie.hkepx.cn/movie/7272745.htm)
+- [婴幼儿纸尿裤甲酰胺问题调查结果公布](http://www.play.hengshemaoyi.cn/xiju/6780679.htm)
+- [鸣潮×爱回收返航新生丨闲置“频率”回收计划](http://www.daogukj.com/4477330)
+- [杨超越这部剧是女主吗](http://www.daogukj.com/0861506)
+- [热烈欢迎袁咏仪！超级爱买的靓靓姐最近又乱买了什么呢？（恭喜靓靓终于演上警察了👏](http://www.daogukj.com/9767084)
+- [中国外贸何以“加速跑”](http://www.movie.hkepx.cn/movie/5257500.htm)
+- [无视风险 继续访问女coser的家](http://www.daogukj.com/gykfwffn/)
+- [内娱学历TOP15](http://www.play.hengshemaoyi.cn/xiju/5052420.htm)
+- [多地组织筛查干部档案有何深意](http://www.daogukj.com/xdtbrdmh/)
+- [商家建议手头电脑能用则用](http://www.daogukj.com/0346242)
+- [厄尔尼诺“达到峰值”意味着啥](http://www.movie.hkepx.cn/xiju/3607769.htm)
+- [中国科学家首次用中国大模型攻克世界级数学难题，如何理解这一成果的意义？](http://www.play.hengshemaoyi.cn/kongbu/0133104.htm)
+- [“天 凉 瑕 混”](http://www.movie.hkepx.cn/xiju/7939480.htm)
+- [双 11 促销规则越来越简单，为啥电商平台开始放弃复杂的满减玩法？电商大促正在发生哪些变化？](http://www.movie.hkepx.cn/xiju/0345684.htm)
+- [为什么偶像剧最近扎堆出现「二婚男主」？这类设定有什么特点？观众实际接受度高吗？](http://www.movie.hkepx.cn/xiju/4105891.htm)
+- [10 月 15 日全球股市大跌，为什么会这样？相互之间有哪些关联吗？](http://www.movie.hkepx.cn/xiju/7210722.htm)
+- [朱之文出道15年再站上流量巅峰](http://www.movie.hkepx.cn/movie/8592737.htm)
+- [评论员：A股当前面临三重压力](http://www.play.hengshemaoyi.cn/xiju/5306630.htm)
+- [解放军驱离侵入黄岩岛领空的菲直升机](http://www.daogukj.com/1659974)
+- [一觉醒来deepseek和豆包睡在我身边（一）【AI全民制作人】](http://www.movie.hkepx.cn/movie/0941539.htm)
+- [怎样在游戏里分辨中国坦克手和外国坦克手](http://www.movie.hkepx.cn/movie/2635515.htm)
+- [日本一棵白菜卖42元](http://www.movie.hkepx.cn/xiju/6515808.htm)
+- [9 月份我国货物贸易进出口首破 5 万亿元，增长 27.5%，如何看待这一数据？](http://www.play.hengshemaoyi.cn/xiju/8816869.htm)
+- [FBI盯上东南亚电诈园区](http://www.daogukj.com/dvtugytg/)
+- [网友称部分华为门店样机试用被限时，门店称「防止小孩长时间占用样机打游戏」，这种规定合理吗？](http://www.movie.hkepx.cn/xiju/6349162.htm)
+- [中国新能源车硬核实力横扫海外](http://www.daogukj.com/uiagrfmg/)
+- [前NBA巨星斯塔德迈尔要当警察了](http://www.movie.hkepx.cn/xiju/5108394.htm)
+- [《明日方舟：终末地》祀EP - 花祀时 & 何处山海万象生](http://www.play.hengshemaoyi.cn/kongbu/2476719.htm)
+- [怎样看待沙特阿美石油公司位于达曼的总部被胡塞武装的导弹击中，遭到大面积破坏？](http://www.play.hengshemaoyi.cn/kongbu/6062295.htm)
+- [祀：冰火第四人，锦上添花还是画龙点睛？干员实战攻略，武器装备潜能配队全面测评](http://www.play.hengshemaoyi.cn/xiju/4493695.htm)
+- [《锻刀大赛》不当人！锻刀前考数学 难哭一众老外](http://www.daogukj.com/tnrfqrke/)
+- [全球热没有抢到票](http://www.movie.hkepx.cn/xiju/4346084.htm)
 - [又漂亮又丑的长相是什么样子的？](http://www.movie.hkepx.cn/movie/7332141.htm)
-- [网友称小米SU7刹车助力器故障频发，是真的吗？双备份制动系统为何还会出现踏板异常？](http://www.daogukj.com/qwdjcwxs/)
-- [我觉得openai最近这段时间写出来的所有论文，全部都是错误的，这难道不是很明显的吗？](http://www.daogukj.com/uqrxqnjs/)
-- [撞脸陈小春工人：没有被抱养](http://www.play.hengshemaoyi.cn/xiju/9086559.htm)
-- [王俊凯无压力穿搭的权威](http://www.play.hengshemaoyi.cn/xiju/0582780.htm)
-- [富怕了，这兵线我一个都不敢吃啊](http://www.movie.hkepx.cn/xiju/5890662.htm)
-- [DeepSeek回应](http://www.movie.hkepx.cn/movie/9155162.htm)
-- [陈妤颉个子不高，咋跑得那么快？身高、腿长和跑步快慢有关吗？](http://www.movie.hkepx.cn/movie/7891312.htm)
-- [婚礼摄影师记录下婚礼后感人一幕……喧闹落幕，新人相视一笑便红了眼眶](http://www.play.hengshemaoyi.cn/xiju/9382187.htm)
-- [咦？2045年的霍格沃茨，已经是一所国际魔法学校了？｜广东插班生｜第一章](http://www.play.hengshemaoyi.cn/xiju/1231015.htm)
-- [96岁老人独自坐43小时火车进西藏](http://www.daogukj.com/fpcntxir/)
+- [韩股遭遇“黑色星期四”](http://www.daogukj.com/qwdjcwxs/)
+- [13岁男孩身高195cm 全网求长高食谱](http://www.daogukj.com/uqrxqnjs/)
+- [能玩这游戏十年的人做什么都会成功的](http://www.play.hengshemaoyi.cn/xiju/9086559.htm)
+- [徐艺洋生子时间线](http://www.play.hengshemaoyi.cn/xiju/0582780.htm)
+- [《复联5》前必看！《复联4》后到底发生了啥？](http://www.movie.hkepx.cn/xiju/5890662.htm)
+- [多家纸尿裤品牌发声](http://www.movie.hkepx.cn/movie/9155162.htm)
+- [长鑫科技吓坏美韩存储巨头](http://www.movie.hkepx.cn/movie/7891312.htm)
+- [如何评价京东iPhone Duo早鸟包，不能抵手机款且不能退款，被网友指官方黄牛？平台这样做合理吗？](http://www.play.hengshemaoyi.cn/xiju/9382187.htm)
+- [前中国工程院院士、中南大学原校长张尧学被逮捕，受贿数额特别巨大，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/1231015.htm)
+- [《最有耐心の杀手》](http://www.daogukj.com/fpcntxir/)
 
 </details>
 
 ## 原始来源
 
-- [77天1400公里独自横穿羌塘，杨柳松与北方的空地](https://b23.tv/BV14JpC6ZE3U)
+- [腾讯上线「绿泡泡短剧」小程序打造短剧闭环，你看好这一产品吗？它该如何撬动红果近 2 亿日活？](https://www.zhihu.com/question/2093704086344541063)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 80434433eaf9149c2412 -->
+<!-- content-fingerprint: b89839c2d158b0cc16bb -->
