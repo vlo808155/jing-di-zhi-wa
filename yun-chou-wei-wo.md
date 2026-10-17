@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 一碰就会“叫”的虫蛹，你见过吗？
+# 邵永灵：特朗普继续给普京开绿灯
 
-> 来源：哔哩哔哩热门 · 排名：第 17 位 · 热度：1229517 · 分类：日常 · 更新：2026-10-17T13:38:12+08:00
+> 来源：今日头条热榜 · 排名：第 18 位 · 热度：3114091 · 更新：2026-10-17T17:39:31+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“一碰就会“叫”的虫蛹，你见过吗？”位列第 17 位，公开热度指标为 1229517，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“邵永灵：特朗普继续给普京开绿灯”位列第 18 位，公开热度指标为 3114091。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：-
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `日常`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [载有超200万桶原油的油轮触雷爆炸](shen-mou-yuan-lv.md)
-- [张杰让跳跳俏俏小咘芽安静一点](ming-cha-qiu-hao.md)
-- [黄奇帆被查 中纪委官网重磅发文](jian-wei-zhi-zhu.md)
-- [为什么内存要叫内存，而不是临时存储？](du-ju-hui-yan.md)
+- [特斯拉新款Roadster能像火箭一样「起飞」，它能解决哪些实际问题？在现行法律下能上路吗？](shen-mou-yuan-lv.md)
+- [“以善为饵，比恶更恶”](ming-cha-qiu-hao.md)
+- [“耻辱”合影事件后雷波县人事调整](jian-wei-zhi-zhu.md)
+- [嫉妒心太强刘丁硕这句话太不应该了](du-ju-hui-yan.md)
 
 ## 站内推荐
 
-- [科学家们用物理智斗爱因斯坦？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [再给我一个好吗](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [朱棣：“我的侄子走丢了，有好心人能帮帮我吗？”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [当我每次操作，都会同步改变世界所有区块！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [乐山大佛能屹立千年，全是因为里面藏着一套排水工程](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [95后小伙做“共享儿女”300元1小时](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [长白山天池“水怪”真容揭秘](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [女生小肚子微微凸起才正常](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [曝离婚多年做直播的男明星有儿子](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [用了54年的“闰秒”将退场](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [德国一机器人涉嫌猥亵16岁少女，警方调查疑系机器人主人远程操控，案件调查难点在哪？如何认定相关责任 ？](http://www.daogukj.com/ujmpetju/)
-- [教师不愿当班主任 困局怎么破](http://www.movie.hkepx.cn/xiju/2326006.htm)
-- [张杰让跳跳俏俏小咘芽安静一点](http://www.daogukj.com/fklrdyry/)
-- [“优秀的作品都在讲同一件事”](http://www.daogukj.com/fcqoynal/)
-- [《绝命毒师》老白儿子演员米特离世年仅 34 岁，你对他的表演有哪些回忆？](http://www.movie.hkepx.cn/movie/7286781.htm)
-- [病危老人被中介哄骗220万房只卖70万](http://www.movie.hkepx.cn/xiju/5270399.htm)
-- [新疆喀什要投资5000万新建景区？假](http://www.play.hengshemaoyi.cn/xiju/5019563.htm)
-- [河北卫视回应孙颖莎站错位](http://www.play.hengshemaoyi.cn/xiju/6772680.htm)
-- [拿员工血汗钱给女儿铺星路](http://www.play.hengshemaoyi.cn/kongbu/4064427.htm)
-- [杨幂三生三世这段仿佛请神上身](http://www.play.hengshemaoyi.cn/kongbu/8483720.htm)
-- [特斯拉新款 Roadster 实现离地升空、空中翻滚，是如何做到的？](http://www.play.hengshemaoyi.cn/kongbu/8579970.htm)
-- [怎么评价高三学生陈妤颉在近期访谈中提到的“最好不出省不出市”的高考目标？](http://www.movie.hkepx.cn/xiju/0134223.htm)
-- [29岁教师瘫痪 刚怀孕的妻子回应](http://www.play.hengshemaoyi.cn/kongbu/4502768.htm)
-- [夫妻买2块劳力士不选不试戴 店员报警](http://www.movie.hkepx.cn/movie/9639468.htm)
-- [闲置校舍改建养老院](http://www.daogukj.com/eugwmshe/)
-- [中国“飞行汽车”看呆外国学生](http://www.daogukj.com/1626617)
-- [乐山大佛能屹立千年，全是因为里面藏着一套排水工程](http://www.movie.hkepx.cn/movie/2260283.htm)
-- [女子生下龙凤胎起诉已婚董事长望其承担养育责任，男方质疑其通过人工试管受孕，有哪些疑点待厘清？](http://www.movie.hkepx.cn/xiju/0424593.htm)
-- [80万个假冰箱贴卖了1660万 主犯获刑](http://www.play.hengshemaoyi.cn/xiju/5090288.htm)
-- [本周末北京交通压力较大](http://www.daogukj.com/3625115)
-- [黄奇帆被查 中纪委官网重磅发文](http://www.daogukj.com/jieawbfe/)
-- [大陆交换生因一张照片遭民进党驱逐](http://www.play.hengshemaoyi.cn/xiju/1843269.htm)
-- [男子深信最危险地方最安全住受害人家](http://www.movie.hkepx.cn/movie/9978600.htm)
-- [抖音和京东公开互呛](http://www.movie.hkepx.cn/movie/6924230.htm)
-- [盛艾敬父母欠薪：拿员工血汗钱铺星路](http://www.daogukj.com/etibyexa/)
-- [我是人类](http://www.play.hengshemaoyi.cn/kongbu/7016583.htm)
-- [新王将至，旧王永垂不朽 ︳【侠盗猎车手V】终极鉴赏2026 (Leya蕾雅) ︳GTAV](http://www.movie.hkepx.cn/xiju/6012346.htm)
-- [92%在岗班主任不愿继续干了](http://www.movie.hkepx.cn/xiju/3257128.htm)
-- [沈月好友翁小雯离婚](http://www.play.hengshemaoyi.cn/kongbu/4442696.htm)
-- [徐艺洋喝酒视频有奶瓶清洁剂](http://www.play.hengshemaoyi.cn/kongbu/3696154.htm)
-- [猴子持鞭打饲养员 分不清谁是大小王](http://www.daogukj.com/8707603)
-- [上海徐浦大桥多车事故致1死2伤](http://www.movie.hkepx.cn/xiju/1792227.htm)
-- [中建七局拖欠118名农民工合计320万工资，为何这些大企业也会拖欠工资？相关负责人可能会面临哪些处罚？](http://www.movie.hkepx.cn/xiju/1821928.htm)
-- [一口气看完故宫角楼建造全过程](http://www.play.hengshemaoyi.cn/xiju/7826824.htm)
-- [中国留学生就身披旭日旗道歉](http://www.play.hengshemaoyi.cn/kongbu/4982284.htm)
-- [一小男孩被曝衣衫不整跟随母亲游荡，官方称孩子母亲多次拒绝救助，具体是什么情况？](http://www.movie.hkepx.cn/xiju/2461964.htm)
-- [2627赛季NBA季前赛开拓者 118:128 勇士，如何评价这场比赛？](http://www.movie.hkepx.cn/movie/7422271.htm)
-- [挑战全程扛共享单车登顶峨眉山金顶](http://www.play.hengshemaoyi.cn/kongbu/8190186.htm)
-- [班主任休产假家长称一定要生孩子吗](http://www.play.hengshemaoyi.cn/kongbu/3600255.htm)
-- [科学家们用物理智斗爱因斯坦？](http://www.movie.hkepx.cn/movie/9483466.htm)
-- [库克：苹果折叠屏完全在中国制造](http://www.play.hengshemaoyi.cn/kongbu/5693401.htm)
-- [特朗普宣布暂缓实施新一轮对俄制裁](http://www.daogukj.com/wstcuheo/)
-- [为什么内存要叫内存，而不是临时存储？](http://www.movie.hkepx.cn/movie/3882558.htm)
-- [为什么宋江那么牛，江湖上的人都卖他的面子？](http://www.movie.hkepx.cn/movie/0855056.htm)
-- [徐志胜预言家](http://www.daogukj.com/wflinrtr/)
-- [第九届进博会多项数据创历年新高](http://www.daogukj.com/4055553)
-- [德选择党主席：乌不可能战胜俄](http://www.play.hengshemaoyi.cn/kongbu/5702984.htm)
-- [损伤血管的“元凶”藏在你吃的食物里](http://www.movie.hkepx.cn/movie/9880116.htm)
-- [媒体人：大陆不可能给“台独”留空间](http://www.daogukj.com/ujvkpjtv/)
-- [78家加油站“偷油”被查](http://www.play.hengshemaoyi.cn/kongbu/4315002.htm)
+- [一口气看完故宫角楼建造全过程](http://www.daogukj.com/ujmpetju/)
+- [怎么看印财长抱怨中国“歧视”印牛肉](http://www.movie.hkepx.cn/xiju/2326006.htm)
+- [“以善为饵，比恶更恶”](http://www.daogukj.com/fklrdyry/)
+- [谁看完《嫁金钗》第一集脸不疼](http://www.daogukj.com/fcqoynal/)
+- [重金托举女儿明星路却欠打工人345万](http://www.movie.hkepx.cn/movie/7286781.htm)
+- [被问是否是特朗普替罪羊泽连斯基沉默](http://www.movie.hkepx.cn/xiju/5270399.htm)
+- [华中科技大学女篮与武汉盛帆女篮爆发大规模冲突，华科主帅追打对方球员，具体情况如何？将面临什么处罚？](http://www.play.hengshemaoyi.cn/xiju/5019563.htm)
+- [警方追查出1400余张加油机作弊主板](http://www.play.hengshemaoyi.cn/xiju/6772680.htm)
+- [国家出手 养老账单要变了](http://www.play.hengshemaoyi.cn/kongbu/4064427.htm)
+- [一小男孩被曝衣衫不整跟随母亲游荡，官方称孩子母亲多次拒绝救助，具体是什么情况？](http://www.play.hengshemaoyi.cn/kongbu/8483720.htm)
+- [成吉思汗第32代嫡孙女斯琴杭茹离世](http://www.play.hengshemaoyi.cn/kongbu/8579970.htm)
+- [刘诗诗新剧面相变了](http://www.movie.hkepx.cn/xiju/0134223.htm)
+- [贾乃亮否认有儿子](http://www.play.hengshemaoyi.cn/kongbu/4502768.htm)
+- [刘涛和蒋欣怎么了](http://www.movie.hkepx.cn/movie/9639468.htm)
+- [当我每次操作，都会同步改变世界所有区块！](http://www.daogukj.com/eugwmshe/)
+- [为什么宋江那么牛，江湖上的人都卖他的面子？](http://www.daogukj.com/1626617)
+- [用了54年的“闰秒”将退场](http://www.movie.hkepx.cn/movie/2260283.htm)
+- [美国最肥披萨店！全球第一大50斤70000千卡有多离谱？](http://www.movie.hkepx.cn/xiju/0424593.htm)
+- [家长怒斥让小孩扫厕所老师怎么不干](http://www.play.hengshemaoyi.cn/xiju/5090288.htm)
+- [多家银行上调存款利率，五年期定存高至 2.1%，怎样看待这一变化？还会持续上调吗？](http://www.daogukj.com/3625115)
+- [“耻辱”合影事件后雷波县人事调整](http://www.daogukj.com/jieawbfe/)
+- [如何看待洛阳博物馆回应闭馆一年，称新馆运行超 15 年需要升级，辟谣洛阳挖出「传国玉玺」？](http://www.play.hengshemaoyi.cn/xiju/1843269.htm)
+- [学生插队被制止家长举报老师体罚](http://www.movie.hkepx.cn/movie/9978600.htm)
+- [陈赫回应王祖蓝回归奔跑吧](http://www.movie.hkepx.cn/movie/6924230.htm)
+- [【纪录片】中国救护2 05 家和万事兴](http://www.daogukj.com/etibyexa/)
+- [大陆交换生因一张照片遭民进党驱逐](http://www.play.hengshemaoyi.cn/kongbu/7016583.htm)
+- [2026开始步入大飞行时代了吗](http://www.movie.hkepx.cn/xiju/6012346.htm)
+- [Roadster 发布后，特斯拉、SpaceX 仍在大跌，马斯克身家四天缩水5286亿元，如何解读？](http://www.movie.hkepx.cn/xiju/3257128.htm)
+- [教师不愿当班主任困局怎么破](http://www.play.hengshemaoyi.cn/kongbu/4442696.htm)
+- [女子生下龙凤胎起诉已婚董事长望其承担养育责任，男方质疑其通过人工试管受孕，有哪些疑点待厘清？](http://www.play.hengshemaoyi.cn/kongbu/3696154.htm)
+- [特斯拉“弹跳汽车”到底有啥用](http://www.daogukj.com/8707603)
+- [多少岁才算老人家](http://www.movie.hkepx.cn/xiju/1792227.htm)
+- [【纪录片】威尔史密斯的极地纵横 03 厄瓜多尔搜寻水蚺](http://www.movie.hkepx.cn/xiju/1821928.htm)
+- [沈月好友翁小雯离婚](http://www.play.hengshemaoyi.cn/xiju/7826824.htm)
+- [为什么毛不易要比汪苏泷顺利很多？](http://www.play.hengshemaoyi.cn/kongbu/4982284.htm)
+- [听潮阁版本的江南style，看看你能绷到第几首](http://www.movie.hkepx.cn/xiju/2461964.htm)
+- [iPhone18Pro最新销量曝光](http://www.movie.hkepx.cn/movie/7422271.htm)
+- [有人一口气买3部iPhone Duo准备卖掉](http://www.play.hengshemaoyi.cn/kongbu/8190186.htm)
+- [夫妻花67.3万买劳力士店员报警](http://www.play.hengshemaoyi.cn/kongbu/3600255.htm)
+- [95后小伙做“共享儿女”300元1小时](http://www.movie.hkepx.cn/movie/9483466.htm)
+- [历经一个月！我们做到了！！](http://www.play.hengshemaoyi.cn/kongbu/5693401.htm)
+- [中建七局拖欠118名农民工合计320万工资，为何这些大企业也会拖欠工资？相关负责人可能会面临哪些处罚？](http://www.daogukj.com/wstcuheo/)
+- [嫉妒心太强刘丁硕这句话太不应该了](http://www.movie.hkepx.cn/movie/3882558.htm)
+- [北京大雨](http://www.movie.hkepx.cn/movie/0855056.htm)
+- [乌导弹连炸俄6架苏34战机有何影响](http://www.daogukj.com/wflinrtr/)
+- [如何看待《流浪地球3》首次票房预测为48亿？](http://www.daogukj.com/4055553)
+- [糖葫芦进入瑜伽裤时代](http://www.play.hengshemaoyi.cn/kongbu/5702984.htm)
+- [怎么评价高三学生陈妤颉在近期访谈中提到的“最好不出省不出市”的高考目标？](http://www.movie.hkepx.cn/movie/9880116.htm)
+- [舅舅立遗嘱换我养老该怎么办？](http://www.daogukj.com/ujvkpjtv/)
+- [【篮球巨星】雷影艾全技能脑洞！Man！What can i say！](http://www.play.hengshemaoyi.cn/kongbu/4315002.htm)
 
 </details>
 
 ## 原始来源
 
-- [一碰就会“叫”的虫蛹，你见过吗？](https://b23.tv/BV18apJ6aEvD)
+- [邵永灵：特朗普继续给普京开绿灯](https://www.toutiao.com/trending/7697541886868721178/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2213%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227697541886868721178%22%2C%22hot_board_impr_id%22%3A%2220261017173929D0E58E70C63857B1AE92%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: fda92fa9eb0d2fa4d824 -->
+<!-- content-fingerprint: 4887fca3c90ecaa240a8 -->
