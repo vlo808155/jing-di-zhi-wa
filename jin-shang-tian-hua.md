@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 医保个人账户跨省共济落地全国，意味着什么？将带来哪些利好？
+# 宁德时代 A 股盘中跌超 10％，本轮大跌有哪些诱因？动力电池行业增长逻辑要变了吗？
 
-> 来源：知乎热榜 · 排名：第 19 位 · 热度：79 万热度 · 分类：问答 · 更新：2026-10-22T04:52:30+08:00
+> 来源：知乎热榜 · 排名：第 19 位 · 热度：84 万热度 · 分类：问答 · 更新：2026-10-22T07:50:42+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“医保个人账户跨省共济落地全国，意味着什么？将带来哪些利好？”位列第 19 位，公开热度指标为 79 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“宁德时代 A 股盘中跌超 10％，本轮大跌有哪些诱因？动力电池行业增长逻辑要变了吗？”位列第 19 位，公开热度指标为 84 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，国家医保局上线医保钱包2.0版。自10月16日起，全国各省、自治区、直辖市及新疆生产建设兵团已全部上线运行，职工医保个人账户跨省共济在全国全面落地。 职工医保个人账户跨省共济，依托全国统一医保信息平台设立个人医保钱包、设置共济额度，实现职工个人账户资金按规定支付近亲属在定点医药机构就医、购药发生的个人负担费用，以及参保缴费。 国家医保局医保中心相关负责人解释，医保钱包是跨省共济的载体与桥梁，实行虚拟额度管理，并非实体资金账户，医保基金不会实际拨付进入医保钱包，全程遵守医保基金监管要求。 在跨省共济对象上，共济人须为正常参保职工医保人员；被共济人为外
+来源公开摘要显示：10月21日，宁德时代（300750）低开低走，公司股价盘中跌超10%。截至10:44发稿，股价跌幅为10.81%，报231.07元/股，总市值1.07万亿元。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [《南屏晚钟》来啦！](hua-long-dian-jing.md)
-- [星巴克的沙发不养闲人](miao-bi-sheng-hua.md)
-- [印度男子谋杀39岁中国女子终身监禁](sheng-dong-huo-po.md)
-- [“神探”李昌钰将安葬于扬州](xu-xu-ru-sheng.md)
+- [抽象历史人物志——张作霖](hua-long-dian-jing.md)
+- [全国流行“拼大学”](miao-bi-sheng-hua.md)
+- [网友物理推导问界M9车速](sheng-dong-huo-po.md)
+- [张凌赫赴台被拒他们到底在怕什么](xu-xu-ru-sheng.md)
 
 ## 站内推荐
 
-- [人民日报评特斯拉能飞：不必妄自菲薄](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [有哪些国内能看到的书同时在国外是禁书？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [如何评价山东“仙人跳”犯罪团伙作案38起，其中3名受害者拒不付款被采取强制措施，有哪些细节值得关注？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [土耳其人其实大部分是希腊人后裔，是真的吗？为什么现在的土耳其人大部分都不认同？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [如何看待 52 岁刘恺威与 32 岁黎纪君恋情公开，两人因匹克球互生情愫，已秘密恋爱两个月？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [乌克兰接受冻结战线意味着什么](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [人民日报评特斯拉能飞：不必妄自菲薄](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [中国体操女团时隔20年世锦赛夺冠](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [李胜峰：大陆做好迎接任何挑战的准备](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [女子称被自家12斤猫踹进手术室](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [经中方允许菲向非法坐滩船运生活物资](http://www.play.hengshemaoyi.cn/xiju/6246916.htm)
-- [艺 术 求 生](http://www.play.hengshemaoyi.cn/xiju/0196335.htm)
-- [李胜峰：大陆做好迎接任何挑战的准备](http://www.daogukj.com/txhvfhkc/)
-- [《三过车门而不入》](http://www.movie.hkepx.cn/xiju/8357680.htm)
-- [如何理解《万箭穿心》中的李宝莉？](http://www.movie.hkepx.cn/xiju/7453143.htm)
-- [王虹再获大奖](http://www.daogukj.com/3829236)
-- [入局](http://www.movie.hkepx.cn/movie/7849010.htm)
+- [宁德时代崩跌原因](http://www.play.hengshemaoyi.cn/xiju/6246916.htm)
+- [如何看待人民锐评发表文章「特斯拉能飞，我们就被甩开了？」，中国汽车行业未来该如何发展？](http://www.play.hengshemaoyi.cn/xiju/0196335.htm)
+- [肖战小城良方路人进场](http://www.daogukj.com/txhvfhkc/)
+- [绝对不能看的儿童节目！2026最新《逃出布迪秀》：坠入诡异老式儿童节目次元....](http://www.movie.hkepx.cn/xiju/8357680.htm)
+- [日本79岁女护理员上18小时夜班](http://www.movie.hkepx.cn/xiju/7453143.htm)
+- [地铁站内看书5小时被扣15元](http://www.daogukj.com/3829236)
+- [泽连斯基表示，乌克兰愿在保留至少75%领土控制权的基础上达成和平协议，你怎么看？](http://www.movie.hkepx.cn/movie/7849010.htm)
 - [年轻人盯上养老院里的新职业](http://www.movie.hkepx.cn/movie/3810739.htm)
-- [肖战小城良方路人进场](http://www.daogukj.com/xwtczorl/)
-- [“把我撂得高高的 我都哭了”](http://www.daogukj.com/9411778)
-- [原来明星租一次高定这么贵啊](http://www.movie.hkepx.cn/xiju/1018177.htm)
-- [女孩回应撞脸大S](http://www.movie.hkepx.cn/movie/7549482.htm)
-- [人类历史上最大的投资泡沫或正在破裂](http://www.movie.hkepx.cn/xiju/3152832.htm)
-- [中文已死：为什么我们越来越不敢好好说话？](http://www.movie.hkepx.cn/xiju/6452829.htm)
-- [问界回应车辆起火](http://www.play.hengshemaoyi.cn/kongbu/1742289.htm)
-- [丹麦男子卖中国包子一天赚 5 万元，中式面食在海外有多受欢迎？还有哪些中国传统小吃最有可能在海外走红？](http://www.play.hengshemaoyi.cn/xiju/4134369.htm)
-- [如何评价山东“仙人跳”犯罪团伙作案38起，其中3名受害者拒不付款被采取强制措施，有哪些细节值得关注？](http://www.play.hengshemaoyi.cn/kongbu/8805735.htm)
-- [泽连斯基：愿保留75%领土以达和平](http://www.movie.hkepx.cn/xiju/1005247.htm)
-- [传国玉玺究竟去哪了](http://www.play.hengshemaoyi.cn/xiju/4070224.htm)
-- [PCL出事了？那MC下载和联机，我们先顶上了](http://www.movie.hkepx.cn/movie/8130025.htm)
-- [为什么我觉得“强者从不抱怨环境”这句话，本质上是一种对弱者的霸凌？](http://www.play.hengshemaoyi.cn/kongbu/7840266.htm)
-- [于东来：已拿出2000万投资爱情研究](http://www.daogukj.com/mgvzhkvp/)
-- [PHP出现严重漏洞 多国紧急下线](http://www.play.hengshemaoyi.cn/kongbu/6692605.htm)
-- [《人间异想计划》22分钟实机首曝｜间章：如果之事与未践之约](http://www.daogukj.com/0659107)
+- [邱祺缘 体操世锦赛](http://www.daogukj.com/xwtczorl/)
+- [中文已死：为什么我们越来越不敢好好说话？](http://www.daogukj.com/9411778)
+- [致敬伟大的胜利](http://www.movie.hkepx.cn/xiju/1018177.htm)
+- [小沈阳重现甩刘海名场面](http://www.movie.hkepx.cn/movie/7549482.htm)
+- [周杰伦说我是中国人有什么可讨论的](http://www.movie.hkepx.cn/xiju/3152832.htm)
+- [“汉末三杰”的皇甫嵩、朱儁和卢植三人谁最厉害？](http://www.movie.hkepx.cn/xiju/6452829.htm)
+- [抗日神剧逆天剧情！女兵战场睡觉？睡醒还要给她找吃的！](http://www.play.hengshemaoyi.cn/kongbu/1742289.htm)
+- [泽连斯基做出重大让步释放什么信号](http://www.play.hengshemaoyi.cn/xiju/4134369.htm)
+- [中国体操女团时隔20年世锦赛夺冠](http://www.play.hengshemaoyi.cn/kongbu/8805735.htm)
+- [唐驳虎：中国老板已准备放弃越南了](http://www.movie.hkepx.cn/xiju/1005247.htm)
+- [长生 AG](http://www.play.hengshemaoyi.cn/xiju/4070224.htm)
+- [辛芷蕾凭《日掛中天》获威尼斯影后却未入围金鸡奖，如何看待这一结果？](http://www.movie.hkepx.cn/movie/8130025.htm)
+- [意政府增派军人并批准法令以应对骚乱](http://www.play.hengshemaoyi.cn/kongbu/7840266.htm)
+- [体操世锦赛女团决赛](http://www.daogukj.com/mgvzhkvp/)
+- [中国体操女队终结美国连冠](http://www.play.hengshemaoyi.cn/kongbu/6692605.htm)
+- [传字节阿里腾讯花 350 亿美元订购英伟达工作站 GPU，大厂为何转向采购该显卡？](http://www.daogukj.com/0659107)
 - [它们为什么都叫“长征”](http://www.movie.hkepx.cn/movie/2177161.htm)
-- [唐驳虎：中国老板已准备放弃越南了](http://www.movie.hkepx.cn/xiju/4629379.htm)
-- [人民日报评特斯拉能飞：不必妄自菲薄](http://www.play.hengshemaoyi.cn/kongbu/8609961.htm)
-- [曝张小斐芭莎红毯救场](http://www.play.hengshemaoyi.cn/kongbu/2788736.htm)
-- [西安阿达西称现在没有利润还贴钱](http://www.movie.hkepx.cn/movie/9454869.htm)
-- [赵露思被质疑自费购买高定](http://www.movie.hkepx.cn/movie/8856381.htm)
-- [两部门发布公告，对盾构机、挖泥船、高端无人机等实施出口管制，释放了哪些信号？](http://www.movie.hkepx.cn/movie/7928531.htm)
-- [印度男子谋杀39岁中国女子终身监禁](http://www.play.hengshemaoyi.cn/kongbu/5748891.htm)
-- [红果把观众的时间标好了价](http://www.movie.hkepx.cn/movie/2928084.htm)
-- [腾讯姚顺雨想把DeepSeek卷到加班](http://www.play.hengshemaoyi.cn/xiju/0239872.htm)
-- [全国流行“拼大学”](http://www.daogukj.com/7779634)
-- [14家银行叫停或限制个人异地存款](http://www.play.hengshemaoyi.cn/kongbu/8270746.htm)
-- [和女同事相处真的要小心分寸](http://www.daogukj.com/7335488)
+- [泽连斯基：愿保留75%领土以达和平](http://www.movie.hkepx.cn/xiju/4629379.htm)
+- [乌克兰接受冻结战线意味着什么](http://www.play.hengshemaoyi.cn/kongbu/8609961.htm)
+- [⚡赵本山 《绅士Gentle Man》⚡](http://www.play.hengshemaoyi.cn/kongbu/2788736.htm)
+- [盛艾敬妈妈疑似涉嫌诈骗](http://www.movie.hkepx.cn/movie/9454869.htm)
+- [入局](http://www.movie.hkepx.cn/movie/8856381.htm)
+- [陕西一问界汽车碰撞后起火，此事对问界品牌影响有多大？](http://www.movie.hkepx.cn/movie/7928531.htm)
+- [网友物理推导问界M9车速](http://www.play.hengshemaoyi.cn/kongbu/5748891.htm)
+- [王虹再获大奖](http://www.movie.hkepx.cn/movie/2928084.htm)
+- [国家癌症中心公布发病前五癌症](http://www.play.hengshemaoyi.cn/xiju/0239872.htm)
+- [《三过车门而不入》](http://www.daogukj.com/7779634)
+- [开超市到底该不该赊账？](http://www.play.hengshemaoyi.cn/kongbu/8270746.htm)
+- [五部门发布骗局风险提示](http://www.daogukj.com/7335488)
 - [陶哲轩和邓煜的对谈《数学与 AI 究竟是什么关系？》，如何理解他们各自的观点？](http://www.movie.hkepx.cn/xiju/7580266.htm)
-- [田曦薇演恶女 用力过猛](http://www.play.hengshemaoyi.cn/xiju/9936981.htm)
-- [向佐西湖边徒步 拎编织袋捡垃圾](http://www.movie.hkepx.cn/xiju/0655390.htm)
-- [疑似晋妈小号回怼网友](http://www.daogukj.com/tyoqvbnt/)
-- [联想词](http://www.movie.hkepx.cn/xiju/8108717.htm)
-- [芭莎 有人在后台不出来](http://www.play.hengshemaoyi.cn/xiju/0718869.htm)
-- [事关公积金贷款宁波辟谣](http://www.play.hengshemaoyi.cn/kongbu/2897114.htm)
-- [曝自费高定艺人名字](http://www.play.hengshemaoyi.cn/xiju/2827049.htm)
-- [【寿喜烧保姆级教程，跟店里味道一模一样】](http://www.movie.hkepx.cn/xiju/1312993.htm)
-- [高市早苗推荐，暴打东大情报组织！日本大火的抗中神剧看瞎了我的眼【毒舌的南瓜】](http://www.daogukj.com/auvxhwep/)
-- [笑个der啊你，我对象吗你就笑](http://www.play.hengshemaoyi.cn/kongbu/9308752.htm)
-- [长征硬核知识点十问十答](http://www.daogukj.com/5938049)
-- [全世界年轻人都不爱接陌生电话](http://www.play.hengshemaoyi.cn/xiju/7231318.htm)
+- [《南屏晚钟》来啦！](http://www.play.hengshemaoyi.cn/xiju/9936981.htm)
+- [艺 术 求 生](http://www.movie.hkepx.cn/xiju/0655390.htm)
+- [重庆：拟追责问责公职人员94人](http://www.daogukj.com/tyoqvbnt/)
+- [一束光，怎样变成你眼前的游戏世界？](http://www.movie.hkepx.cn/xiju/8108717.htm)
+- [Meta第三季度营收同比增长26%](http://www.play.hengshemaoyi.cn/xiju/0718869.htm)
+- [曝自费高定艺人名字](http://www.play.hengshemaoyi.cn/kongbu/2897114.htm)
+- [PHP出现严重漏洞 多国紧急下线](http://www.play.hengshemaoyi.cn/xiju/2827049.htm)
+- [为什么都在喷《死神：千年血战篇》第四季第9集，我觉得做的比漫画好太多了啊？](http://www.movie.hkepx.cn/xiju/1312993.htm)
+- [有哪些国内能看到的书同时在国外是禁书？](http://www.daogukj.com/auvxhwep/)
+- [史诗级发现，曼从中间劈开是MAN](http://www.play.hengshemaoyi.cn/kongbu/9308752.htm)
+- [这台世界顶尖大科学装置首次出光](http://www.daogukj.com/5938049)
+- [一起命案竟有三十多个嫌疑人？光天化日行凶，却没人看到？《谜探路德维希》第二季 上](http://www.play.hengshemaoyi.cn/xiju/7231318.htm)
 
 </details>
 
 ## 原始来源
 
-- [医保个人账户跨省共济落地全国，意味着什么？将带来哪些利好？](https://www.zhihu.com/question/2096149013556721446)
+- [宁德时代 A 股盘中跌超 10％，本轮大跌有哪些诱因？动力电池行业增长逻辑要变了吗？](https://www.zhihu.com/question/2096182082548523173)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 8950ca29c6789855f216 -->
+<!-- content-fingerprint: 12ec70bc03d63b113fa2 -->
