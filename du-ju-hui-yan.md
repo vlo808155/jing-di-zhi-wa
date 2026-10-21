@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 商务部回应“美方制裁中国5家企业”
+# 失望至极！为什么《边缘行者2》如此差劲……
 
-> 来源：百度热搜 · 排名：第 18 位 · 热度：6091821 · 更新：2026-10-21T07:26:18+08:00
+> 来源：哔哩哔哩热门 · 排名：第 19 位 · 热度：209867 · 分类：动漫杂谈 · 更新：2026-10-21T09:49:55+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“商务部回应“美方制裁中国5家企业””位列第 18 位，公开热度指标为 6091821。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“失望至极！为什么《边缘行者2》如此差劲……”位列第 19 位，公开热度指标为 209867，榜单分类为“动漫杂谈”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：当地时间10月19日，商务部发言人就美方以窃取商业秘密为由制裁5家中国企业作出回应。中方坚决反对美方无端抹黑打压，我国AI企业的发展源于自主创新。中方敦促美方纠正错误，否则将采取必要措施维护企业合法权益。
+来源公开摘要显示：我看完了边缘行者2 感觉……不如纵横银河！
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `动漫杂谈`
 
 ## 相关热点
 
-- [等等党赢麻了](bie-ju-jiang-xin.md)
-- [华为带火阔直板 安卓手机集体跟进](qiao-duo-tian-gong.md)
-- [如何看待模仿王源博主「王扁」被前经纪人用锤子击打头部约 10 分钟，双方有什么矛盾？](gui-fu-shen-gong.md)
-- [《鸣潮》共鸣者「锁暝」PV | 契阔](jin-shang-tian-hua.md)
+- [《征途》央视黄金档收官](bie-ju-jiang-xin.md)
+- [SpaceX特斯拉成立委员会讨论合并](qiao-duo-tian-gong.md)
+- [欧冠：巴萨2-4客负巴黎](gui-fu-shen-gong.md)
+- [关于留学生身披旭日旗事件，莫大学生称「历史学家有祖国」，怎么看待历史研究应有的客观底线？](jin-shang-tian-hua.md)
 
 ## 站内推荐
 
-- [超强台风来了：狂风暴雨将袭华东多省，大暴雪和寒潮逼近新疆](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [法国影响力最大的八卦是什么？【神奇组织56】](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [唐禹哲逃兵役案宣判](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [最害怕顾客排队的老板出现了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [美舰首次在仙宾礁挑衅 背后有何算计](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [PCL出事了？那MC下载和联机，我们先顶上了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [新能源车渗透率攀升至 67%创历史新高，燃油车为何加速萎缩？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [⚡赵本山 《绅士Gentle Man》⚡](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [谁拍的，到底谁拍的！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [法国影响力最大的八卦是什么？【神奇组织56】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [第二代比亚迪海鸥上市](http://www.daogukj.com/7203067)
-- [美舰冲闯中国南沙群岛仙宾礁附近海域，南部战区依法依规跟踪监视，美方意欲何为？哪些信息值得关注？](http://www.daogukj.com/gowgjlqg/)
-- [为什么目前 AI 的设备是用 Mac 为主，而不是熟知的 Windows？](http://www.daogukj.com/7329084)
-- [NBA新赛季开幕 活塞大逆转凯尔特人](http://www.daogukj.com/tafakdgo/)
-- [新能源车渗透率攀升至 67%创历史新高，燃油车为何加速萎缩？](http://www.play.hengshemaoyi.cn/kongbu/6822731.htm)
-- [美舰首次在仙宾礁挑衅 背后有何算计](http://www.movie.hkepx.cn/movie/9763774.htm)
-- [Vibe coding会对程序员这个职业造成什么影响？](http://www.movie.hkepx.cn/movie/5499528.htm)
-- [蔡天凤碎尸案厨具店员出庭作供](http://www.movie.hkepx.cn/xiju/2091376.htm)
-- [日美利剑演习是否为介入台海做准备](http://www.movie.hkepx.cn/movie/3384485.htm)
-- [专家：房地产最危险的是不涨也不跌](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
-- [如何看待 9 月 BBA 旗下无一车型零售破万？这是否意味着消费者不再单纯认豪华车标？](http://www.daogukj.com/0541072)
-- [男子捡到38000元留了道题给失主](http://www.daogukj.com/jyvgfrcg/)
-- [财神窦占龙 第12集 宿仇【8月国创】](http://www.daogukj.com/3891590)
-- [华为带火阔直板 安卓手机集体跟进](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
-- [法国乱成一锅粥了还有人威胁中国](http://www.movie.hkepx.cn/xiju/8805715.htm)
-- [等等党赢麻了](http://www.daogukj.com/5398424)
-- [【萌黄一槽】萌到你了真是抱歉！风祭萌黄[古堡奇遇]全技能爆料](http://www.movie.hkepx.cn/xiju/6277332.htm)
-- [唐禹哲获刑1年7个月缓刑3年](http://www.movie.hkepx.cn/xiju/7873556.htm)
-- [巴黎圣日耳曼4比2巴萨](http://www.play.hengshemaoyi.cn/xiju/9370456.htm)
-- [工信部：禁止车辆行驶时用零重力座椅](http://www.daogukj.com/nzepuewx/)
-- [美股大型科技股多数下跌](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
-- [上海人又排队买黄金了](http://www.movie.hkepx.cn/movie/0752879.htm)
-- [爱上纯血世家女孩的混血男孩【AI全民制作人】](http://www.movie.hkepx.cn/xiju/3642771.htm)
-- [独生女车祸去世 10 年后赔偿所剩不多，父母再次起诉获批5年生活费，如何从法律角度解读？](http://www.daogukj.com/5617601)
-- [《三过车门而不入》](http://www.daogukj.com/8998145)
-- [网红方丈前妻深夜痛哭](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
-- [法国影响力最大的八卦是什么？【神奇组织56】](http://www.movie.hkepx.cn/xiju/8984384.htm)
-- [三亚市副市长陈克伯被查](http://www.movie.hkepx.cn/xiju/1180114.htm)
+- [贝儿化妆师造型师是鲍蕾](http://www.daogukj.com/7203067)
+- [父亲盼刘恺威女友春节来家过年](http://www.daogukj.com/gowgjlqg/)
+- [中东“榜一大哥”率团来华提飞行汽车](http://www.daogukj.com/7329084)
+- [如何看待2026年10月20日下午疑似国内所有mc相关下载被封禁？](http://www.daogukj.com/tafakdgo/)
+- [Sweet Baby官网删光合作项目，登记员工从16人缩到不足5人，DEI咨询这门生意做不下去了吗？](http://www.play.hengshemaoyi.cn/kongbu/6822731.htm)
+- [法国影响力最大的八卦是什么？【神奇组织56】](http://www.movie.hkepx.cn/movie/9763774.htm)
+- [退休时间是按生日当天还是当月算](http://www.movie.hkepx.cn/movie/5499528.htm)
+- [“完美恋人”背后的陷阱](http://www.movie.hkepx.cn/xiju/2091376.htm)
+- [人类历史上最大的投资泡沫或正在破裂](http://www.movie.hkepx.cn/movie/3384485.htm)
+- [詹姆斯罚球遭尼克斯球迷嘘声针对](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
+- [第二代比亚迪海鸥上市](http://www.daogukj.com/0541072)
+- [国家癌症中心公布发病前五癌症](http://www.daogukj.com/jyvgfrcg/)
+- [绝对不能看的儿童节目！2026最新《逃出布迪秀》：坠入诡异老式儿童节目次元....](http://www.daogukj.com/3891590)
+- [SpaceX特斯拉成立委员会讨论合并](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
+- [美舰冲闯仙宾礁是要为菲律宾撑腰吗](http://www.movie.hkepx.cn/xiju/8805715.htm)
+- [《征途》央视黄金档收官](http://www.daogukj.com/5398424)
+- [电商女装退货率普遍冲上 80%，背后的原因是什么？](http://www.movie.hkepx.cn/xiju/6277332.htm)
+- [中年男子骑车载白发老人看哭网友](http://www.movie.hkepx.cn/xiju/7873556.htm)
+- [樊振东发文抵制偷拍](http://www.play.hengshemaoyi.cn/xiju/9370456.htm)
+- [台退将：辽宁舰再赴西太是警告日本](http://www.daogukj.com/nzepuewx/)
+- [揭秘新兴赛博生意：谁在给机器人“卖命”？【晚点LatePost】](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
+- [台风](http://www.movie.hkepx.cn/movie/0752879.htm)
+- [为什么人们不爱接陌生电话了](http://www.movie.hkepx.cn/xiju/3642771.htm)
+- [超强台风蔷琵很大可能紧擦浙江](http://www.daogukj.com/5617601)
+- [每天微信步数都有七八千，为什么爬几层楼还是会喘？](http://www.daogukj.com/8998145)
+- [年轻人每月在养老院服务可减免房租](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
+- [新能源车渗透率攀升至 67%创历史新高，燃油车为何加速萎缩？](http://www.movie.hkepx.cn/xiju/8984384.htm)
+- [1991年给三峡捐款的小学生找到了](http://www.movie.hkepx.cn/xiju/1180114.htm)
 - [我得到了，能看到表白率的超能力……](http://www.movie.hkepx.cn/movie/0847312.htm)
-- [肖战演唱会二开无退票斩断囤票退路](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
-- [以人类今天的科技，能否应对白垩纪那颗小行星？](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
-- [刘恺威承认新恋情](http://www.movie.hkepx.cn/xiju/6763243.htm)
-- [如何看待2026年10月20日下午疑似国内所有mc相关下载被封禁？](http://www.movie.hkepx.cn/xiju/9186695.htm)
-- [马斯克向特朗普账户捐80亿美元的图谋](http://www.daogukj.com/pxvooxke/)
-- [易梦玲巴黎被偷](http://www.movie.hkepx.cn/xiju/1116357.htm)
-- [南京人披旭日旗挑衅，莫大校友透露朋友圈内容，发现事情并不简单](http://www.movie.hkepx.cn/xiju/0923150.htm)
-- [最害怕顾客排队的老板出现了](http://www.daogukj.com/wwpryopq/)
-- [末节23-0 绿军揭幕战惨遭活塞逆转](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
-- [如何看待 00 后小伙自学机械手搓载人飞行滑板，成功飞越长江？这个飞行滑板的技术原理是什么？](http://www.movie.hkepx.cn/xiju/6581777.htm)
-- [油车电车10年成本账怎么算](http://www.daogukj.com/ydetypas/)
-- [体操世锦赛男团决赛](http://www.movie.hkepx.cn/xiju/1440565.htm)
-- [「红果短剧降智」引发广泛热议，为什么越是剧情粗糙的短剧越让人停不下来？](http://www.movie.hkepx.cn/movie/0748348.htm)
-- [今天吃红糖糍粑](http://www.daogukj.com/7529047)
-- [香港名媛碎尸案曝关键新证词](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
-- [大巴黎4-2！终结巴萨11连胜](http://www.movie.hkepx.cn/movie/9462286.htm)
-- [中国男团摘得体操世锦赛铜牌](http://www.movie.hkepx.cn/xiju/6577988.htm)
-- [钟南山院士是真正的薄肌“90后”](http://www.movie.hkepx.cn/movie/1711969.htm)
-- [“完美恋人”背后的陷阱](http://www.movie.hkepx.cn/movie/1556531.htm)
+- [中使馆预警 泰方：普通游客不会遭绑架](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
+- [特朗普：中方在乌问题上立场很公允](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
+- [更胜一筹！杜埃传射 巴萨遭赛季首败 巴黎4比2巴萨](http://www.movie.hkepx.cn/xiju/6763243.htm)
+- [怎么看DeepSeek官宣单集群日均吞吐达 155 万亿 Token，单卡每小时收入38 美金？](http://www.movie.hkepx.cn/xiju/9186695.htm)
+- [国家数据集团成立，作为新央企以数据资源开发利用为主责主业，会如何重塑国内数据产业格局？](http://www.daogukj.com/pxvooxke/)
+- [广东人“最不爱接电话”](http://www.movie.hkepx.cn/xiju/1116357.htm)
+- [既然网友都觉得C罗天赋很一般，当初弗格森为什么会一眼就把他当成自己干儿子培养？](http://www.movie.hkepx.cn/xiju/0923150.htm)
+- [谁拍的，到底谁拍的！](http://www.daogukj.com/wwpryopq/)
+- [樊振东称乐于回应理智球迷](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
+- [26-27 赛季欧冠联赛阶段巴黎圣日耳曼 4-2 巴萨，如何评价这场比赛？](http://www.movie.hkepx.cn/xiju/6581777.htm)
+- [男子捡到38000元留了道题给失主](http://www.daogukj.com/ydetypas/)
+- [为什么现在很多高净值人重金培养孩子接班，却收效甚微呢？](http://www.movie.hkepx.cn/xiju/1440565.htm)
+- [社交媒体世界大战：泰韩法巴西已加入抗日全球统一战线](http://www.movie.hkepx.cn/movie/0748348.htm)
+- [蒙古国草原火灾疑因一企业日籍高管为钓鱼违规进入引燃，此次火灾造成损失有多大？该高管可能要承担哪些责任？](http://www.daogukj.com/7529047)
+- [媒体：董明珠办技校先别急着叫好](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
+- [法国将部署军队反恐力量应对示威活动](http://www.movie.hkepx.cn/movie/9462286.htm)
+- [南京人披旭日旗挑衅，莫大校友透露朋友圈内容，发现事情并不简单](http://www.movie.hkepx.cn/xiju/6577988.htm)
+- [球迷为樊振东发声](http://www.movie.hkepx.cn/movie/1711969.htm)
+- [丈夫1个拥抱 妻子断了5根肋骨](http://www.movie.hkepx.cn/movie/1556531.htm)
 - [医保个人账户跨省共济落地全国](http://www.play.hengshemaoyi.cn/kongbu/3467795.htm)
-- [美国一战斗舰冲闯中国南沙海域](http://www.movie.hkepx.cn/movie/2027222.htm)
+- [法国乱成一锅粥了还有人威胁中国](http://www.movie.hkepx.cn/movie/2027222.htm)
 
 </details>
 
 ## 原始来源
 
-- [商务部回应“美方制裁中国5家企业”](https://www.baidu.com/s?wd=%E5%95%86%E5%8A%A1%E9%83%A8%E5%9B%9E%E5%BA%94%E2%80%9C%E7%BE%8E%E6%96%B9%E5%88%B6%E8%A3%81%E4%B8%AD%E5%9B%BD5%E5%AE%B6%E4%BC%81%E4%B8%9A%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
+- [失望至极！为什么《边缘行者2》如此差劲……](https://b23.tv/BV1FNnA6FENr)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 71d4548a3ac97e8883e3 -->
+<!-- content-fingerprint: 116659557a997f50c18e -->
