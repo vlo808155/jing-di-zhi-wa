@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 唐禹哲获刑1年7个月缓刑3年
+# 伊朗已有超3万名女性忍者，熟练使用弓、剑、飞镖等武器等训练画面走热，背后是怎样的社会文化环境？
 
-> 来源：微博热搜 · 排名：第 21 位 · 热度：285304 · 分类：艺人 · 更新：2026-10-21T09:49:55+08:00
+> 来源：知乎热榜 · 排名：第 20 位 · 热度：147 万热度 · 分类：问答 · 更新：2026-10-21T14:51:18+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“唐禹哲获刑1年7个月缓刑3年”位列第 21 位，公开热度指标为 285304，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“伊朗已有超3万名女性忍者，熟练使用弓、剑、飞镖等武器等训练画面走热，背后是怎样的社会文化环境？”位列第 20 位，公开热度指标为 147 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：近日，一段展示伊朗全女性忍者学校训练场景的视频在社交平台走热。 视频中，伊朗姑娘们个个身手矫捷，能熟练使用弓、剑、双截棍、飞镖等各种武器，格斗技能满分！ 事实上，在伊朗，女性忍者被称为 “库内奇”，目前伊朗已有超3万名女性忍者。 伊朗女性忍者运动始于1989年，由教练阿克巴尔·法拉吉在德黑兰附近创立了第一家忍术俱乐部。在学校，姑娘们的训练内容非常全面。体能上包括空翻、攀爬墙壁、穿越障碍等；武器上则要熟练使用武士刀、双节棍、弓箭、手里剑等。 此前伊朗媒体报道，伊朗女性忍者学校的教练和学员反复强调，练习忍术的核心目的并非战斗，而是修身养性。 虽然练习忍术不是
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `艺人`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [退休时间是按生日当天还是当月算](xu-xu-ru-sheng.md)
-- [《边缘行者》主创说第一季其实是圆满结局，因为「本来可能糟糕得多」，这说法你接受吗？](huo-ling-huo-xian.md)
-- [法国影响力最大的八卦是什么？【神奇组织56】](you-sheng-you-se.md)
-- [中年男子骑车载白发老人看哭网友](yin-ren-ru-sheng.md)
+- [社交媒体世界大战：泰韩法巴西已加入抗日全球统一战线](xu-xu-ru-sheng.md)
+- [又一部获奖小说被质疑由AI代笔](huo-ling-huo-xian.md)
+- [李嘉格带男友上结婚综艺](you-sheng-you-se.md)
+- [人民日报评特斯拉能飞：不必妄自菲薄](yin-ren-ru-sheng.md)
 
 ## 站内推荐
 
-- [华为带火阔直板 安卓手机集体抄作业](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [美舰冲闯仙宾礁是要为菲律宾撑腰吗](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [“完美恋人”背后的陷阱](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [贝儿化妆师造型师是鲍蕾](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [詹姆斯罚球遭尼克斯球迷嘘声针对](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [“小天才”就不能安安心心做块表吗](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [宝马员工争着离职](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [魏娆养母 伥鬼](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [父亲遛狗幼童坠亡他该担何责](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [陈瑜林子濠结婚](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [父亲盼刘恺威女友春节来家过年](http://www.play.hengshemaoyi.cn/xiju/2367459.htm)
-- [媒体：董明珠办技校先别急着叫好](http://www.daogukj.com/whykihfw/)
-- [球迷为樊振东发声](http://www.daogukj.com/1896871)
-- [为什么现在很多高净值人重金培养孩子接班，却收效甚微呢？](http://www.movie.hkepx.cn/movie/7726331.htm)
-- [爱上纯血世家女孩的混血男孩【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/7591988.htm)
-- [满足这些条件微信聊天记录才能当证据](http://www.movie.hkepx.cn/movie/9833785.htm)
-- [最后警告：人类历史上最大的泡沫，即将破裂](http://www.movie.hkepx.cn/movie/5639163.htm)
-- [樊振东发文抵制偷拍](http://www.daogukj.com/2186746)
-- [李小冉：一忍再忍不想占用公共资源](http://www.play.hengshemaoyi.cn/kongbu/2268018.htm)
-- [超强台风蔷琵很大可能紧擦浙江](http://www.play.hengshemaoyi.cn/kongbu/6473132.htm)
-- [如何看待2026年10月20日下午疑似国内所有mc相关下载被封禁？](http://www.daogukj.com/1106243)
-- [如何评价山东“仙人跳”犯罪团伙作案38起，其中3名受害者拒不付款被采取强制措施，有哪些细节值得关注？](http://www.play.hengshemaoyi.cn/xiju/5943556.htm)
-- [世界乱成一锅粥中国安心过日子](http://www.daogukj.com/9530499)
-- [未央何处丨燕云X张良仁教授的“考古之旅”](http://www.movie.hkepx.cn/xiju/0808829.htm)
-- [中文已死：为什么我们越来越不敢好好说话？](http://www.play.hengshemaoyi.cn/kongbu/8834808.htm)
-- [如何评价《fx战士久留美》第三集？](http://www.movie.hkepx.cn/xiju/0940758.htm)
-- [广东人“最不爱接电话”](http://www.movie.hkepx.cn/movie/9022890.htm)
-- [龚宝冬被追记一等功](http://www.play.hengshemaoyi.cn/kongbu/2216390.htm)
-- [《征途》央视黄金档收官](http://www.play.hengshemaoyi.cn/xiju/1375823.htm)
-- [观众对打小三斗渣男剧情审美疲劳了吗](http://www.daogukj.com/goeqgpai/)
-- [2岁幼童坠亡孩子母亲怀疑丈夫作案](http://www.play.hengshemaoyi.cn/kongbu/1757591.htm)
-- [蒙古国草原火灾疑因一企业日籍高管为钓鱼违规进入引燃，此次火灾造成损失有多大？该高管可能要承担哪些责任？](http://www.play.hengshemaoyi.cn/kongbu/9879555.htm)
-- [华为带火阔直板 安卓手机集体抄作业](http://www.play.hengshemaoyi.cn/xiju/7503553.htm)
-- [《绝区零》菲欧妮EP | 1% Battery Girl 低电量女孩](http://www.movie.hkepx.cn/xiju/5861166.htm)
-- [失望至极！为什么《边缘行者2》如此差劲……](http://www.play.hengshemaoyi.cn/xiju/5549607.htm)
-- [曾辉回应和韩雨彤参加恋综](http://www.play.hengshemaoyi.cn/kongbu/6769731.htm)
-- [关于留学生身披旭日旗事件，莫大学生称「历史学家有祖国」，怎么看待历史研究应有的客观底线？](http://www.play.hengshemaoyi.cn/xiju/8003531.htm)
-- [南京人披旭日旗挑衅，莫大校友透露朋友圈内容，发现事情并不简单](http://www.movie.hkepx.cn/xiju/9172364.htm)
-- [00后北漂患上“扔垃圾羞耻”](http://www.movie.hkepx.cn/movie/6262590.htm)
-- [中使馆预警 泰方：普通游客不会遭绑架](http://www.play.hengshemaoyi.cn/kongbu/5906748.htm)
-- [日美利剑演习是否为介入台海做准备](http://www.daogukj.com/goynbzba/)
-- [第二代比亚迪海鸥上市](http://www.daogukj.com/oqkhnwnb/)
-- [欧冠：巴萨2-4客负巴黎](http://www.movie.hkepx.cn/xiju/8878997.htm)
-- [当着德总理的面 黄仁勋点出中国优势](http://www.daogukj.com/frbhpamg/)
-- [法国乱成一锅粥了还有人威胁中国](http://www.daogukj.com/8218296)
-- [SpaceX特斯拉成立委员会讨论合并](http://www.movie.hkepx.cn/xiju/3382411.htm)
-- [法国影响力最大的八卦是什么？【神奇组织56】](http://www.play.hengshemaoyi.cn/kongbu/3195197.htm)
-- [绝对不能看的儿童节目！2026最新《逃出布迪秀》：坠入诡异老式儿童节目次元....](http://www.movie.hkepx.cn/xiju/8373508.htm)
-- [美舰冲闯仙宾礁是要为菲律宾撑腰吗](http://www.daogukj.com/uamigzyj/)
-- [缅甸公布昂山素季近照](http://www.daogukj.com/uevljbcs/)
-- [智驾小蓝灯颜色进入新国标，车灯禁显示文字、禁用语音关灯，这样规定有哪些考虑？会怎样影响今后的设计？](http://www.play.hengshemaoyi.cn/xiju/4322946.htm)
-- [詹姆斯罚球遭尼克斯球迷嘘声针对](http://www.movie.hkepx.cn/movie/3471289.htm)
-- [台退将：辽宁舰再赴西太是警告日本](http://www.movie.hkepx.cn/movie/3873340.htm)
-- [26-27 赛季欧冠联赛阶段巴黎圣日耳曼 4-2 巴萨，如何评价这场比赛？](http://www.daogukj.com/0908523)
-- [既然网友都觉得C罗天赋很一般，当初弗格森为什么会一眼就把他当成自己干儿子培养？](http://www.daogukj.com/7782066)
-- [中年男子骑车载白发老人看哭网友](http://www.play.hengshemaoyi.cn/kongbu/3377780.htm)
-- [今天吃红糖糍粑](http://www.play.hengshemaoyi.cn/xiju/9852587.htm)
-- [易梦玲因护照被偷错过维密秀](http://www.daogukj.com/njwfupeo/)
-- [社交媒体世界大战：泰韩法巴西已加入抗日全球统一战线](http://www.play.hengshemaoyi.cn/kongbu/1527267.htm)
-- [财神窦占龙 第12集 宿仇【8月国创】](http://www.play.hengshemaoyi.cn/xiju/3775329.htm)
+- [国台办回应IMF将台湾列为中国一省](http://www.play.hengshemaoyi.cn/xiju/2367459.htm)
+- [中东“榜一大哥”率团来华提飞行汽车](http://www.daogukj.com/whykihfw/)
+- [曝问界海外车型弃华为智驾](http://www.daogukj.com/1896871)
+- [星巴克明日起在中国施行消费入座](http://www.movie.hkepx.cn/movie/7726331.htm)
+- [未央何处丨燕云X张良仁教授的“考古之旅”](http://www.play.hengshemaoyi.cn/kongbu/7591988.htm)
+- [“中国AI禁令”拟出台 震动全球](http://www.movie.hkepx.cn/movie/9833785.htm)
+- [于东来拿2000万投资爱情研究小组](http://www.movie.hkepx.cn/movie/5639163.htm)
+- [台独给周杰伦扣帽子国台办回应](http://www.daogukj.com/2186746)
+- [人类历史上最大的投资泡沫或正在破裂](http://www.play.hengshemaoyi.cn/kongbu/2268018.htm)
+- [女子下班后绕道买菜，遭遇车祸身亡，人社部门不予认定工伤，法院判决算工伤，如何理解？](http://www.play.hengshemaoyi.cn/kongbu/6473132.htm)
+- [⚡赵本山 《绅士Gentle Man》⚡](http://www.daogukj.com/1106243)
+- [多家高校家长吐槽大学课太少，担心孩子没课时睡懒觉，你怎么看待这件事？](http://www.play.hengshemaoyi.cn/xiju/5943556.htm)
+- [黄仁勋当着德国总理面点出中国优势](http://www.daogukj.com/9530499)
+- [医保个人账户跨省共济落地全国，意味着什么？将带来哪些利好？](http://www.movie.hkepx.cn/xiju/0808829.htm)
+- [女子迟到错过检票失控哀求工作人员](http://www.play.hengshemaoyi.cn/kongbu/8834808.htm)
+- [法国爆发大规模示威，距离 2027 法国总统大选仅剩半年，这次事件会对大选造成什么影响？](http://www.movie.hkepx.cn/xiju/0940758.htm)
+- [男子换刹车片发现磨得只剩铁皮](http://www.movie.hkepx.cn/movie/9022890.htm)
+- [丈夫1个拥抱 妻子断了5根肋骨](http://www.play.hengshemaoyi.cn/kongbu/2216390.htm)
+- [马斯克建议别为退休攒钱](http://www.play.hengshemaoyi.cn/xiju/1375823.htm)
+- [高铁座椅是HPV感染来源？专家辟谣](http://www.daogukj.com/goeqgpai/)
+- [杨幂刘诗诗都当过开毯嘉宾](http://www.play.hengshemaoyi.cn/kongbu/1757591.htm)
+- [OpenAl 证明的朗道-西格尔零点问题被数学家重新解释，是否意味着这个问题被解决？](http://www.play.hengshemaoyi.cn/kongbu/9879555.htm)
+- [“小天才”就不能安安心心做块表吗](http://www.play.hengshemaoyi.cn/xiju/7503553.htm)
+- [律师谈肖战二开不予退票：值得点赞](http://www.movie.hkepx.cn/xiju/5861166.htm)
+- [核能“充电宝”来了](http://www.play.hengshemaoyi.cn/xiju/5549607.htm)
+- [我得到了，能看到表白率的超能力……](http://www.play.hengshemaoyi.cn/kongbu/6769731.htm)
+- [PCL出事了？那MC下载和联机，我们先顶上了](http://www.play.hengshemaoyi.cn/xiju/8003531.htm)
+- [群演称刘诗诗一点架子都没有](http://www.movie.hkepx.cn/xiju/9172364.htm)
+- [男子患癌晚期 弟弟陪诊后也查出癌症](http://www.movie.hkepx.cn/movie/6262590.htm)
+- [中西部首个万亿外贸城市要来了](http://www.play.hengshemaoyi.cn/kongbu/5906748.htm)
+- [美日“利剑”军演为何挺进与那国岛](http://www.daogukj.com/goynbzba/)
+- [马刺雷霆爆发冲突](http://www.daogukj.com/oqkhnwnb/)
+- [胖东来式的高待遇，是好生意的结果，还是好生意的原因？](http://www.movie.hkepx.cn/xiju/8878997.htm)
+- [男童没唱歌被老师踢倒 警方终止调查](http://www.daogukj.com/frbhpamg/)
+- [曝90花不满芭莎红毯顺序](http://www.daogukj.com/8218296)
+- [手机市场为何突然入冬了](http://www.movie.hkepx.cn/xiju/3382411.htm)
+- [李嘉格带男友上结婚综艺](http://www.play.hengshemaoyi.cn/kongbu/3195197.htm)
+- [财神窦占龙 第12集 宿仇【8月国创】](http://www.movie.hkepx.cn/xiju/8373508.htm)
+- [宝马员工争着离职](http://www.daogukj.com/uamigzyj/)
+- [日本年轻人流行「取消吃饭」，背后折射出怎样的现实困境？](http://www.daogukj.com/uevljbcs/)
+- [拟出台的中国AI禁令震动全球](http://www.play.hengshemaoyi.cn/xiju/4322946.htm)
+- [陈瑜林子濠结婚](http://www.movie.hkepx.cn/movie/3471289.htm)
+- [国家癌症中心公布发病前五癌症](http://www.movie.hkepx.cn/movie/3873340.htm)
+- [曹雪芹、吴承恩看到「圣黛CP」是一笑而过还是气活过来？](http://www.daogukj.com/0908523)
+- [电商女装退货率普遍冲上 80%，背后的原因是什么？](http://www.daogukj.com/7782066)
+- [人民日报评特斯拉能飞：不必妄自菲薄](http://www.play.hengshemaoyi.cn/kongbu/3377780.htm)
+- [南京人披旭日旗挑衅，莫大校友透露朋友圈内容，发现事情并不简单](http://www.play.hengshemaoyi.cn/xiju/9852587.htm)
+- [李晟说高梓淇恋情瞒得太好了](http://www.daogukj.com/njwfupeo/)
+- [美舰冲闯仙宾礁是要为菲律宾撑腰吗](http://www.play.hengshemaoyi.cn/kongbu/1527267.htm)
+- [年轻人“旁听”遵义会议爆火](http://www.play.hengshemaoyi.cn/xiju/3775329.htm)
 
 </details>
 
 ## 原始来源
 
-- [唐禹哲获刑1年7个月缓刑3年](https://s.weibo.com/weibo?q=%E5%94%90%E7%A6%B9%E5%93%B2%E8%8E%B7%E5%88%911%E5%B9%B47%E4%B8%AA%E6%9C%88%E7%BC%93%E5%88%913%E5%B9%B4)
+- [伊朗已有超3万名女性忍者，熟练使用弓、剑、飞镖等武器等训练画面走热，背后是怎样的社会文化环境？](https://www.zhihu.com/question/2095115972684112468)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d4f53a2a935a06a4c9aa -->
+<!-- content-fingerprint: e2b4789ead4f1c67d9a2 -->
