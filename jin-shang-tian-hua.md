@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# “瓦龙哆嗦毛”
+# 避障
 
-> 来源：哔哩哔哩热门 · 排名：第 19 位 · 热度：716750 · 分类：日常 · 更新：2026-10-22T15:58:44+08:00
+> 来源：哔哩哔哩热门 · 排名：第 19 位 · 热度：665546 · 分类：日常 · 更新：2026-10-22T21:38:46+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，““瓦龙哆嗦毛””位列第 19 位，公开热度指标为 716750，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“避障”位列第 19 位，公开热度指标为 665546，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：-
 
@@ -18,18 +18,18 @@
 
 ## 相关热点
 
-- [冰川在融化 滔天的洪水真的会到来](hua-long-dian-jing.md)
-- [HLE婉拒TES后与iG交换队服](miao-bi-sheng-hua.md)
-- [越南明年GDP至少增长10%目标能实现吗](sheng-dong-huo-po.md)
-- [民进党当局拒绝艺人张凌赫赴台交流，国台办回应称「与广大台湾同胞的意愿背道而驰」，如何看待这件事？](xu-xu-ru-sheng.md)
+- [员工离职情绪高涨 宝马关闭补偿计划](hua-long-dian-jing.md)
+- [红果把观众的时间标好了价](miao-bi-sheng-hua.md)
+- [演唱会黄牛一个月获利100万](sheng-dong-huo-po.md)
+- [电影《沙丘 3》中国内地定档 12 月 31 日上映，晚于北美 12 天，对此你有何期待？](xu-xu-ru-sheng.md)
 
 ## 站内推荐
 
-- [贫困户1.2万住院费医保报销93%](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [收评：全市场近5000只个股下挫](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [雷军被记者问SU9何时上市](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [红果短剧宣布将下线金币功能，这一商业决策背后有哪些考虑？是不需要靠「薅羊毛」引流实现增长了吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [全球总决赛回忆挑战，谁是LPL全能王？【开麦了LPL】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [《长征颂歌》晚会](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [高市早苗疑因醉酒缺席G7线上峰会](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [小狗如奶油般融化…](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [全球总决赛回忆挑战，谁是LPL全能王？【开麦了LPL】](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [24岁美国乡下大学天才"讲师"：叛逆狂人的潇洒生活！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
@@ -37,62 +37,62 @@
 <summary>展开更多相关内容</summary>
 
 - [吴艳妮面对采访说自己训练强度能达到12秒7、12秒6的程度，但是比赛就是达不到，你怎么看？](http://www.play.hengshemaoyi.cn/xiju/6246916.htm)
-- [《嫁金钗》把观众当傻子](http://www.play.hengshemaoyi.cn/xiju/0196335.htm)
-- [麻六记位列阿宽食品第一大欠款方](http://www.daogukj.com/txhvfhkc/)
-- [半月谈：别让片面比较带偏AI讨论](http://www.movie.hkepx.cn/xiju/8357680.htm)
-- [你听过哪些「被逼到没有退路，最后自己硬是走出一条路」的故事？](http://www.movie.hkepx.cn/xiju/7453143.htm)
-- [“一斤开心果赶上买两只鸡了”](http://www.daogukj.com/3829236)
-- [3Blue1Brown 称「现在是学数学的最佳时机」，如何看待此观点？](http://www.movie.hkepx.cn/movie/7849010.htm)
-- [新华社在美国找到红军长征时珍贵照片](http://www.movie.hkepx.cn/movie/3810739.htm)
-- [肖战你也知道自己演唱会票难抢啊](http://www.daogukj.com/xwtczorl/)
-- [地铁站内看书5小时被扣15元](http://www.daogukj.com/9411778)
-- [430吨巨无霸过境 收费站拆岗亭让路](http://www.movie.hkepx.cn/xiju/1018177.htm)
-- [黄婷婷 李艺彤](http://www.movie.hkepx.cn/movie/7549482.htm)
-- [比特币涨破8.4万美元](http://www.movie.hkepx.cn/xiju/3152832.htm)
-- [A股“市值一哥”再创新高](http://www.movie.hkepx.cn/xiju/6452829.htm)
-- [《清微观来的插班生》EP02 ：报告老师！有蛇精！ 【UP动画】](http://www.play.hengshemaoyi.cn/kongbu/1742289.htm)
-- [张本智和被打出0-11惨败](http://www.play.hengshemaoyi.cn/xiju/4134369.htm)
-- [雷军被记者问SU9何时上市](http://www.play.hengshemaoyi.cn/kongbu/8805735.htm)
-- [中国军号抖音粉丝突破6500万](http://www.movie.hkepx.cn/xiju/1005247.htm)
-- [问界事故车速数据为何有差异](http://www.play.hengshemaoyi.cn/xiju/4070224.htm)
-- [郑欣宜在沈殿霞墓前落泪](http://www.movie.hkepx.cn/movie/8130025.htm)
-- [杭州大二学生开一人公司营收破60万](http://www.play.hengshemaoyi.cn/kongbu/7840266.htm)
-- [日本关键稀土钇储备将耗尽，求助美国敦促中方放宽管制，稀土将耗尽一事将对日方产生多大影响？](http://www.daogukj.com/mgvzhkvp/)
-- [演员白鹿名下公司均已注销](http://www.play.hengshemaoyi.cn/kongbu/6692605.htm)
-- [泽连斯基表示，乌克兰愿在保留至少75%领土控制权的基础上达成和平协议，你怎么看？](http://www.daogukj.com/0659107)
-- [长征 永远在路上](http://www.movie.hkepx.cn/movie/2177161.htm)
-- [怎么看解放军4艘大型登陆舰实弹演练](http://www.movie.hkepx.cn/xiju/4629379.htm)
-- [贫困户1.2万住院费医保报销93%](http://www.play.hengshemaoyi.cn/kongbu/8609961.htm)
-- [《代号：神不言》UFSH2026参会实机技术演示&实机特别影像](http://www.play.hengshemaoyi.cn/kongbu/2788736.htm)
-- [女子称地铁站内看5小时书被扣15元](http://www.movie.hkepx.cn/movie/9454869.htm)
-- [《人间异想计划》22分钟实机首曝｜间章：如果之事与未践之约](http://www.movie.hkepx.cn/movie/8856381.htm)
-- [车灯新国标公布后，「外显大屏」形态的像素灯将成为历史，汽车大灯的技术发展方向将如何调整？](http://www.movie.hkepx.cn/movie/7928531.htm)
-- [越南明年GDP至少增长10%目标能实现吗](http://www.play.hengshemaoyi.cn/kongbu/5748891.htm)
-- [50元一斤的卤味鸭脖 年轻人不愿啃了](http://www.movie.hkepx.cn/movie/2928084.htm)
-- [湖北一高校发布通知，严禁老师上课全程依赖PPT，能有效提高教学质量吗？可以推广吗？](http://www.play.hengshemaoyi.cn/xiju/0239872.htm)
-- [长实集团再澄清：李嘉诚健康情况良好](http://www.daogukj.com/7779634)
-- [24岁美国乡下大学天才"讲师"：叛逆狂人的潇洒生活！](http://www.play.hengshemaoyi.cn/kongbu/8270746.htm)
-- [揭露骗局 红军伟大长征不容消费](http://www.daogukj.com/7335488)
-- [因为智商不够，从EXO到生子，被打脸的嘴硬的一生。【黄子韬徐艺洋官宣生子】](http://www.movie.hkepx.cn/xiju/7580266.htm)
-- [大量金条正离开美国去往新加坡](http://www.play.hengshemaoyi.cn/xiju/9936981.htm)
-- [BigHit回应崔秀彬事件](http://www.movie.hkepx.cn/xiju/0655390.htm)
-- [美甲医疗剧](http://www.daogukj.com/tyoqvbnt/)
-- [法国55万人大游行！但马克龙和夫人在跳舞](http://www.movie.hkepx.cn/xiju/8108717.htm)
-- [创业板指低开低走跌超4%](http://www.play.hengshemaoyi.cn/xiju/0718869.htm)
-- [松岛辉空0-3朴奎炫](http://www.play.hengshemaoyi.cn/kongbu/2897114.htm)
-- [张本智和被打0-11惨败](http://www.play.hengshemaoyi.cn/xiju/2827049.htm)
-- [不鸽了！饥来了！《饥困荒野》定档特别节目](http://www.movie.hkepx.cn/xiju/1312993.htm)
-- [曝某明星长期借不到高定，自费购买礼服后引该品牌PR暴怒，可能会是谁？为啥自费购买也会引起高奢品牌不满？](http://www.daogukj.com/auvxhwep/)
-- [韩国要收回美国权力指挥美军](http://www.play.hengshemaoyi.cn/kongbu/9308752.htm)
-- [在新长征路上阔步前行](http://www.daogukj.com/5938049)
-- [张萌让马天宇别再拍她的戏](http://www.play.hengshemaoyi.cn/xiju/7231318.htm)
+- [男子把银行卡藏鞋里寄出 父亲报案](http://www.play.hengshemaoyi.cn/xiju/0196335.htm)
+- [厉娜恨过许飞非常久](http://www.daogukj.com/txhvfhkc/)
+- [苹果用户免费 安卓用户收15元](http://www.movie.hkepx.cn/xiju/8357680.htm)
+- [因为智商不够，从EXO到生子，被打脸的嘴硬的一生。【黄子韬徐艺洋官宣生子】](http://www.movie.hkepx.cn/xiju/7453143.htm)
+- [养一头牛至少赚2000多元](http://www.daogukj.com/3829236)
+- [中国古代人民为什么不用煤炭当燃料呢？](http://www.movie.hkepx.cn/movie/7849010.htm)
+- [全球70%网站都危险了](http://www.movie.hkepx.cn/movie/3810739.htm)
+- [九尾 50呢](http://www.daogukj.com/xwtczorl/)
+- [白鹿工作室注销](http://www.daogukj.com/9411778)
+- [女子100天零违章获奖1吨汽油](http://www.movie.hkepx.cn/xiju/1018177.htm)
+- [外地患者组团到高校传播艾滋病不实](http://www.movie.hkepx.cn/movie/7549482.htm)
+- [曝某明星长期借不到高定，自费购买礼服后引该品牌PR暴怒，可能会是谁？为啥自费购买也会引起高奢品牌不满？](http://www.movie.hkepx.cn/xiju/3152832.htm)
+- [日本教练队员都没等张本智和先行离开](http://www.movie.hkepx.cn/xiju/6452829.htm)
+- [韩国要收回美国权力指挥美军](http://www.play.hengshemaoyi.cn/kongbu/1742289.htm)
+- [我军为何在黄海南部进行长时间演习](http://www.play.hengshemaoyi.cn/xiju/4134369.htm)
+- [小狗如奶油般融化…](http://www.play.hengshemaoyi.cn/kongbu/8805735.htm)
+- [大火逼近中国 日本道歉岂能只道一半](http://www.movie.hkepx.cn/xiju/1005247.htm)
+- [人民日报评医学生盲猜病情](http://www.play.hengshemaoyi.cn/xiju/4070224.htm)
+- [人民日报评星巴克消费入座](http://www.movie.hkepx.cn/movie/8130025.htm)
+- [国家癌症中心公布发病前五癌症，较二十年前发生变动，胃癌食管癌跌出前五，背后有哪些原因？反映了什么趋势？](http://www.play.hengshemaoyi.cn/kongbu/7840266.htm)
+- [特朗普称将砸逾 4 亿美元助共和党选举，或成美国历史上烧钱最多的中期选举，共和党胜算有多大？](http://www.daogukj.com/mgvzhkvp/)
+- [银行回应每天仅营业3.5小时](http://www.play.hengshemaoyi.cn/kongbu/6692605.htm)
+- [小伙靠3D打印，硬刚义乌工厂？](http://www.daogukj.com/0659107)
+- [红军为何总能绝处逢生](http://www.movie.hkepx.cn/movie/2177161.htm)
+- [张本智和被打出0-11惨败](http://www.movie.hkepx.cn/xiju/4629379.htm)
+- [《长征颂歌》晚会](http://www.play.hengshemaoyi.cn/kongbu/8609961.htm)
+- [许超医生谈李子祺称参加过4级手术](http://www.play.hengshemaoyi.cn/kongbu/2788736.htm)
+- [iPhone Duo测评出炉，折叠3000次后，折痕明显加深，高负载下发热明显，还有哪些问题值得关注？](http://www.movie.hkepx.cn/movie/9454869.htm)
+- [用寂静岭的画风打开《周处除三害》【AI MV大赛】](http://www.movie.hkepx.cn/movie/8856381.htm)
+- [留美在读女博士答辩失利，向实验室同门咖啡机投毒「丙烯酰胺」，如何看待这一事件？](http://www.movie.hkepx.cn/movie/7928531.htm)
+- [演唱会黄牛一个月获利100万](http://www.play.hengshemaoyi.cn/kongbu/5748891.htm)
+- [接班贾玲的重任落她身上了](http://www.movie.hkepx.cn/movie/2928084.htm)
+- [乒乓球亚锦赛男团半决赛，国乒3-1中国台北队，将在决赛对阵韩国队，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/0239872.htm)
+- [那英花篮写着战战向前冲姐姐紧相随](http://www.daogukj.com/7779634)
+- [折1万次，会坏吗？iPhone Duo深度评测](http://www.play.hengshemaoyi.cn/kongbu/8270746.htm)
+- [捷达M6正式上市](http://www.daogukj.com/7335488)
+- [法国55万人大游行！但马克龙和夫人在跳舞](http://www.movie.hkepx.cn/xiju/7580266.htm)
+- [Dior厦门首店](http://www.play.hengshemaoyi.cn/xiju/9936981.htm)
+- [虞书欣直播](http://www.movie.hkepx.cn/xiju/0655390.htm)
+- [欧洲多国爆发抗议示威 民众怎么看](http://www.daogukj.com/tyoqvbnt/)
+- [燕云×1818黄金眼 | 长乐未央，天下无诈](http://www.movie.hkepx.cn/xiju/8108717.htm)
+- [牛市逻辑真的不在了吗](http://www.play.hengshemaoyi.cn/xiju/0718869.htm)
+- [女子地铁站内看书 5 个小时被扣 15 元，怎么看待地铁超时收费？其中读书空间等消费场景的设置合理吗？](http://www.play.hengshemaoyi.cn/kongbu/2897114.htm)
+- [加完微信只回了一个字账号就被封](http://www.play.hengshemaoyi.cn/xiju/2827049.htm)
+- [沈阳商场保洁大叔高颜值出圈](http://www.movie.hkepx.cn/xiju/1312993.htm)
+- [如何评价SemiAnalysis认为DeepSeek与华为已形成共生关系？](http://www.daogukj.com/auvxhwep/)
+- [别点！点了就会变成白毛控！](http://www.play.hengshemaoyi.cn/kongbu/9308752.htm)
+- [我国面向全球的自贸网络已经初步成型](http://www.daogukj.com/5938049)
+- [王艺迪3比2胜张本美和](http://www.play.hengshemaoyi.cn/xiju/7231318.htm)
 
 </details>
 
 ## 原始来源
 
-- [“瓦龙哆嗦毛”](https://b23.tv/BV1iVnq6DEui)
+- [避障](https://b23.tv/BV1w7nw6wEHZ)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: e03dae99138450b4de77 -->
+<!-- content-fingerprint: 5efd066746d743171362 -->
