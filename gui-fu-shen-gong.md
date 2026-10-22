@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 俄罗斯就日企向乌交付无人机发出警告
+# 湖北一高校发布通知，严禁老师上课全程依赖PPT，能有效提高教学质量吗？可以推广吗？
 
-> 来源：今日头条热榜 · 排名：第 19 位 · 热度：1581077 · 分类：新事件上榜 · 更新：2026-10-22T10:45:11+08:00
+> 来源：知乎热榜 · 排名：第 19 位 · 热度：128 万热度 · 分类：问答 · 更新：2026-10-22T15:58:44+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“俄罗斯就日企向乌交付无人机发出警告”位列第 19 位，公开热度指标为 1581077，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“湖北一高校发布通知，严禁老师上课全程依赖PPT，能有效提高教学质量吗？可以推广吗？”位列第 19 位，公开热度指标为 128 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：湖北一高校发布通知，严禁老师上课全程依赖PPT，能有效提高教学质量吗？可以推广吗？ https://mp.weixin.qq.com/s/J4CraR8ORsZJ11U946CUCw 10月13日，湖北汽车工业学院教务处发布《关于进一步提升课堂教学质量的通知》，其中提出“坚持核心板书，助力知识内化”，要求教师对课程中的重要术语、关键公式及专业缩写进行规范板书。严禁全程依赖PPT，确保学生有充足时间记录、理解并掌握核心知识点。 各教学单位： 为切实提升我校课堂教学质量，针对近期教学督导在巡课中发现的共性问题，现就进一步规范课堂教学、优化教学效果提出如下建议
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `新事件上榜`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [丹麦男子卖中国包子一天赚 5 万元，中式面食在海外有多受欢迎？还有哪些中国传统小吃最有可能在海外走红？](jin-shang-tian-hua.md)
-- [大难不死的男孩爱上纯血家族的女孩【AI全民制作人】](hua-long-dian-jing.md)
-- [中国体操姑娘们哭了](miao-bi-sheng-hua.md)
-- [原来明星租一次高定这么贵啊](sheng-dong-huo-po.md)
+- [“瓦龙哆嗦毛”](jin-shang-tian-hua.md)
+- [冰川在融化 滔天的洪水真的会到来](hua-long-dian-jing.md)
+- [HLE婉拒TES后与iG交换队服](miao-bi-sheng-hua.md)
+- [越南明年GDP至少增长10%目标能实现吗](sheng-dong-huo-po.md)
 
 ## 站内推荐
 
-- [上海婚纱店疑删除祖海高定内容](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
-- [宇树机器人展示举起汽车救人](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
-- [中国体操女团时隔20年夺冠](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
-- [周杰伦说我是中国人有什么可讨论的](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
-- [负债7w另有1万信用卡即将逾期](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
+- [手握10篇SCI医学生盲猜病情引争议](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
+- [麻六记位列阿宽食品第一大欠款方](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
+- [虞书欣十年前演青蛇的样子](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
+- [比特币涨破8.4万美元](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
+- [吴艳妮面对采访说自己训练强度能达到12秒7、12秒6的程度，但是比赛就是达不到，你怎么看？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [折1万次，会坏吗？iPhone Duo深度评测](http://www.play.hengshemaoyi.cn/kongbu/5808339.htm)
-- [80岁老人网上卖零食接连遭仅退款](http://www.daogukj.com/1739906)
-- [中国限制盾构机出口对印度影响有多大](http://www.daogukj.com/6935812)
-- [张小斐 救场](http://www.daogukj.com/pmpkacrd/)
-- [勇士vs湖人](http://www.play.hengshemaoyi.cn/kongbu/2438192.htm)
+- [《影之刃零》最终预告](http://www.play.hengshemaoyi.cn/kongbu/5808339.htm)
+- [女子摔坏双层保温碗 发现满是霉菌](http://www.daogukj.com/1739906)
+- [泽连斯基对领土态度为什么突然松动](http://www.daogukj.com/6935812)
+- [已知西瓜瓤在西瓜被切开后是红色的，那切开之前是什么颜色的？](http://www.daogukj.com/pmpkacrd/)
+- [日本关键稀土钇储备将耗尽，求助美国敦促中方放宽管制，稀土将耗尽一事将对日方产生多大影响？](http://www.play.hengshemaoyi.cn/kongbu/2438192.htm)
 - [【何同学】能折！但代价呢？iPhone Duo首发体验](http://www.play.hengshemaoyi.cn/kongbu/7293063.htm)
-- [入局](http://www.play.hengshemaoyi.cn/xiju/4857183.htm)
-- [重庆：拟追责问责公职人员94人](http://www.movie.hkepx.cn/xiju/7889734.htm)
-- [26-27 赛季欧冠联赛阶段曼联 1-4 科莫，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/0667195.htm)
-- [杭州大二学生开一人公司营收破60万](http://www.play.hengshemaoyi.cn/kongbu/1579498.htm)
-- [现实可比电影荒谬多了！这些看似鬼扯的桥段，一查资料全是真事！](http://www.movie.hkepx.cn/movie/0667278.htm)
-- [男子酒后认错人拍女子后背被诉猥亵](http://www.movie.hkepx.cn/movie/2598628.htm)
-- [曝自费高定艺人名字](http://www.daogukj.com/vbrxejif/)
-- [广东一小区疑现大量骨灰房？当地通报](http://www.play.hengshemaoyi.cn/xiju/6786751.htm)
-- [72岁董明珠称被学生喊奶奶很不开心](http://www.daogukj.com/kpifomse/)
-- [如何评价《offer8》医学季定档后引发医学生集体吐槽？真实的医学生规培现状与节目呈现差别有多大？](http://www.daogukj.com/1805907)
-- [白宫新闻发言人五天光速离职，我的评价是不如我](http://www.daogukj.com/0272216)
-- [已知西瓜瓤在西瓜被切开后是红色的，那切开之前是什么颜色的？](http://www.play.hengshemaoyi.cn/xiju/6434082.htm)
-- [遇到碰撞事故，车企宣传的AEB，真的能救命吗？](http://www.play.hengshemaoyi.cn/xiju/8702577.htm)
-- [央行将退出存贷款基准利率，用市场化利率指标来替代，如何解读这一变化带来的影响？](http://www.daogukj.com/1001749)
-- [红果短剧宣布将下线金币功能，这一商业决策背后有哪些考虑？是不需要靠「薅羊毛」引流实现增长了吗？](http://www.daogukj.com/9435306)
-- [辛芷蕾凭《日掛中天》获威尼斯影后却未入围金鸡奖，如何看待这一结果？](http://www.play.hengshemaoyi.cn/kongbu/5701265.htm)
-- [美国为何“抛弃”乌克兰](http://www.movie.hkepx.cn/xiju/3842120.htm)
-- [电脑总是卡顿掉帧？原来是ACE 根本没有彻底卸载干净！](http://www.movie.hkepx.cn/xiju/7251868.htm)
-- [为什么做豆腐用黄豆，不用其他豆类？](http://www.movie.hkepx.cn/movie/8872274.htm)
-- [一盏智驾小蓝灯明确“谁在承担后果”](http://www.daogukj.com/yniobcvk/)
-- [地铁站内看书5小时被扣15元](http://www.movie.hkepx.cn/movie/0768259.htm)
-- [《小城良方》开播口碑](http://www.daogukj.com/8746275)
-- [普京称首艘油轮将向美国运4万吨柴油](http://www.play.hengshemaoyi.cn/xiju/8271575.htm)
-- [如何评价BioWare于10月22日宣布关闭，为何一个诞生过博德之门等游戏的公司最终走向如此下场？](http://www.daogukj.com/kgtebwbx/)
-- [负债7w另有1万信用卡即将逾期](http://www.play.hengshemaoyi.cn/xiju/1497703.htm)
-- [中国体操女队终结美国7连冠](http://www.movie.hkepx.cn/xiju/0744889.htm)
-- [中国体操女团夺冠解说哽咽了](http://www.movie.hkepx.cn/xiju/0791643.htm)
-- [无名忠骨 山河永记](http://www.movie.hkepx.cn/movie/3601600.htm)
-- [iPhone Duo折叠3000次后折痕加深](http://www.daogukj.com/6606882)
-- [走好属于我们这一代的长征路](http://www.play.hengshemaoyi.cn/kongbu/5430461.htm)
-- [法国总统：坚决杜绝骚乱重演](http://www.play.hengshemaoyi.cn/xiju/1401530.htm)
-- [意大利梭子蟹泛滥！芬兰家人跨国抓爆桶场面太夸张！中式全蟹盛宴辣炒葱姜白灼花式做法炫到欲罢不能！](http://www.play.hengshemaoyi.cn/kongbu/6874966.htm)
-- [日本79岁女护理员上18小时夜班](http://www.movie.hkepx.cn/xiju/0869674.htm)
-- [特朗普借用克林顿时代战略储备救急](http://www.movie.hkepx.cn/xiju/8892121.htm)
-- [女子称地铁站内看5小时书被扣15元](http://www.daogukj.com/3840867)
-- [一起命案竟有三十多个嫌疑人？光天化日行凶，却没人看到？《谜探路德维希》第二季 上](http://www.daogukj.com/tdthozvf/)
-- [离婚后发现前夫婚内继承400余万](http://www.movie.hkepx.cn/movie/9314467.htm)
-- [《三过车门而不入》](http://www.daogukj.com/4927582)
-- [国家癌症中心发布数据，甲状腺癌跃居发病第 3 位，20～39 岁男女发病率最高，为什么会这样？](http://www.movie.hkepx.cn/xiju/7135657.htm)
-- [《边缘行者 2》开播获外媒满分评价，该作水准究竟如何？](http://www.daogukj.com/edbsjtbr/)
-- [联想词](http://www.movie.hkepx.cn/movie/3015116.htm)
-- [一个个土名背后是最朴素的中国英魂](http://www.play.hengshemaoyi.cn/kongbu/8223902.htm)
-- [超强台风蔷琵逼近中国](http://www.daogukj.com/goublmac/)
-- [普京：不排除与特朗普赴华会晤可能性](http://www.movie.hkepx.cn/xiju/7589973.htm)
+- [【战双帕弥什】「流光抛诸寰宇」版本PV](http://www.play.hengshemaoyi.cn/xiju/4857183.htm)
+- [前女友曝陈天润语音](http://www.movie.hkepx.cn/xiju/7889734.htm)
+- [A股“市值一哥”再创新高](http://www.play.hengshemaoyi.cn/kongbu/0667195.htm)
+- [430吨巨无霸过境 收费站拆岗亭让路](http://www.play.hengshemaoyi.cn/kongbu/1579498.htm)
+- [24岁美国乡下大学天才"讲师"：叛逆狂人的潇洒生活！](http://www.movie.hkepx.cn/movie/0667278.htm)
+- [杭州大二学生开一人公司营收破60万](http://www.movie.hkepx.cn/movie/2598628.htm)
+- [松岛辉空0-3朴奎炫](http://www.daogukj.com/vbrxejif/)
+- [黄婷婷 李艺彤](http://www.play.hengshemaoyi.cn/xiju/6786751.htm)
+- [怎么看解放军4艘大型登陆舰实弹演练](http://www.daogukj.com/kpifomse/)
+- [为什么我国的中学生大部分都不会做引体向上？](http://www.daogukj.com/1805907)
+- [张萌让马天宇别再拍她的戏](http://www.daogukj.com/0272216)
+- [医生说现在的鸡都是快速养殖，激素多，吃了对孩子身体不好，是这样吗？](http://www.play.hengshemaoyi.cn/xiju/6434082.htm)
+- [郑欣宜在沈殿霞墓前落泪](http://www.play.hengshemaoyi.cn/xiju/8702577.htm)
+- [泽连斯基表示，乌克兰愿在保留至少75%领土控制权的基础上达成和平协议，你怎么看？](http://www.daogukj.com/1001749)
+- [抗日神剧逆天剧情！女兵战场睡觉？睡醒还要给她找吃的！](http://www.daogukj.com/9435306)
+- [高市早苗推荐，暴打东大情报组织！日本大火的抗中神剧看瞎了我的眼【毒舌的南瓜】](http://www.play.hengshemaoyi.cn/kongbu/5701265.htm)
+- [腾讯股价跌破 400 港元创新低，市值较高点缩水近四成，问题出在哪？市场对腾讯的估值逻辑发生哪些转变？](http://www.movie.hkepx.cn/xiju/3842120.htm)
+- [半月谈：别让片面比较带偏AI讨论](http://www.movie.hkepx.cn/xiju/7251868.htm)
+- [因为智商不够，从EXO到生子，被打脸的嘴硬的一生。【黄子韬徐艺洋官宣生子】](http://www.movie.hkepx.cn/movie/8872274.htm)
+- [贾乃亮从早播到晚](http://www.daogukj.com/yniobcvk/)
+- [演员白鹿名下公司均已注销](http://www.movie.hkepx.cn/movie/0768259.htm)
+- [你听过哪些「被逼到没有退路，最后自己硬是走出一条路」的故事？](http://www.daogukj.com/8746275)
+- [收评：全市场近5000只个股下挫](http://www.play.hengshemaoyi.cn/xiju/8271575.htm)
+- [多款 3A 老游戏被 AI 光速反编译并移植网页端，将对游戏行业带来哪些冲击？](http://www.daogukj.com/kgtebwbx/)
+- [吴艳妮面对采访说自己训练强度能达到12秒7、12秒6的程度，但是比赛就是达不到，你怎么看？](http://www.play.hengshemaoyi.cn/xiju/1497703.htm)
+- [美甲医疗剧](http://www.movie.hkepx.cn/xiju/0744889.htm)
+- [国乒男团0比1中国台北](http://www.movie.hkepx.cn/xiju/0791643.htm)
+- [薪火相传走好新的长征路](http://www.movie.hkepx.cn/movie/3601600.htm)
+- [贫困户1.2万住院费医保报销93%](http://www.daogukj.com/6606882)
+- [在新长征路上阔步前行](http://www.play.hengshemaoyi.cn/kongbu/5430461.htm)
+- [张本智和被打出0-11惨败](http://www.play.hengshemaoyi.cn/xiju/1401530.htm)
+- [山姆紧急下架牡蛎精胶囊](http://www.play.hengshemaoyi.cn/kongbu/6874966.htm)
+- [全球总决赛回忆挑战，谁是LPL全能王？【开麦了LPL】](http://www.movie.hkepx.cn/xiju/0869674.htm)
+- [民进党当局拒绝艺人张凌赫赴台交流，国台办回应称「与广大台湾同胞的意愿背道而驰」，如何看待这件事？](http://www.movie.hkepx.cn/xiju/8892121.htm)
+- [问界事故车速数据为何有差异](http://www.daogukj.com/3840867)
+- [《清微观来的插班生》EP02 ：报告老师！有蛇精！ 【UP动画】](http://www.daogukj.com/tdthozvf/)
+- [女子称地铁站内看5小时书被扣15元](http://www.movie.hkepx.cn/movie/9314467.htm)
+- [专家称A股现在是黎明前的黑暗](http://www.daogukj.com/4927582)
+- [《明日方舟：终末地》「镌宇铭星-共赴星海」合作纪录 PV（下）](http://www.movie.hkepx.cn/xiju/7135657.htm)
+- [3Blue1Brown 称「现在是学数学的最佳时机」，如何看待此观点？](http://www.daogukj.com/edbsjtbr/)
+- [《人间异想计划》22分钟实机首曝｜间章：如果之事与未践之约](http://www.movie.hkepx.cn/movie/3015116.htm)
+- [马天宇：没有密友 只能找AI聊天](http://www.play.hengshemaoyi.cn/kongbu/8223902.htm)
+- [张本智和被打0-11惨败](http://www.daogukj.com/goublmac/)
+- [中国军号抖音粉丝突破6500万](http://www.movie.hkepx.cn/xiju/7589973.htm)
 
 </details>
 
 ## 原始来源
 
-- [俄罗斯就日企向乌交付无人机发出警告](https://www.toutiao.com/trending/7699285210906542602/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2215%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227699285210906542602%22%2C%22hot_board_impr_id%22%3A%22202610221045082EFC70AD70346EE882F5%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
+- [湖北一高校发布通知，严禁老师上课全程依赖PPT，能有效提高教学质量吗？可以推广吗？](https://www.zhihu.com/question/2096319498873726718)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f2089cf811cfeb65dccd -->
+<!-- content-fingerprint: a8c2a8c21f887270965f -->
