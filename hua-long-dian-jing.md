@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 员工离职情绪高涨 宝马关闭补偿计划
+# 西安油边挑战，2分钟吃一份油边，奖金200元。顾客还能免费试吃
 
-> 来源：百度热搜 · 排名：第 19 位 · 热度：5999681 · 更新：2026-10-22T21:38:46+08:00
+> 来源：哔哩哔哩热门 · 排名：第 19 位 · 热度：329576 · 分类：日常 · 更新：2026-10-23T02:09:29+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“员工离职情绪高涨 宝马关闭补偿计划”位列第 19 位，公开热度指标为 5999681。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“西安油边挑战，2分钟吃一份油边，奖金200元。顾客还能免费试吃”位列第 19 位，公开热度指标为 329576，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：宝马高额自愿离职补偿计划上线不到两周，因员工申请热度高涨、提前达成目标，宣布停止接收新申请。该方案最高补偿超65万欧元，配套多项离职福利，远高于德系同行标准，目前将在11月中旬完成申请筛选，后续逐步落地人员精简目标。
+来源公开摘要显示：本期视频由神气小鹿泡芙被pro赞助播出。 店名：地摊鲜切涮肉； 地址：西安市雁塔区延兴门一路海伦国际27号楼6-2商铺。 规则：挑战需要预约，2分钟内吃完250克油边，可获奖金200元，失败支付25元。 在西安的时候刷到了这家的挑战视频（已离开）， 就约着来挑战一下。 感觉难度不是那种特别高的，（跟很多专业难度相比而言） 但是成功率不高， 离得近有实力的可以跟老板约一下试试。 失败了也不会成本太高。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `日常`
 
 ## 相关热点
 
-- [红果把观众的时间标好了价](miao-bi-sheng-hua.md)
-- [演唱会黄牛一个月获利100万](sheng-dong-huo-po.md)
-- [电影《沙丘 3》中国内地定档 12 月 31 日上映，晚于北美 12 天，对此你有何期待？](xu-xu-ru-sheng.md)
-- [法国55万人大游行！但马克龙和夫人在跳舞](huo-ling-huo-xian.md)
+- [超强台风蔷琵逼近中国](miao-bi-sheng-hua.md)
+- [张萌后悔找马天宇上节目](sheng-dong-huo-po.md)
+- [北京市副市长夏林茂被查](xu-xu-ru-sheng.md)
+- [医生说现在的鸡都是快速养殖，激素多，吃了对孩子身体不好，是这样吗？](huo-ling-huo-xian.md)
 
 ## 站内推荐
 
 - [留美在读女博士答辩失利，向实验室同门咖啡机投毒「丙烯酰胺」，如何看待这一事件？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [多款 3A 老游戏被 AI 光速反编译并移植网页端，将对游戏行业带来哪些冲击？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [孙俪手机上几乎没有社交媒体](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [美股开盘：纳指低开1.55% Meta跌超4%](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [日本教练队员都没等张本智和先行离开](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [西藏那曲市巴青县发生 7.0 级地震，当地目前具体情况如何？你那边有震感吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [如何看待 HLE 以「未带多余队服婉拒 TES 交换队服请求」转头 iG 与 Guma 交换成功？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [这个视频到底加了什么看得我哈特软软](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [避障](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [时速400公里的高铁真要来了吗](http://www.movie.hkepx.cn/movie/8910900.htm)
-- [用寂静岭的画风打开《周处除三害》【AI MV大赛】](http://www.play.hengshemaoyi.cn/kongbu/1452959.htm)
-- [接班贾玲的重任落她身上了](http://www.movie.hkepx.cn/movie/4326545.htm)
-- [医生说现在的鸡都是快速养殖，激素多，吃了对孩子身体不好，是这样吗？](http://www.movie.hkepx.cn/movie/1643509.htm)
-- [孙俪手机上几乎没有社交媒体](http://www.daogukj.com/3734905)
-- [迪迦领衔平成三杰们激情演唱《uptown funk》 【AI MV大赛】](http://www.play.hengshemaoyi.cn/kongbu/4707077.htm)
-- [Dior厦门首店](http://www.play.hengshemaoyi.cn/xiju/9679366.htm)
-- [外地患者组团到高校传播艾滋病不实](http://www.movie.hkepx.cn/movie/8897904.htm)
-- [《最绝望の守门员》](http://www.play.hengshemaoyi.cn/xiju/8041326.htm)
+- [在星巴克开会1小时被提醒点单5次](http://www.movie.hkepx.cn/movie/8910900.htm)
+- [现实可比电影荒谬多了！这些看似鬼扯的桥段，一查资料全是真事！](http://www.play.hengshemaoyi.cn/kongbu/1452959.htm)
+- [李雪健这段无声演绎看哭了](http://www.movie.hkepx.cn/movie/4326545.htm)
+- [乒乓亚锦赛女团决赛，中国队 2-3 不敌日本获女团亚军，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/1643509.htm)
+- [如何看待 HLE 以「未带多余队服婉拒 TES 交换队服请求」转头 iG 与 Guma 交换成功？](http://www.daogukj.com/3734905)
+- [乒乓球亚锦赛男团决赛，中国 3-0 韩国，队史第 26 次夺冠，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/4707077.htm)
+- [宁德时代董秘被打？知情人士回应](http://www.play.hengshemaoyi.cn/xiju/9679366.htm)
+- [白鹿工作室注销](http://www.movie.hkepx.cn/movie/8897904.htm)
+- [北京市委就夏林茂被查表态](http://www.play.hengshemaoyi.cn/xiju/8041326.htm)
 - [大火逼近中国 日本道歉岂能只道一半](http://www.daogukj.com/8279615)
-- [后会友期 想请不敢请的都放观察室了](http://www.movie.hkepx.cn/xiju/6205852.htm)
-- [厉娜恨过许飞非常久](http://www.movie.hkepx.cn/xiju/0712642.htm)
-- [如何看待 HLE 以「未带多余队服婉拒 TES 交换队服请求」转头 iG 与 Guma 交换成功？](http://www.movie.hkepx.cn/xiju/6035249.htm)
-- [iPhone Duo测评出炉，折叠3000次后，折痕明显加深，高负载下发热明显，还有哪些问题值得关注？](http://www.daogukj.com/4744923)
-- [日本教练队员都没等张本智和先行离开](http://www.movie.hkepx.cn/movie/5089029.htm)
-- [印尼股市暴跌背后的资源主权博弈](http://www.movie.hkepx.cn/movie/2615772.htm)
-- [FPS游戏必学两大焚诀，学会胜率直接飙升！](http://www.play.hengshemaoyi.cn/kongbu/7334127.htm)
-- [小狗如奶油般融化…](http://www.daogukj.com/ptpekaap/)
-- [解放军演练海岛起降](http://www.daogukj.com/7356664)
-- [红果把观众的时间标好了价](http://www.daogukj.com/ayichqdz/)
-- [孙坚一边拍戏一边还债](http://www.movie.hkepx.cn/xiju/2706147.htm)
-- [虞书欣直播](http://www.play.hengshemaoyi.cn/xiju/6688215.htm)
-- [柴油危机影响有多大](http://www.daogukj.com/cndcdbte/)
-- [人民日报谈星巴克消费入座](http://www.daogukj.com/3515388)
+- [西藏7级地震](http://www.movie.hkepx.cn/xiju/6205852.htm)
+- [国乒男团夺亚锦赛第26冠](http://www.movie.hkepx.cn/xiju/0712642.htm)
+- [人民日报评综艺里医学生盲猜病情](http://www.movie.hkepx.cn/xiju/6035249.htm)
+- [演唱会黄牛一个月获利100万](http://www.daogukj.com/4744923)
+- [避障](http://www.movie.hkepx.cn/movie/5089029.htm)
+- [美股](http://www.movie.hkepx.cn/movie/2615772.htm)
+- [日本关键稀土钇储备将耗尽，求助美国敦促中方放宽管制，稀土将耗尽一事将对日方产生多大影响？](http://www.play.hengshemaoyi.cn/kongbu/7334127.htm)
+- [杭州大二学生开一人公司营收破60万](http://www.daogukj.com/ptpekaap/)
+- [孙俪邓超女儿小花跳舞总是撞上其他舞者](http://www.daogukj.com/7356664)
+- [超强台风蔷琵逼近中国](http://www.daogukj.com/ayichqdz/)
+- [周笔畅称参加一档节目后被人删好友](http://www.movie.hkepx.cn/xiju/2706147.htm)
+- [张本智和被打0-11惨败](http://www.play.hengshemaoyi.cn/xiju/6688215.htm)
+- [为防沉迷 红果短剧“自砍摇钱树”](http://www.daogukj.com/cndcdbte/)
+- [后会友期 想请不敢请的都放观察室了](http://www.daogukj.com/3515388)
 - [女子离婚后发现前夫婚内继承 400 多万房款，起诉要求分割这笔钱财，法院判决支持，如何从法律角度解读？](http://www.movie.hkepx.cn/movie/2280366.htm)
-- [人民日报评星巴克消费入座](http://www.movie.hkepx.cn/xiju/9102843.htm)
-- [我军为何在黄海南部进行长时间演习](http://www.movie.hkepx.cn/xiju/6537051.htm)
-- [《代号：神不言》UFSH2026参会实机技术演示&实机特别影像](http://www.daogukj.com/vzsgeebf/)
-- [如何评价SemiAnalysis认为DeepSeek与华为已形成共生关系？](http://www.play.hengshemaoyi.cn/kongbu/3922698.htm)
-- [成本1亿的维秘大秀 靠什么赚钱](http://www.play.hengshemaoyi.cn/kongbu/6040149.htm)
-- [燕云×1818黄金眼 | 长乐未央，天下无诈](http://www.daogukj.com/4077362)
-- [问界M9碰撞后逃生窗口](http://www.movie.hkepx.cn/movie/8186635.htm)
-- [沈阳商场保洁大叔高颜值出圈](http://www.daogukj.com/hrahgoeh/)
-- [阿玛尼武汉新店开业排面](http://www.movie.hkepx.cn/xiju/7623213.htm)
-- [九尾 50呢](http://www.play.hengshemaoyi.cn/kongbu/4814140.htm)
-- [全球总决赛回忆挑战，谁是LPL全能王？【开麦了LPL】](http://www.daogukj.com/3537481)
-- [欧洲多国爆发抗议示威 民众怎么看](http://www.play.hengshemaoyi.cn/kongbu/7154027.htm)
-- [北京市委就夏林茂被查表态](http://www.play.hengshemaoyi.cn/xiju/0242395.htm)
+- [全民撒钱，团队暴雷，民调狂跌，特朗普中期选举有点烧心！](http://www.movie.hkepx.cn/xiju/9102843.htm)
+- [张本智和被打出0-11惨败](http://www.movie.hkepx.cn/xiju/6537051.htm)
+- [亚锦赛国乒女团决赛不敌日本](http://www.daogukj.com/vzsgeebf/)
+- [中国拟出台的「AI 出口禁令」会影响使用 AI 产品和中企海外业务吗？将对中美 AI 竞争有何影响？](http://www.play.hengshemaoyi.cn/kongbu/3922698.htm)
+- [国乒女团2比3日本 获亚锦赛亚军](http://www.play.hengshemaoyi.cn/kongbu/6040149.htm)
+- [小伙靠3D打印，硬刚义乌工厂？](http://www.daogukj.com/4077362)
+- [郭雪芙被曝在日遇害身亡 后援会辟谣](http://www.movie.hkepx.cn/movie/8186635.htm)
+- [再鉴定几个洛克王国的精灵](http://www.daogukj.com/hrahgoeh/)
+- [一张快递单能扒出多少秘密](http://www.movie.hkepx.cn/xiju/7623213.htm)
+- [国乒女团2比3日本女团](http://www.play.hengshemaoyi.cn/kongbu/4814140.htm)
+- [曝某明星长期借不到高定，自费购买礼服后引该品牌PR暴怒，可能会是谁？为啥自费购买也会引起高奢品牌不满？](http://www.daogukj.com/3537481)
+- [41岁女子存百万后去世](http://www.play.hengshemaoyi.cn/kongbu/7154027.htm)
+- [人民日报评星巴克“消费入座”](http://www.play.hengshemaoyi.cn/xiju/0242395.htm)
 - [留美在读女博士答辩失利，向实验室同门咖啡机投毒「丙烯酰胺」，如何看待这一事件？](http://www.play.hengshemaoyi.cn/xiju/7718342.htm)
-- [吴艳妮面对采访说自己训练强度能达到12秒7、12秒6的程度，但是比赛就是达不到，你怎么看？](http://www.play.hengshemaoyi.cn/kongbu/7089205.htm)
+- [72岁李雪健再登舞台](http://www.play.hengshemaoyi.cn/kongbu/7089205.htm)
 - [赵丽颖霍建华 剧播不好别怪妆造](http://www.play.hengshemaoyi.cn/xiju/7227900.htm)
-- [银行回应每天仅营业3.5小时](http://www.daogukj.com/9191044)
+- [国乒男团3比0韩国 亚锦赛4连冠](http://www.daogukj.com/9191044)
 - [中国古代人民为什么不用煤炭当燃料呢？](http://www.daogukj.com/6256754)
-- [捷达M6正式上市](http://www.play.hengshemaoyi.cn/kongbu/3838323.htm)
-- [北京市副市长夏林茂被查](http://www.movie.hkepx.cn/movie/3822357.htm)
-- [曝某明星长期借不到高定，自费购买礼服后引该品牌PR暴怒，可能会是谁？为啥自费购买也会引起高奢品牌不满？](http://www.movie.hkepx.cn/movie/9519234.htm)
-- [许超医生谈李子祺称参加过4级手术](http://www.play.hengshemaoyi.cn/xiju/4782804.htm)
-- [为什么我国的中学生大部分都不会做引体向上？](http://www.daogukj.com/urxbddis/)
-- [24岁美国乡下大学天才"讲师"：叛逆狂人的潇洒生活！](http://www.movie.hkepx.cn/xiju/7315864.htm)
-- [王艺迪3比2胜张本美和](http://www.play.hengshemaoyi.cn/xiju/8904435.htm)
+- [多地辟谣外地患者到高校传播艾滋病](http://www.play.hengshemaoyi.cn/kongbu/3838323.htm)
+- [张家齐和妈妈的关系触痛网友](http://www.movie.hkepx.cn/movie/3822357.htm)
+- [外地患者组团到高校传播艾滋病不实](http://www.movie.hkepx.cn/movie/9519234.htm)
+- [日本人为了让你吃蛋包饭的时候也不要忘了吃碗拉面有多拼](http://www.play.hengshemaoyi.cn/xiju/4782804.htm)
+- [如何评价SemiAnalysis认为DeepSeek与华为已形成共生关系？](http://www.daogukj.com/urxbddis/)
+- [如何看待10月21日前后nodejs PHP Oracle Chrome Linux都爆出超高危漏洞？](http://www.movie.hkepx.cn/xiju/7315864.htm)
+- [奥迪中国 首位中国籍总裁](http://www.play.hengshemaoyi.cn/xiju/8904435.htm)
 
 </details>
 
 ## 原始来源
 
-- [员工离职情绪高涨 宝马关闭补偿计划](https://www.baidu.com/s?wd=%E5%91%98%E5%B7%A5%E7%A6%BB%E8%81%8C%E6%83%85%E7%BB%AA%E9%AB%98%E6%B6%A8+%E5%AE%9D%E9%A9%AC%E5%85%B3%E9%97%AD%E8%A1%A5%E5%81%BF%E8%AE%A1%E5%88%92&sa=fyb_news&rsv_dl=fyb_news)
+- [西安油边挑战，2分钟吃一份油边，奖金200元。顾客还能免费试吃](https://b23.tv/BV1XXny6TEvf)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f17da9a178982e40c1e5 -->
+<!-- content-fingerprint: c56d327f1ef79fce267e -->
