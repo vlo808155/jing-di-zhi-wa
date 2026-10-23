@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 用寂静岭的画风打开《周处除三害》【AI MV大赛】
+# 《人间异想计划》22分钟实机首曝｜间章：如果之事与未践之约
 
-> 来源：哔哩哔哩热门 · 排名：第 20 位 · 热度：1648023 · 分类：影视剪辑 · 更新：2026-10-23T17:44:34+08:00
+> 来源：哔哩哔哩热门 · 排名：第 19 位 · 热度：6045717 · 分类：MV · 更新：2026-10-23T22:28:01+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“用寂静岭的画风打开《周处除三害》【AI MV大赛】”位列第 20 位，公开热度指标为 1648023，榜单分类为“影视剪辑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“《人间异想计划》22分钟实机首曝｜间章：如果之事与未践之约”位列第 19 位，公开热度指标为 6045717，榜单分类为“MV”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：当陈桂林扣下扳机的那一刻，时间突然静止。 原本庄严祥和的教堂瞬间腐朽，墙壁剥落，铁锈蔓延，死去的教众化作扭曲的怪物，而本该倒在枪口下的萧湘湘，却成为了这场噩梦的主宰。 随着陈桂林一步步深入里世界，一个更加恐怖的真相逐渐浮现：林禄和建立邪教的真正目的，从来不是敛财，而是一场精心策划的恶魔召唤仪式。 他以为自己在创造神明，却不知道自己也只是祭品之一。 当除恶之人踏入恶的陷阱，究竟谁是受害者？ 这一次，陈桂林面对的不只是怪物，还有他亲手创造的地狱。
+来源公开摘要显示：欢迎来到「异乐都」。自「白夜审判」以后，怪谈体与人类在空中都市「异乐都」共同生活。 你是怪谈事务所调查员、异调局合作特调员：身世不明，装备可疑，事务所地址也不太稳定。和住在画里的助手阿拉贝拉一起，处理那些没人搞得定的委托。 在异乐都，「正常」才是最稀有的怪谈。 本视频录制于主线间章剧情「夜莺·荧惑篇」：在「红移」中实时扭曲重组的街区，由执念拼成的心像世界，多重重力，在二维和三维之间穿梭，还有完整的战斗系统与多阶段Boss战。 游戏仍处于开发阶段，所展示内容不代表最终品质。 ______
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `影视剪辑`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `MV`
 
 ## 相关热点
 
-- [多地倡导结婚随份子最高100元](miao-bi-sheng-hua.md)
-- [黄多多 买股](sheng-dong-huo-po.md)
-- [微信适配iPhone Duo了](xu-xu-ru-sheng.md)
+- [杨紫VOGUE红毯好像孕妇装](miao-bi-sheng-hua.md)
+- [何穗走秀猫天天头排鼓掌](sheng-dong-huo-po.md)
+- [学者：美日军机群在冲绳“大象漫步”](xu-xu-ru-sheng.md)
 - [现货黄金失守 4000 美元关口，避险逻辑为什么失效了？这个位置适合买入吗？](huo-ling-huo-xian.md)
 
 ## 站内推荐
 
-- [为什么我国在黄海要进行持续 47 天的实弹射击？释放了哪些信号？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [闪婚娶美国女博士的外卖小哥宣布离婚](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [李昌钰安葬妻子痛哭称等我18年](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [牛弹琴：普京最新表态这五刀真够狠](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [一顺风车司机困了让乘客开车，自己睡到目的地还照常收钱，平台最初只赔20元代金券，最后全额退款，合理吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [原「死了么」App 年费最高 199 元，由政府采购供独居老人免费使用，收费高吗？政府采购有必要吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [这个更新有亿点水——《伊莫》S1赛季「逐风启程・下」10月29日开启！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [😨"后室里的乌鲁鲁3"😰](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [四人行，必有一怂蛋](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [【战双帕弥什】「流光抛诸寰宇」版本PV](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [不减136斤不结婚，减掉还赢25万美金](http://www.movie.hkepx.cn/movie/8910900.htm)
-- [西藏地震已致16死76伤](http://www.play.hengshemaoyi.cn/kongbu/1452959.htm)
-- [泽连斯基：真不想打仗了](http://www.movie.hkepx.cn/movie/4326545.htm)
-- [这个更新有亿点水——《伊莫》S1赛季「逐风启程・下」10月29日开启！](http://www.movie.hkepx.cn/movie/1643509.htm)
-- [李昌钰安葬妻子痛哭称等我18年](http://www.daogukj.com/3734905)
-- [如何评价特朗普发文痛批詹姆斯在奏国歌时做「高尔夫挥杆动作」，并要求其道歉？](http://www.play.hengshemaoyi.cn/kongbu/4707077.htm)
-- [如何评价《绝区零》10月23日特别直播——直至太阳升起？](http://www.play.hengshemaoyi.cn/xiju/9679366.htm)
-- [《人间异想计划》22分钟实机首曝｜间章：如果之事与未践之约](http://www.movie.hkepx.cn/movie/8897904.htm)
-- [VOGUE阵容官宣](http://www.play.hengshemaoyi.cn/xiju/8041326.htm)
-- [香港餐饮业出现倒闭潮，部分餐厅甩锅深圳抢客，你怎么看待？](http://www.daogukj.com/8279615)
-- [小城良方 剧情硬伤](http://www.movie.hkepx.cn/xiju/6205852.htm)
-- [古代权贵吃饭吃到虫子怎么办？](http://www.movie.hkepx.cn/xiju/0712642.htm)
-- [霜降：好“柿”成“霜”](http://www.movie.hkepx.cn/xiju/6035249.htm)
-- [职场综艺 令人心梗的offer](http://www.daogukj.com/4744923)
-- [一顺风车司机困了让乘客开车，自己睡到目的地还照常收钱，平台最初只赔20元代金券，最后全额退款，合理吗？](http://www.movie.hkepx.cn/movie/5089029.htm)
-- [金晨 北舞不是白读的](http://www.movie.hkepx.cn/movie/2615772.htm)
-- [实拍西藏地震：镜头剧烈摇晃](http://www.play.hengshemaoyi.cn/kongbu/7334127.htm)
-- [西藏地震已造成16人遇难76人受伤](http://www.daogukj.com/ptpekaap/)
-- [渡鸦惊喜路灯全点位！老实跑刀真很枯燥吧？最高可得非洲之心哦？](http://www.daogukj.com/7356664)
-- [多地倡导结婚随份子最高100元](http://www.daogukj.com/ayichqdz/)
-- [《B 界 修 仙 传：长 篇 大 电 影》](http://www.movie.hkepx.cn/xiju/2706147.htm)
-- [⚡魔 鬼 小 瞒 腰⚡](http://www.play.hengshemaoyi.cn/xiju/6688215.htm)
-- [如何评价莫大「旭日旗事件」涉事学生开除文件已下达，但因涉及隐私法律规定或将不对外公开？](http://www.daogukj.com/cndcdbte/)
-- [李昌钰](http://www.daogukj.com/3515388)
+- [王毅：中方将办好今年APEC会议](http://www.movie.hkepx.cn/movie/8910900.htm)
+- [看到这朵“黄花”别上手](http://www.play.hengshemaoyi.cn/kongbu/1452959.htm)
+- [国际金价暴跌因获利了结](http://www.movie.hkepx.cn/movie/4326545.htm)
+- [《原神》7.2版本「坏灭肇始之时」前瞻特别节目](http://www.movie.hkepx.cn/movie/1643509.htm)
+- [😨"后室里的乌鲁鲁3"😰](http://www.daogukj.com/3734905)
+- [如何评价原神7.2版本前瞻特别节目《坏灭肇始之时》？](http://www.play.hengshemaoyi.cn/kongbu/4707077.htm)
+- [福建前首富林秀成被批捕](http://www.play.hengshemaoyi.cn/xiju/9679366.htm)
+- [白鹿 神之九秒](http://www.movie.hkepx.cn/movie/8897904.htm)
+- [劳动争议开庭前夕，娃哈哈法定代表人许思敏突然辞职，从宗馥莉卸任到许思敏离职，娃哈哈内部管理发生了什么？](http://www.play.hengshemaoyi.cn/xiju/8041326.htm)
+- [如何评价莫大「旭日旗事件」涉事学生开除文件已下达，但因涉及隐私法律规定或将不对外公开？](http://www.daogukj.com/8279615)
+- [iPhoneDuo 华为](http://www.movie.hkepx.cn/xiju/6205852.htm)
+- [海底捞小便案细节：商家索赔2300万](http://www.movie.hkepx.cn/xiju/0712642.htm)
+- [DeepSeek又要拿到一笔巨额融资了](http://www.movie.hkepx.cn/xiju/6035249.htm)
+- [刘亦菲亮相红毯被称“凤凰神女”](http://www.daogukj.com/4744923)
+- [【战双帕弥什】「流光抛诸寰宇」版本PV](http://www.movie.hkepx.cn/movie/5089029.htm)
+- [热巴蝴蝶飞走瞬间 列入内娱史册](http://www.movie.hkepx.cn/movie/2615772.htm)
+- [外媒发文称「如 BLG 无法在 S16 夺冠，LPL 将无法保持第二赛区地位」如何评价他的观点？](http://www.play.hengshemaoyi.cn/kongbu/7334127.htm)
+- [泽连斯基表态「愿以领土换和平协议」后，普京也确认愿恢复俄美乌三方谈判，为什么各方突然都松口了？](http://www.daogukj.com/ptpekaap/)
+- [国办发文减缓人工智能就业替代影响](http://www.daogukj.com/7356664)
+- [杨紫VOGUE红毯好像孕妇装](http://www.daogukj.com/ayichqdz/)
+- [13岁女孩卖妈妈金项链 金店当面熔化](http://www.movie.hkepx.cn/xiju/2706147.htm)
+- [男子突发脑梗 140多只猫狗急得直叫](http://www.play.hengshemaoyi.cn/xiju/6688215.htm)
+- [最高法通报牟某虐待案细节](http://www.daogukj.com/cndcdbte/)
+- [人一旦在有地铁的城市待久了](http://www.daogukj.com/3515388)
 - [【独家】时光代理人 第三季 PartOne 第12集 欢迎回家【8月国创】](http://www.movie.hkepx.cn/movie/2280366.htm)
-- [为什么学校喜欢让新入职的老师当班主任?](http://www.movie.hkepx.cn/xiju/9102843.htm)
-- [徐志胜被保安拦下要票](http://www.movie.hkepx.cn/xiju/6537051.htm)
-- [采暖费能找人打折代缴系骗局](http://www.daogukj.com/vzsgeebf/)
-- [松岛辉空男单退赛](http://www.play.hengshemaoyi.cn/kongbu/3922698.htm)
-- [DeepSeek拟新融资1000亿元，腾讯、宁德时代出资最多，这会不会改写国内大模型的竞争格局？](http://www.play.hengshemaoyi.cn/kongbu/6040149.htm)
-- [神探李昌钰安葬 夫人扶灵痛哭](http://www.daogukj.com/4077362)
-- [买骆驼冲锋衣到货logo是咧嘴笑的驴](http://www.movie.hkepx.cn/movie/8186635.htm)
-- [国产最大直径盾构机下线](http://www.daogukj.com/hrahgoeh/)
-- [男子月入6000拿5000替发小还债](http://www.movie.hkepx.cn/xiju/7623213.htm)
-- [李昌钰夫人泪别：你等我18年 我们合葬](http://www.play.hengshemaoyi.cn/kongbu/4814140.htm)
-- [问界M9事故三连环站不住脚](http://www.daogukj.com/3537481)
-- [倒立玩MC（字面意思）](http://www.play.hengshemaoyi.cn/kongbu/7154027.htm)
-- [穿越原始社会必备技能之——蛋黄法鞣制皮毛](http://www.play.hengshemaoyi.cn/xiju/0242395.htm)
-- [为什么我国在黄海要进行持续 47 天的实弹射击？释放了哪些信号？](http://www.play.hengshemaoyi.cn/xiju/7718342.htm)
-- [白鹿荷叶领西装高定](http://www.play.hengshemaoyi.cn/kongbu/7089205.htm)
-- [《星溯》首曝PV丨重启停滞的轮回](http://www.play.hengshemaoyi.cn/xiju/7227900.htm)
-- [孙怡说李小冉想找头婚的不容易](http://www.daogukj.com/9191044)
-- [美国姑娘来中国考英语倒数第一](http://www.daogukj.com/6256754)
-- [曝波兰爆发大规模抗议活动，数百万人涌上街头，具体什么情况？为啥欧洲最近都在陆续爆发大规模的抗议活动？](http://www.play.hengshemaoyi.cn/kongbu/3838323.htm)
-- [缅北魏家成员回湖南租车只付现金](http://www.movie.hkepx.cn/movie/3822357.htm)
-- [男子12岁抽烟烟龄20年 肺已全黑](http://www.movie.hkepx.cn/movie/9519234.htm)
-- [日本重兵部署与那国岛有何目的](http://www.play.hengshemaoyi.cn/xiju/4782804.htm)
-- [传统口技表演《大闹天宫》](http://www.daogukj.com/urxbddis/)
-- [以色列即将大选 内塔尼亚胡迎来劲敌](http://www.movie.hkepx.cn/xiju/7315864.htm)
-- [再听已是曲中人](http://www.play.hengshemaoyi.cn/xiju/8904435.htm)
+- [救命，东北农村婚礼大席吃这么豪吗？](http://www.movie.hkepx.cn/xiju/9102843.htm)
+- [继母介绍12岁女童进黑作坊务工致六级伤残，厂方仅支付1万元跑路，各方该承担什么责任？这对孩子影响多大？](http://www.movie.hkepx.cn/xiju/6537051.htm)
+- [真的有公司裁员裁到“大动脉”，最后不得不花高价把人请回来的吗？](http://www.daogukj.com/vzsgeebf/)
+- [传统口技表演《大闹天宫》](http://www.play.hengshemaoyi.cn/kongbu/3922698.htm)
+- [普京称乌领导层想继续打那就打](http://www.play.hengshemaoyi.cn/kongbu/6040149.htm)
+- [顾客理发时死亡 店员施救被索赔46万](http://www.daogukj.com/4077362)
+- [外卖小哥讲述与博士老婆离婚原因](http://www.movie.hkepx.cn/movie/8186635.htm)
+- [不减136斤不结婚，减掉还赢25万美金](http://www.daogukj.com/hrahgoeh/)
+- [A股惊天逆转 到底发生了什么](http://www.movie.hkepx.cn/xiju/7623213.htm)
+- [李雪健已无法说话 仅靠表情完成演出](http://www.play.hengshemaoyi.cn/kongbu/4814140.htm)
+- [孩子在幼儿园被抢玩具后推倒了同学，对方家长要求道歉，但孩子坚决拒绝，我该强迫他道歉吗？](http://www.daogukj.com/3537481)
+- [迪丽热巴第二套](http://www.play.hengshemaoyi.cn/kongbu/7154027.htm)
+- [为什么我国在黄海要进行持续 47 天的实弹射击？释放了哪些信号？](http://www.play.hengshemaoyi.cn/xiju/0242395.htm)
+- [原「死了么」App 年费最高 199 元，由政府采购供独居老人免费使用，收费高吗？政府采购有必要吗？](http://www.play.hengshemaoyi.cn/xiju/7718342.htm)
+- [专家：日美勾连暗藏大阴谋](http://www.play.hengshemaoyi.cn/kongbu/7089205.htm)
+- [北京出现美丽的“火箭云”](http://www.play.hengshemaoyi.cn/xiju/7227900.htm)
+- [李昌钰发妻离世后与蒋霞萍频繁通信](http://www.daogukj.com/9191044)
+- [为了妈妈，全校老师同学最团结的一集](http://www.daogukj.com/6256754)
+- [刘亦菲压轴](http://www.play.hengshemaoyi.cn/kongbu/3838323.htm)
+- [肖战 光点](http://www.movie.hkepx.cn/movie/3822357.htm)
+- [孙怡：李小冉想找头婚的不容易](http://www.movie.hkepx.cn/movie/9519234.htm)
+- [苹果总市值超越英伟达](http://www.play.hengshemaoyi.cn/xiju/4782804.htm)
+- [第五人格女团 PerVade 正式出道！首支单曲《Undefined》MV公开！](http://www.daogukj.com/urxbddis/)
+- [如何评价Shams 爆料勇士探索交易波尔津吉斯，后者若无法康复可能永久退役？这算是诈骗行为吗？](http://www.movie.hkepx.cn/xiju/7315864.htm)
+- [9岁孩子“开门杀” 司机获刑](http://www.play.hengshemaoyi.cn/xiju/8904435.htm)
 
 </details>
 
 ## 原始来源
 
-- [用寂静岭的画风打开《周处除三害》【AI MV大赛】](https://b23.tv/BV1Cdni6AEQB)
+- [《人间异想计划》22分钟实机首曝｜间章：如果之事与未践之约](https://b23.tv/BV1Ranw6DEYW)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: b8cbd21b59cf3016d7fe -->
+<!-- content-fingerprint: b381d65f0e414d24eb5a -->
