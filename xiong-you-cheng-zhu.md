@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 燕云×1818黄金眼 | 长乐未央，天下无诈
+# 一顺风车司机困了让乘客开车，自己睡到目的地还照常收钱，平台最初只赔20元代金券，最后全额退款，合理吗？
 
-> 来源：哔哩哔哩热门 · 排名：第 17 位 · 热度：1087434 · 分类：影视剪辑 · 更新：2026-10-23T12:56:10+08:00
+> 来源：知乎热榜 · 排名：第 18 位 · 热度：109 万热度 · 分类：问答 · 更新：2026-10-23T17:44:34+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“燕云×1818黄金眼 | 长乐未央，天下无诈”位列第 17 位，公开热度指标为 1087434，榜单分类为“影视剪辑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“一顺风车司机困了让乘客开车，自己睡到目的地还照常收钱，平台最初只赔20元代金券，最后全额退款，合理吗？”位列第 18 位，公开热度指标为 109 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：江湖风波恶，骗术花样多。 燕云联合@1818黄金眼 开展反诈特别联动，庸医开方、办卡陷阱、赌局套路等等，这些看似荒诞的剧情，或许就藏在你我身边。 无论游戏还是生活，诸位游侠切记擦亮双眼，远离套路。 10月23日，『长乐夜未央』版本开启，主题联动活动【要发要发黄金眼】也将同步上线，敬请期待。
+来源公开摘要显示：杭州的小郑姑娘求助“小强热线帮忙团”，她说前两天和姑姑去上海看林忆莲演唱会，结束后在上海叫了一辆顺风车回杭州。没想到，司机半路说自己困了，让她们来开车。最终两个多小时的路程，小郑的姑姑开了一个半小时，司机却睡到了目的地，车费还照收。 小郑说，10月17日晚上10点，她在高德平台叫了一辆顺风车回杭州，预付了160多元车费。司机接到她们才开了不到五分钟，说车子没电了。“他本来应该提前充好电再接单，结果用我们的时间充电，充到11点多。”小郑说，当时时间太晚，当时就没有计较。 行程总算开始，可司机开了没一会儿，又说自己困了。“他突然转过头问我们有没有驾照，有驾照
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `影视剪辑`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [9岁孩子开门杀致路人死亡 司机获刑](yun-chou-wei-wo.md)
-- [苹果折叠屏开售](shen-mou-yuan-lv.md)
-- [人民日报评综艺里医学生盲猜病情](ming-cha-qiu-hao.md)
-- [原「死了么」App 年费最高 199 元，由政府采购供独居老人免费使用，收费高吗？政府采购有必要吗？](jian-wei-zhi-zhu.md)
+- [⚡魔 鬼 小 瞒 腰⚡](yun-chou-wei-wo.md)
+- [缅北魏家成员回湖南租车只付现金](shen-mou-yuan-lv.md)
+- [霜降：好“柿”成“霜”](ming-cha-qiu-hao.md)
+- [如何评价特朗普发文痛批詹姆斯在奏国歌时做「高尔夫挥杆动作」，并要求其道歉？](jian-wei-zhi-zhu.md)
 
 ## 站内推荐
 
-- [高校发倡议规范使用得体庄重的「老师」称谓，严禁学生称辅导员为「哥、姐」，你怎么看？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [影视飓风员工，开什么车？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [用寂静岭的画风打开《周处除三害》【AI MV大赛】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [你只是怕了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [因为智商不够，从EXO到生子，被打脸的嘴硬的一生。【黄子韬徐艺洋官宣生子】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [传统口技表演《大闹天宫》](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [美国姑娘来中国考英语倒数第一](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [A股惊天逆转 到底发生了什么](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [假如张水华情商足够高，能否和前单位形成双赢？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [用寂静岭的画风打开《周处除三害》【AI MV大赛】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [黄子韬公司被强制执行2040万](http://www.play.hengshemaoyi.cn/kongbu/3483820.htm)
-- [嫁金钗](http://www.movie.hkepx.cn/xiju/3408565.htm)
-- [西藏地震现场地面的裂缝比手宽](http://www.play.hengshemaoyi.cn/kongbu/9358766.htm)
-- [马天宇低谷期找杨幂谈心](http://www.movie.hkepx.cn/movie/6761076.htm)
-- [霜降养生关键在于给身体“关好门窗”](http://www.movie.hkepx.cn/movie/4354942.htm)
-- [胡锡进说股票跌得心疼](http://www.play.hengshemaoyi.cn/kongbu/7691913.htm)
-- [河北承德一拾荒老人被倾倒渣石砸死后，被瞒报近三年 ，事情为什么能被压这么久？问题出在哪些环节？](http://www.daogukj.com/zxhxffqk/)
-- [采暖费能找人打折代缴？假的](http://www.play.hengshemaoyi.cn/kongbu/0581403.htm)
-- [以抛硬币为例，赌博为什么是“十赌九输”，而不是“二赌一输”？](http://www.play.hengshemaoyi.cn/xiju/8368894.htm)
-- [直击西藏地震灾区救援现场](http://www.movie.hkepx.cn/movie/3724589.htm)
-- [人民日报：上技校有没有用](http://www.movie.hkepx.cn/movie/4073082.htm)
-- [苹果折叠屏开售](http://www.movie.hkepx.cn/movie/7225991.htm)
-- [用寂静岭的画风打开《周处除三害》【AI MV大赛】](http://www.movie.hkepx.cn/movie/5475557.htm)
-- [日本为何在美国沙漠试射防空导弹](http://www.play.hengshemaoyi.cn/xiju/1901702.htm)
-- [不减136斤不结婚，减掉还赢25万美金](http://www.daogukj.com/1487547)
-- [普京强烈否认准备与欧洲开战](http://www.daogukj.com/sqqsfnyh/)
-- [《B 界 修 仙 传：长 篇 大 电 影》](http://www.movie.hkepx.cn/movie/3969864.htm)
-- [白毛股神10月账户浮亏超1300万美元](http://www.daogukj.com/iqmqrbhp/)
-- [《最绝望の守门员》](http://www.play.hengshemaoyi.cn/xiju/8313158.htm)
-- [S16应援曲《以风之名》](http://www.movie.hkepx.cn/xiju/9816658.htm)
-- [伟大的发现: 曼的一半是man](http://www.daogukj.com/3514427)
+- [曝波兰爆发大规模抗议活动，数百万人涌上街头，具体什么情况？为啥欧洲最近都在陆续爆发大规模的抗议活动？](http://www.play.hengshemaoyi.cn/kongbu/3483820.htm)
+- [DeepSeek拟新融资1000亿元，腾讯、宁德时代出资最多，这会不会改写国内大模型的竞争格局？](http://www.movie.hkepx.cn/xiju/3408565.htm)
+- [神探李昌钰安葬 夫人扶灵痛哭](http://www.play.hengshemaoyi.cn/kongbu/9358766.htm)
+- [航拍西藏强震受灾核心区域](http://www.movie.hkepx.cn/movie/6761076.htm)
+- [刘冲请到刘亦菲了](http://www.movie.hkepx.cn/movie/4354942.htm)
+- [李昌钰](http://www.play.hengshemaoyi.cn/kongbu/7691913.htm)
+- [徐志胜被保安拦下要票](http://www.daogukj.com/zxhxffqk/)
+- [三年之期已到，恭迎世一上归位！【第14集】](http://www.play.hengshemaoyi.cn/kongbu/0581403.htm)
+- [中央暗访检查组：这个说不过去了](http://www.play.hengshemaoyi.cn/xiju/8368894.htm)
+- [买骆驼冲锋衣到货logo是咧嘴笑的驴](http://www.movie.hkepx.cn/movie/3724589.htm)
+- [私家车揽客收7元车费被罚4万](http://www.movie.hkepx.cn/movie/4073082.htm)
+- [缅北魏家成员回湖南租车只付现金](http://www.movie.hkepx.cn/movie/7225991.htm)
+- [A股惊天逆转 到底发生了什么](http://www.movie.hkepx.cn/movie/5475557.htm)
+- [微信适配iPhone Duo了](http://www.play.hengshemaoyi.cn/xiju/1901702.htm)
+- [西藏巴青地震最新救援情况](http://www.daogukj.com/1487547)
+- [【空枪】命由我赌，福自己抢](http://www.daogukj.com/sqqsfnyh/)
+- [国产最大直径盾构机下线](http://www.movie.hkepx.cn/movie/3969864.htm)
+- [职场综艺 令人心梗的offer](http://www.daogukj.com/iqmqrbhp/)
+- [闪婚娶美国女博士的外卖小哥宣布离婚](http://www.play.hengshemaoyi.cn/xiju/8313158.htm)
+- [为什么学校喜欢让新入职的老师当班主任?](http://www.movie.hkepx.cn/xiju/9816658.htm)
+- [别把学校办成了车间](http://www.daogukj.com/3514427)
 - [【独家】时光代理人 第三季 PartOne 第12集 欢迎回家【8月国创】](http://www.movie.hkepx.cn/movie/5821299.htm)
-- [西藏震中地面开裂路基明显沉降](http://www.movie.hkepx.cn/movie/7016997.htm)
-- [Gucci送肖战演唱会的花篮](http://www.daogukj.com/klgjmmqw/)
-- [曝杨紫琼刘亦菲压轴VOGUE红毯](http://www.play.hengshemaoyi.cn/kongbu/2965446.htm)
-- [都说无印良品和宜家不值那个价，为什么还有那么多人买呢？](http://www.daogukj.com/8554716)
-- [如何看待《令人心动的offer8》李子祺在节目里诊断用盲猜，称专博不临床，10篇SCI被指为水刊凑数？](http://www.daogukj.com/4018030)
-- [假如张水华情商足够高，能否和前单位形成双赢？](http://www.play.hengshemaoyi.cn/xiju/7007818.htm)
+- [《星溯》首曝PV丨重启停滞的轮回](http://www.movie.hkepx.cn/movie/7016997.htm)
+- [渡鸦惊喜路灯全点位！老实跑刀真很枯燥吧？最高可得非洲之心哦？](http://www.daogukj.com/klgjmmqw/)
+- [代理人档案丨挽昼](http://www.play.hengshemaoyi.cn/kongbu/2965446.htm)
+- [采暖费能找人打折代缴系骗局](http://www.daogukj.com/8554716)
+- [这个更新有亿点水——《伊莫》S1赛季「逐风启程・下」10月29日开启！](http://www.daogukj.com/4018030)
+- [留美在读女博士答辩失利，向实验室同门咖啡机投毒「丙烯酰胺」，如何看待这一事件？](http://www.play.hengshemaoyi.cn/xiju/7007818.htm)
 - [为什么我国在黄海要进行持续 47 天的实弹射击？释放了哪些信号？](http://www.daogukj.com/7787398)
-- [毛不易在朋友婚礼说虽然不是我的妻子](http://www.play.hengshemaoyi.cn/xiju/3303937.htm)
-- [两女生投150万开无烟酒吧倒闭](http://www.play.hengshemaoyi.cn/xiju/6811831.htm)
-- [金饰价格一夜崩了](http://www.play.hengshemaoyi.cn/kongbu/5731979.htm)
-- [在星巴克开会1小时被提醒点单5次](http://www.play.hengshemaoyi.cn/kongbu/8531788.htm)
-- [西藏那曲地震已致16死65伤](http://www.play.hengshemaoyi.cn/xiju/3940464.htm)
-- [再见朋友厉娜许飞好纯粹的恨](http://www.play.hengshemaoyi.cn/xiju/5367021.htm)
-- [被拐卖到电诈园区的女性会经历什么](http://www.movie.hkepx.cn/xiju/7619002.htm)
-- [FPS游戏必学两大焚诀，学会胜率直接飙升！](http://www.play.hengshemaoyi.cn/xiju/7491703.htm)
-- [张亮请张亮吃张亮](http://www.movie.hkepx.cn/xiju/9433984.htm)
-- [因为智商不够，从EXO到生子，被打脸的嘴硬的一生。【黄子韬徐艺洋官宣生子】](http://www.play.hengshemaoyi.cn/xiju/8043846.htm)
-- [短剧女王徐艺真想和赵丽颖合作](http://www.play.hengshemaoyi.cn/kongbu/5790640.htm)
-- [专家：黄金白银崩了](http://www.play.hengshemaoyi.cn/kongbu/2929388.htm)
-- [九旬老人在公共楼道睡了近一年](http://www.play.hengshemaoyi.cn/xiju/2191121.htm)
-- [再看这条征途 依旧热血难平](http://www.play.hengshemaoyi.cn/kongbu/3389194.htm)
-- [胡锡进：股票跌得心疼](http://www.daogukj.com/2463480)
-- [高校发倡议规范使用得体庄重的「老师」称谓，严禁学生称辅导员为「哥、姐」，你怎么看？](http://www.movie.hkepx.cn/xiju/2416068.htm)
-- [为啥智谱GLM海外口碑极佳，国内认知度却不及豆包DeepSeek？盈利模式、应用场景上三者有啥区别吗？](http://www.daogukj.com/4620332)
-- [Anthropic最快将于本周提交S-1招股说明书，有望冲击史上最大IPO，会对市场带来怎样的影响？](http://www.movie.hkepx.cn/movie/5413853.htm)
-- [年轻人扎堆老年旅游团](http://www.play.hengshemaoyi.cn/kongbu/3114909.htm)
-- [VOGUE明星出图](http://www.movie.hkepx.cn/movie/3357497.htm)
-- [娃哈哈集团董事长被曝辞职](http://www.daogukj.com/aagwkkjr/)
+- [《B 界 修 仙 传：长 篇 大 电 影》](http://www.play.hengshemaoyi.cn/xiju/3303937.htm)
+- [《人间异想计划》22分钟实机首曝｜间章：如果之事与未践之约](http://www.play.hengshemaoyi.cn/xiju/6811831.htm)
+- [河北承德一拾荒老人被倾倒渣石砸死后，被瞒报近三年 ，事情为什么能被压这么久？问题出在哪些环节？](http://www.play.hengshemaoyi.cn/kongbu/5731979.htm)
+- [西藏地震已致16死76伤](http://www.play.hengshemaoyi.cn/kongbu/8531788.htm)
+- [李雪健已无法说话 仅靠表情完成演出](http://www.play.hengshemaoyi.cn/xiju/3940464.htm)
+- [倒立玩MC（字面意思）](http://www.play.hengshemaoyi.cn/xiju/5367021.htm)
+- [男子月入6000拿5000替发小还债](http://www.movie.hkepx.cn/xiju/7619002.htm)
+- [娃哈哈集团董事长被曝辞职](http://www.play.hengshemaoyi.cn/xiju/7491703.htm)
+- [金晨 北舞不是白读的](http://www.movie.hkepx.cn/xiju/9433984.htm)
+- [用寂静岭的画风打开《周处除三害》【AI MV大赛】](http://www.play.hengshemaoyi.cn/xiju/8043846.htm)
+- [西藏巴青地震16死76伤](http://www.play.hengshemaoyi.cn/kongbu/5790640.htm)
+- [西藏地震地面裂缝比手宽](http://www.play.hengshemaoyi.cn/kongbu/2929388.htm)
+- [台风](http://www.play.hengshemaoyi.cn/xiju/2191121.htm)
+- [从长征数字里感悟信仰力量](http://www.play.hengshemaoyi.cn/kongbu/3389194.htm)
+- [再听已是曲中人](http://www.daogukj.com/2463480)
+- [传统口技表演《大闹天宫》](http://www.movie.hkepx.cn/xiju/2416068.htm)
+- [让老婆挑战在床上躺100个小时，挑战成功就奖励她10万块！！！](http://www.daogukj.com/4620332)
+- [肖战演唱会还给安排了心理疏导岗](http://www.movie.hkepx.cn/movie/5413853.htm)
+- [日本重兵部署与那国岛有何目的](http://www.play.hengshemaoyi.cn/kongbu/3114909.htm)
+- [宇树封死20cm涨停](http://www.movie.hkepx.cn/movie/3357497.htm)
+- [李昌钰骨灰一半葬扬州一半留美国](http://www.daogukj.com/aagwkkjr/)
 
 </details>
 
 ## 原始来源
 
-- [燕云×1818黄金眼 | 长乐未央，天下无诈](https://b23.tv/BV1nHn16EEkL)
+- [一顺风车司机困了让乘客开车，自己睡到目的地还照常收钱，平台最初只赔20元代金券，最后全额退款，合理吗？](https://www.zhihu.com/question/2096650914333566731)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 25a0d7197c49d684051e -->
+<!-- content-fingerprint: f46e6fc84f219bc29446 -->

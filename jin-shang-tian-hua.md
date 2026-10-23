@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 假如张水华情商足够高，能否和前单位形成双赢？
+# 留美在读女博士答辩失利，向实验室同门咖啡机投毒「丙烯酰胺」，如何看待这一事件？
 
-> 来源：知乎热榜 · 排名：第 19 位 · 热度：113 万热度 · 分类：问答 · 更新：2026-10-23T12:56:10+08:00
+> 来源：知乎热榜 · 排名：第 20 位 · 热度：89 万热度 · 分类：问答 · 更新：2026-10-23T17:44:34+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“假如张水华情商足够高，能否和前单位形成双赢？”位列第 19 位，公开热度指标为 113 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“留美在读女博士答辩失利，向实验室同门咖啡机投毒「丙烯酰胺」，如何看待这一事件？”位列第 20 位，公开热度指标为 89 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：我想知道，究竟有没有实现双赢的可能，即单位给她调岗允许她花更多时间去跑马拉松，而她也在各种比赛主动替单位宣传，和单位共享荣誉。 是双方完全有可能形成这样的良好合作关系，只是张水华情商太低搞砸了？ 还是说单位就不可能给予她这个空间，无论她情商多高，多愿意合作共赢都不行。
+来源公开摘要显示：据 10 月 13 日报道，32 岁的中国生物学准博士王爱丽（Aili Wang，音译），涉嫌多次向同事咖啡壶中投放有毒化学物质，导致对方出现手脚麻木、腿部无力、疲劳，失眠等神经中毒症状，至今仍未康复。 而她涉嫌使用的这种物质，各位研究生们再熟悉不过了，正是 Western blot 实验中都会用到的丙烯酰胺。 随后，王爱丽于 10 月 6 日准备返回国内时，在洛杉矶国际机场被警方逮捕。 王爱丽 图源：http://cowboystatedaily.com 毕业答辩未通过，博士生用实验试剂给同门投毒 据警方调查，该起投毒案件发生在怀俄明大学（Univer
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [因为智商不够，从EXO到生子，被打脸的嘴硬的一生。【黄子韬徐艺洋官宣生子】](hua-long-dian-jing.md)
-- [“神探”李昌钰悼念花篮排了近百米](miao-bi-sheng-hua.md)
-- [何穗 拿到大结果了](sheng-dong-huo-po.md)
-- [日本为何在美国沙漠试射防空导弹](xu-xu-ru-sheng.md)
+- [用寂静岭的画风打开《周处除三害》【AI MV大赛】](hua-long-dian-jing.md)
+- [多地倡导结婚随份子最高100元](miao-bi-sheng-hua.md)
+- [黄多多 买股](sheng-dong-huo-po.md)
+- [微信适配iPhone Duo了](xu-xu-ru-sheng.md)
 
 ## 站内推荐
 
-- [专家：黄金白银崩了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [为啥智谱GLM海外口碑极佳，国内认知度却不及豆包DeepSeek？盈利模式、应用场景上三者有啥区别吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [兵马俑明明很写实，为什么中国雕塑后来“放弃” 了这条路？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [一高校老师发文称因无力教导学生新知识而时常感到十分抱歉，看完后你有哪些感触？为什么能够收获这么多共鸣？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [如何评价特朗普发文痛批詹姆斯在奏国歌时做「高尔夫挥杆动作」，并要求其道歉？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [西藏地震地面裂缝比手宽](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [让老婆挑战在床上躺100个小时，挑战成功就奖励她10万块！！！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [西藏地震已造成16人遇难76人受伤](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [问界M9事故三连环站不住脚](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [以色列即将大选 内塔尼亚胡迎来劲敌](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [iPhone Duo开售 义乌手机壳同步上市](http://www.play.hengshemaoyi.cn/xiju/6246916.htm)
-- [《人间异想计划》22分钟实机首曝｜间章：如果之事与未践之约](http://www.play.hengshemaoyi.cn/xiju/0196335.htm)
-- [西藏地震地面裂缝比手宽](http://www.daogukj.com/txhvfhkc/)
-- [中日情侣相恋2345天，在今天修成正果！](http://www.movie.hkepx.cn/xiju/8357680.htm)
-- [Anthropic最快将于本周提交S-1招股说明书，有望冲击史上最大IPO，会对市场带来怎样的影响？](http://www.movie.hkepx.cn/xiju/7453143.htm)
-- [娃哈哈集团董事长被曝辞职](http://www.daogukj.com/3829236)
-- [影视飓风员工，开什么车？](http://www.movie.hkepx.cn/movie/7849010.htm)
-- [西藏那曲地震已致16死65伤](http://www.movie.hkepx.cn/movie/3810739.htm)
-- [孟子义尚公主剧宣排面](http://www.daogukj.com/xwtczorl/)
-- [《后会友期》不敢请的全放观察室了](http://www.daogukj.com/9411778)
-- [VOGUE明星出图](http://www.movie.hkepx.cn/xiju/1018177.htm)
-- [两女生投150万开无烟酒吧倒闭](http://www.movie.hkepx.cn/movie/7549482.htm)
-- [大火逼近中国 日本道歉岂能只道一半](http://www.movie.hkepx.cn/xiju/3152832.htm)
-- [燕云×1818黄金眼 | 长乐未央，天下无诈](http://www.movie.hkepx.cn/xiju/6452829.htm)
-- [人民日报：上技校有没有用](http://www.play.hengshemaoyi.cn/kongbu/1742289.htm)
-- [河北承德一拾荒老人被倾倒渣石砸死后，被瞒报近三年 ，事情为什么能被压这么久？问题出在哪些环节？](http://www.play.hengshemaoyi.cn/xiju/4134369.htm)
-- [兵马俑明明很写实，为什么中国雕塑后来“放弃” 了这条路？](http://www.play.hengshemaoyi.cn/kongbu/8805735.htm)
-- [西藏7.0级强震已致16死65伤](http://www.movie.hkepx.cn/xiju/1005247.htm)
-- [乌克兰战俘痛骂泽连斯基：真正的小丑](http://www.play.hengshemaoyi.cn/xiju/4070224.htm)
-- [S16应援曲《以风之名》](http://www.movie.hkepx.cn/movie/8130025.htm)
-- [以抛硬币为例，赌博为什么是“十赌九输”，而不是“二赌一输”？](http://www.play.hengshemaoyi.cn/kongbu/7840266.htm)
-- [“龟速车”上高速添堵更添险](http://www.daogukj.com/mgvzhkvp/)
-- [AI发现人类网络潜伏多年的“暗门”](http://www.play.hengshemaoyi.cn/kongbu/6692605.htm)
-- [不减136斤不结婚，减掉还赢25万美金](http://www.daogukj.com/0659107)
-- [再看这条征途 依旧热血难平](http://www.movie.hkepx.cn/movie/2177161.htm)
-- [西藏巴青县7.0级地震已致16死65伤，为今年以来中国最大地震，当地目前情况如何？你那边有震感吗？](http://www.movie.hkepx.cn/xiju/4629379.htm)
-- [专家：黄金白银崩了](http://www.play.hengshemaoyi.cn/kongbu/8609961.htm)
-- [年轻人扎堆老年旅游团](http://www.play.hengshemaoyi.cn/kongbu/2788736.htm)
-- [白毛股神10月账户浮亏超1300万美元](http://www.movie.hkepx.cn/movie/9454869.htm)
-- [在星巴克开会1小时被提醒点单5次](http://www.movie.hkepx.cn/movie/8856381.htm)
+- [白鹿荷叶领西装高定](http://www.play.hengshemaoyi.cn/xiju/6246916.htm)
+- [影视飓风员工，开什么车？](http://www.play.hengshemaoyi.cn/xiju/0196335.htm)
+- [古代权贵吃饭吃到虫子怎么办？](http://www.daogukj.com/txhvfhkc/)
+- [史上第一个智械危机受害者](http://www.movie.hkepx.cn/xiju/8357680.htm)
+- [肖战演唱会还给安排了心理疏导岗](http://www.movie.hkepx.cn/xiju/7453143.htm)
+- [李昌钰骨灰一半葬扬州一半留美国](http://www.daogukj.com/3829236)
+- [美国姑娘来中国考英语倒数第一](http://www.movie.hkepx.cn/movie/7849010.htm)
+- [李雪健已无法说话 仅靠表情完成演出](http://www.movie.hkepx.cn/movie/3810739.htm)
+- [李昌钰夫人泪别：你等我18年 我们合葬](http://www.daogukj.com/xwtczorl/)
+- [如果真按小岛说的，做一款充满“偶然性”的3A大作，把日常任务和保底全删了，玩家真能玩下去吗？](http://www.daogukj.com/9411778)
+- [宇树封死20cm涨停](http://www.movie.hkepx.cn/xiju/1018177.htm)
+- [《人间异想计划》22分钟实机首曝｜间章：如果之事与未践之约](http://www.movie.hkepx.cn/movie/7549482.htm)
+- [男子12岁抽烟烟龄20年 肺已全黑](http://www.movie.hkepx.cn/xiju/3152832.htm)
+- [一顺风车司机困了让乘客开车，自己睡到目的地还照常收钱，平台最初只赔20元代金券，最后全额退款，合理吗？](http://www.movie.hkepx.cn/xiju/6452829.htm)
+- [私家车揽客收7元车费被罚4万](http://www.play.hengshemaoyi.cn/kongbu/1742289.htm)
+- [徐志胜被保安拦下要票](http://www.play.hengshemaoyi.cn/xiju/4134369.htm)
+- [西藏地震已造成16人遇难76人受伤](http://www.play.hengshemaoyi.cn/kongbu/8805735.htm)
+- [香港餐饮业出现倒闭潮，部分餐厅甩锅深圳抢客，你怎么看待？](http://www.movie.hkepx.cn/xiju/1005247.htm)
+- [如何看待一人之下781话之中，王国平和巴伦的大战？](http://www.play.hengshemaoyi.cn/xiju/4070224.htm)
+- [为什么学校喜欢让新入职的老师当班主任?](http://www.movie.hkepx.cn/movie/8130025.htm)
+- [中央暗访检查组：这个说不过去了](http://www.play.hengshemaoyi.cn/kongbu/7840266.htm)
+- [时尚博主说迪丽热巴高定是品牌借的](http://www.daogukj.com/mgvzhkvp/)
+- [孙怡说李小冉想找头婚的不容易](http://www.play.hengshemaoyi.cn/kongbu/6692605.htm)
+- [西藏巴青地震最新救援情况](http://www.daogukj.com/0659107)
+- [从长征数字里感悟信仰力量](http://www.movie.hkepx.cn/movie/2177161.htm)
+- [如何看待《令人心动的offer8》李子祺在节目里诊断用盲猜，称专博不临床，10篇SCI被指为水刊凑数？](http://www.movie.hkepx.cn/xiju/4629379.htm)
+- [西藏地震地面裂缝比手宽](http://www.play.hengshemaoyi.cn/kongbu/8609961.htm)
+- [日本重兵部署与那国岛有何目的](http://www.play.hengshemaoyi.cn/kongbu/2788736.htm)
+- [职场综艺 令人心梗的offer](http://www.movie.hkepx.cn/movie/9454869.htm)
+- [西藏地震已致16死76伤](http://www.movie.hkepx.cn/movie/8856381.htm)
 - [为什么我国在黄海要进行持续 47 天的实弹射击？释放了哪些信号？](http://www.movie.hkepx.cn/movie/7928531.htm)
-- [何穗 拿到大结果了](http://www.play.hengshemaoyi.cn/kongbu/5748891.htm)
-- [华强北商家说iPhoneDuo毫无技术含量](http://www.movie.hkepx.cn/movie/2928084.htm)
-- [76人29分大逆转胜骑士](http://www.play.hengshemaoyi.cn/xiju/0239872.htm)
-- [台风蔷琵已致台湾1死94伤](http://www.daogukj.com/7779634)
-- [九旬老人在公共楼道睡了近一年](http://www.play.hengshemaoyi.cn/kongbu/8270746.htm)
-- [黄子韬公司被强制执行2040万](http://www.daogukj.com/7335488)
-- [前 9 月居民用电十年来首现负增长，可能受哪些因素影响？](http://www.movie.hkepx.cn/xiju/7580266.htm)
-- [今日霜降](http://www.play.hengshemaoyi.cn/xiju/9936981.htm)
-- [9岁孩子开门杀致路人死亡 司机获刑](http://www.movie.hkepx.cn/xiju/0655390.htm)
-- [再见朋友厉娜许飞好纯粹的恨](http://www.daogukj.com/tyoqvbnt/)
-- [西藏地震现场地面的裂缝比手宽](http://www.movie.hkepx.cn/xiju/8108717.htm)
-- [金饰价格一夜崩了](http://www.play.hengshemaoyi.cn/xiju/0718869.htm)
-- [实拍西藏地震：镜头剧烈摇晃](http://www.play.hengshemaoyi.cn/kongbu/2897114.htm)
-- [NBA回应76人29分大逆转骑士](http://www.play.hengshemaoyi.cn/xiju/2827049.htm)
-- [《B 界 修 仙 传：长 篇 大 电 影》](http://www.movie.hkepx.cn/xiju/1312993.htm)
-- [传统口技表演《大闹天宫》](http://www.daogukj.com/auvxhwep/)
-- [伟大的发现: 曼的一半是man](http://www.play.hengshemaoyi.cn/kongbu/9308752.htm)
-- [多方救援力量赶往震中](http://www.daogukj.com/5938049)
-- [胡锡进：股票跌得心疼](http://www.play.hengshemaoyi.cn/xiju/7231318.htm)
+- [黄多多 买股](http://www.play.hengshemaoyi.cn/kongbu/5748891.htm)
+- [泽连斯基：真不想打仗了](http://www.movie.hkepx.cn/movie/2928084.htm)
+- [吴艳妮晒新发型](http://www.play.hengshemaoyi.cn/xiju/0239872.htm)
+- [如何看待土耳其计划推出两套新的历史教材，把中国新疆、青海、甘肃等地区，纳入所谓「突厥世界」的版图？](http://www.daogukj.com/7779634)
+- [台风](http://www.play.hengshemaoyi.cn/kongbu/8270746.htm)
+- [曝波兰爆发大规模抗议活动，数百万人涌上街头，具体什么情况？为啥欧洲最近都在陆续爆发大规模的抗议活动？](http://www.daogukj.com/7335488)
+- [现货黄金失守 4000 美元关口，避险逻辑为什么失效了？这个位置适合买入吗？](http://www.movie.hkepx.cn/xiju/7580266.htm)
+- [如何评价《绝区零》10月23日特别直播——直至太阳升起？](http://www.play.hengshemaoyi.cn/xiju/9936981.htm)
+- [⚡魔 鬼 小 瞒 腰⚡](http://www.movie.hkepx.cn/xiju/0655390.htm)
+- [倒立玩MC（字面意思）](http://www.daogukj.com/tyoqvbnt/)
+- [神探李昌钰安葬 夫人扶灵痛哭](http://www.movie.hkepx.cn/xiju/8108717.htm)
+- [河北承德一拾荒老人被倾倒渣石砸死后，被瞒报近三年 ，事情为什么能被压这么久？问题出在哪些环节？](http://www.play.hengshemaoyi.cn/xiju/0718869.htm)
+- [吴艳妮晒出“波波头”新发型](http://www.play.hengshemaoyi.cn/kongbu/2897114.htm)
+- [真的有公司裁员裁到“大动脉”，最后不得不花高价把人请回来的吗？](http://www.play.hengshemaoyi.cn/xiju/2827049.htm)
+- [国产最大直径盾构机下线](http://www.movie.hkepx.cn/xiju/1312993.htm)
+- [松岛辉空男单退赛](http://www.daogukj.com/auvxhwep/)
+- [别把学校办成了车间](http://www.play.hengshemaoyi.cn/kongbu/9308752.htm)
+- [中共中央政治局召开会议](http://www.daogukj.com/5938049)
+- [再听已是曲中人](http://www.play.hengshemaoyi.cn/xiju/7231318.htm)
 
 </details>
 
 ## 原始来源
 
-- [假如张水华情商足够高，能否和前单位形成双赢？](https://www.zhihu.com/question/2095632739823308814)
+- [留美在读女博士答辩失利，向实验室同门咖啡机投毒「丙烯酰胺」，如何看待这一事件？](https://www.zhihu.com/question/2096228188099540232)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4b9ba135a6aab3b87962 -->
+<!-- content-fingerprint: 8dd8d2dce821245be4ca -->
