@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 特斯拉第三季度汽车部门营收同比下滑 3% ，公司经营利润下降 56% ，利润下滑的核心原因是什么？
+# 假如张水华情商足够高，能否和前单位形成双赢？
 
-> 来源：知乎热榜 · 排名：第 19 位 · 热度：93 万热度 · 分类：问答 · 更新：2026-10-23T08:11:41+08:00
+> 来源：知乎热榜 · 排名：第 19 位 · 热度：113 万热度 · 分类：问答 · 更新：2026-10-23T12:56:10+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“特斯拉第三季度汽车部门营收同比下滑 3% ，公司经营利润下降 56% ，利润下滑的核心原因是什么？”位列第 19 位，公开热度指标为 93 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“假如张水华情商足够高，能否和前单位形成双赢？”位列第 19 位，公开热度指标为 113 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：特斯拉第三季度营收280.5亿美元，同比下降0.2%，预估281.3亿美元，其中汽车部门营收205.6亿美元，同比下降3%；第三季度经营利润7.18亿美元，同比下降56%，预估5.993亿美元；调整后每股收益0.48美元，预估0.44美元。公司第三季度毛利率19.6％，上年同期18％，预估17.8％。 公司第三季度资本支出47.3亿美元，上年同期22.5亿美元，预估79.5亿美元；自由现金流15.3亿美元，同比下降62%，预估为-49.9亿美元。
+来源公开摘要显示：我想知道，究竟有没有实现双赢的可能，即单位给她调岗允许她花更多时间去跑马拉松，而她也在各种比赛主动替单位宣传，和单位共享荣誉。 是双方完全有可能形成这样的良好合作关系，只是张水华情商太低搞砸了？ 还是说单位就不可能给予她这个空间，无论她情商多高，多愿意合作共赢都不行。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [小狗如奶油般融化…](hua-long-dian-jing.md)
-- [捷达M6上市 售价7.98万起](miao-bi-sheng-hua.md)
-- [41岁女子存百万后去世](sheng-dong-huo-po.md)
-- [女子100天零违章获奖1吨汽油](xu-xu-ru-sheng.md)
+- [因为智商不够，从EXO到生子，被打脸的嘴硬的一生。【黄子韬徐艺洋官宣生子】](hua-long-dian-jing.md)
+- [“神探”李昌钰悼念花篮排了近百米](miao-bi-sheng-hua.md)
+- [何穗 拿到大结果了](sheng-dong-huo-po.md)
+- [日本为何在美国沙漠试射防空导弹](xu-xu-ru-sheng.md)
 
 ## 站内推荐
 
-- [西藏7.0级强震已致16死46伤](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [手搓飞行滑板走红男生回应假飞传闻](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [以抛硬币为例，赌博为什么是“十赌九输”，而不是“二赌一输”？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [高校发倡议规范使用得体庄重的「老师」称谓，严禁学生称辅导员为「哥、姐」，你怎么看？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [曝波兰爆发大规模抗议活动，数百万人涌上街头，具体什么情况？为啥欧洲最近都在陆续爆发大规模的抗议活动？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [专家：黄金白银崩了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [为啥智谱GLM海外口碑极佳，国内认知度却不及豆包DeepSeek？盈利模式、应用场景上三者有啥区别吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [兵马俑明明很写实，为什么中国雕塑后来“放弃” 了这条路？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [一高校老师发文称因无力教导学生新知识而时常感到十分抱歉，看完后你有哪些感触？为什么能够收获这么多共鸣？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [如何评价特朗普发文痛批詹姆斯在奏国歌时做「高尔夫挥杆动作」，并要求其道歉？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [纪念红军长征胜利90周年晚会10个细节](http://www.play.hengshemaoyi.cn/xiju/6246916.htm)
-- [《正常人谁去园区吃火锅啊》](http://www.play.hengshemaoyi.cn/xiju/0196335.htm)
-- [国乒女团2比3日本女团](http://www.daogukj.com/txhvfhkc/)
-- [法国55万人大游行！但马克龙和夫人在跳舞](http://www.movie.hkepx.cn/xiju/8357680.htm)
-- [如何评价英雄联盟 S16 全球总决赛入围赛因阴间时间，解说及二路主播集体加班播到「神志不清」？](http://www.movie.hkepx.cn/xiju/7453143.htm)
-- [全球70%网站都危险了](http://www.daogukj.com/3829236)
-- [如何评价宇树发布全新机器人「H2-X功夫传奇 守护」，宣称能徒手抬车、勇斗歹徒？在实际生活中会用在哪？](http://www.movie.hkepx.cn/movie/7849010.htm)
-- [西藏那曲7.0级地震已造成16死46伤](http://www.movie.hkepx.cn/movie/3810739.htm)
-- [在星巴克开会1小时被提醒点单5次](http://www.daogukj.com/xwtczorl/)
-- [奥迪中国 首位中国籍总裁](http://www.daogukj.com/9411778)
-- [李雪健这段无声演绎看哭了](http://www.movie.hkepx.cn/xiju/1018177.htm)
-- [婚礼发言说虽然不是我的妻子](http://www.movie.hkepx.cn/movie/7549482.htm)
-- [国道317线西藏那曲部分路段交通管制](http://www.movie.hkepx.cn/xiju/3152832.htm)
-- [24岁美国乡下大学天才"讲师"：叛逆狂人的潇洒生活！](http://www.movie.hkepx.cn/xiju/6452829.htm)
-- [现实可比电影荒谬多了！这些看似鬼扯的桥段，一查资料全是真事！](http://www.play.hengshemaoyi.cn/kongbu/1742289.htm)
-- [震区酒店前台：整个房子抖起来了](http://www.play.hengshemaoyi.cn/xiju/4134369.htm)
-- [以抛硬币为例，赌博为什么是“十赌九输”，而不是“二赌一输”？](http://www.play.hengshemaoyi.cn/kongbu/8805735.htm)
-- [马克龙称未来数日将禁止非法抗议活动](http://www.movie.hkepx.cn/xiju/1005247.htm)
-- [后会友期 想请不敢请的都放观察室了](http://www.play.hengshemaoyi.cn/xiju/4070224.htm)
-- [全球总决赛回忆挑战，谁是LPL全能王？【开麦了LPL】](http://www.movie.hkepx.cn/movie/8130025.htm)
-- [iPhone Duo测评出炉，折叠3000次后，折痕明显加深，高负载下发热明显，还有哪些问题值得关注？](http://www.play.hengshemaoyi.cn/kongbu/7840266.htm)
-- [媒体：国乒男团卫冕成功进步不小](http://www.daogukj.com/mgvzhkvp/)
-- [西藏地震亲历者：腿发抖吓哭了](http://www.play.hengshemaoyi.cn/kongbu/6692605.htm)
-- [《最绝望の守门员》](http://www.daogukj.com/0659107)
-- [红军为何总能绝处逢生](http://www.movie.hkepx.cn/movie/2177161.htm)
-- [西藏地震亲历者称房子震得嘎嘎叫](http://www.movie.hkepx.cn/xiju/4629379.htm)
-- [西藏7.0级强震已致16死46伤](http://www.play.hengshemaoyi.cn/kongbu/8609961.htm)
-- [美股收盘：SpaceX跌超9%](http://www.play.hengshemaoyi.cn/kongbu/2788736.htm)
-- [中国人真的把雪山变成了坦途](http://www.movie.hkepx.cn/movie/9454869.htm)
-- [你只是怕了](http://www.movie.hkepx.cn/movie/8856381.htm)
+- [iPhone Duo开售 义乌手机壳同步上市](http://www.play.hengshemaoyi.cn/xiju/6246916.htm)
+- [《人间异想计划》22分钟实机首曝｜间章：如果之事与未践之约](http://www.play.hengshemaoyi.cn/xiju/0196335.htm)
+- [西藏地震地面裂缝比手宽](http://www.daogukj.com/txhvfhkc/)
+- [中日情侣相恋2345天，在今天修成正果！](http://www.movie.hkepx.cn/xiju/8357680.htm)
+- [Anthropic最快将于本周提交S-1招股说明书，有望冲击史上最大IPO，会对市场带来怎样的影响？](http://www.movie.hkepx.cn/xiju/7453143.htm)
+- [娃哈哈集团董事长被曝辞职](http://www.daogukj.com/3829236)
+- [影视飓风员工，开什么车？](http://www.movie.hkepx.cn/movie/7849010.htm)
+- [西藏那曲地震已致16死65伤](http://www.movie.hkepx.cn/movie/3810739.htm)
+- [孟子义尚公主剧宣排面](http://www.daogukj.com/xwtczorl/)
+- [《后会友期》不敢请的全放观察室了](http://www.daogukj.com/9411778)
+- [VOGUE明星出图](http://www.movie.hkepx.cn/xiju/1018177.htm)
+- [两女生投150万开无烟酒吧倒闭](http://www.movie.hkepx.cn/movie/7549482.htm)
+- [大火逼近中国 日本道歉岂能只道一半](http://www.movie.hkepx.cn/xiju/3152832.htm)
+- [燕云×1818黄金眼 | 长乐未央，天下无诈](http://www.movie.hkepx.cn/xiju/6452829.htm)
+- [人民日报：上技校有没有用](http://www.play.hengshemaoyi.cn/kongbu/1742289.htm)
+- [河北承德一拾荒老人被倾倒渣石砸死后，被瞒报近三年 ，事情为什么能被压这么久？问题出在哪些环节？](http://www.play.hengshemaoyi.cn/xiju/4134369.htm)
+- [兵马俑明明很写实，为什么中国雕塑后来“放弃” 了这条路？](http://www.play.hengshemaoyi.cn/kongbu/8805735.htm)
+- [西藏7.0级强震已致16死65伤](http://www.movie.hkepx.cn/xiju/1005247.htm)
+- [乌克兰战俘痛骂泽连斯基：真正的小丑](http://www.play.hengshemaoyi.cn/xiju/4070224.htm)
+- [S16应援曲《以风之名》](http://www.movie.hkepx.cn/movie/8130025.htm)
+- [以抛硬币为例，赌博为什么是“十赌九输”，而不是“二赌一输”？](http://www.play.hengshemaoyi.cn/kongbu/7840266.htm)
+- [“龟速车”上高速添堵更添险](http://www.daogukj.com/mgvzhkvp/)
+- [AI发现人类网络潜伏多年的“暗门”](http://www.play.hengshemaoyi.cn/kongbu/6692605.htm)
+- [不减136斤不结婚，减掉还赢25万美金](http://www.daogukj.com/0659107)
+- [再看这条征途 依旧热血难平](http://www.movie.hkepx.cn/movie/2177161.htm)
+- [西藏巴青县7.0级地震已致16死65伤，为今年以来中国最大地震，当地目前情况如何？你那边有震感吗？](http://www.movie.hkepx.cn/xiju/4629379.htm)
+- [专家：黄金白银崩了](http://www.play.hengshemaoyi.cn/kongbu/8609961.htm)
+- [年轻人扎堆老年旅游团](http://www.play.hengshemaoyi.cn/kongbu/2788736.htm)
+- [白毛股神10月账户浮亏超1300万美元](http://www.movie.hkepx.cn/movie/9454869.htm)
+- [在星巴克开会1小时被提醒点单5次](http://www.movie.hkepx.cn/movie/8856381.htm)
 - [为什么我国在黄海要进行持续 47 天的实弹射击？释放了哪些信号？](http://www.movie.hkepx.cn/movie/7928531.htm)
-- [41岁女子存百万后去世](http://www.play.hengshemaoyi.cn/kongbu/5748891.htm)
-- [时速400公里的高铁真要来了吗](http://www.movie.hkepx.cn/movie/2928084.htm)
-- [西藏巴青县震源周边未来易出现阵雪](http://www.play.hengshemaoyi.cn/xiju/0239872.htm)
-- [医学博士称“诊断靠盲猜” 校方回应](http://www.daogukj.com/7779634)
-- [不嫁入豪门就出不来的学校→ 丨妖怪澡堂丨第八回丨【B站AI影视片场】](http://www.play.hengshemaoyi.cn/kongbu/8270746.htm)
-- [两女生投150万开无烟酒吧倒闭](http://www.daogukj.com/7335488)
-- [都说无印良品和宜家不值那个价，为什么还有那么多人买呢？](http://www.movie.hkepx.cn/xiju/7580266.htm)
-- [张本智和被打0-11惨败](http://www.play.hengshemaoyi.cn/xiju/9936981.htm)
-- [国乒女团2比3日本 获亚锦赛亚军](http://www.movie.hkepx.cn/xiju/0655390.htm)
-- [骚扰来电不接和挂断区别很大](http://www.daogukj.com/tyoqvbnt/)
-- [FPS游戏必学两大焚诀，学会胜率直接飙升！](http://www.movie.hkepx.cn/xiju/8108717.htm)
-- [厉娜说许飞背刺带来人生至暗时刻](http://www.play.hengshemaoyi.cn/xiju/0718869.htm)
-- [河南漯河26个单位联合招人系谣言](http://www.play.hengshemaoyi.cn/kongbu/2897114.htm)
-- [“地震像几百头牦牛同时奔跑”](http://www.play.hengshemaoyi.cn/xiju/2827049.htm)
-- [抗日神剧逆天剧情！女兵战场睡觉？睡醒还要给她找吃的！](http://www.movie.hkepx.cn/xiju/1312993.htm)
-- [香港餐饮业出现倒闭潮，部分餐厅甩锅深圳抢客，你怎么看待？](http://www.daogukj.com/auvxhwep/)
-- [用寂静岭的画风打开《周处除三害》【AI MV大赛】](http://www.play.hengshemaoyi.cn/kongbu/9308752.htm)
-- [长征是刻在大国重器上的信仰](http://www.daogukj.com/5938049)
-- [西藏地震为今年以来中国最大地震](http://www.play.hengshemaoyi.cn/xiju/7231318.htm)
+- [何穗 拿到大结果了](http://www.play.hengshemaoyi.cn/kongbu/5748891.htm)
+- [华强北商家说iPhoneDuo毫无技术含量](http://www.movie.hkepx.cn/movie/2928084.htm)
+- [76人29分大逆转胜骑士](http://www.play.hengshemaoyi.cn/xiju/0239872.htm)
+- [台风蔷琵已致台湾1死94伤](http://www.daogukj.com/7779634)
+- [九旬老人在公共楼道睡了近一年](http://www.play.hengshemaoyi.cn/kongbu/8270746.htm)
+- [黄子韬公司被强制执行2040万](http://www.daogukj.com/7335488)
+- [前 9 月居民用电十年来首现负增长，可能受哪些因素影响？](http://www.movie.hkepx.cn/xiju/7580266.htm)
+- [今日霜降](http://www.play.hengshemaoyi.cn/xiju/9936981.htm)
+- [9岁孩子开门杀致路人死亡 司机获刑](http://www.movie.hkepx.cn/xiju/0655390.htm)
+- [再见朋友厉娜许飞好纯粹的恨](http://www.daogukj.com/tyoqvbnt/)
+- [西藏地震现场地面的裂缝比手宽](http://www.movie.hkepx.cn/xiju/8108717.htm)
+- [金饰价格一夜崩了](http://www.play.hengshemaoyi.cn/xiju/0718869.htm)
+- [实拍西藏地震：镜头剧烈摇晃](http://www.play.hengshemaoyi.cn/kongbu/2897114.htm)
+- [NBA回应76人29分大逆转骑士](http://www.play.hengshemaoyi.cn/xiju/2827049.htm)
+- [《B 界 修 仙 传：长 篇 大 电 影》](http://www.movie.hkepx.cn/xiju/1312993.htm)
+- [传统口技表演《大闹天宫》](http://www.daogukj.com/auvxhwep/)
+- [伟大的发现: 曼的一半是man](http://www.play.hengshemaoyi.cn/kongbu/9308752.htm)
+- [多方救援力量赶往震中](http://www.daogukj.com/5938049)
+- [胡锡进：股票跌得心疼](http://www.play.hengshemaoyi.cn/xiju/7231318.htm)
 
 </details>
 
 ## 原始来源
 
-- [特斯拉第三季度汽车部门营收同比下滑 3% ，公司经营利润下降 56% ，利润下滑的核心原因是什么？](https://www.zhihu.com/question/2096528282996962647)
+- [假如张水华情商足够高，能否和前单位形成双赢？](https://www.zhihu.com/question/2095632739823308814)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4a71e9840e4bfcf9e219 -->
+<!-- content-fingerprint: 4b9ba135a6aab3b87962 -->

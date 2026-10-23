@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 都说无印良品和宜家不值那个价，为什么还有那么多人买呢？
+# 前 9 月居民用电十年来首现负增长，可能受哪些因素影响？
 
-> 来源：知乎热榜 · 排名：第 20 位 · 热度：93 万热度 · 分类：问答 · 更新：2026-10-23T08:11:41+08:00
+> 来源：知乎热榜 · 排名：第 20 位 · 热度：104 万热度 · 分类：问答 · 更新：2026-10-23T12:56:10+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“都说无印良品和宜家不值那个价，为什么还有那么多人买呢？”位列第 20 位，公开热度指标为 93 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“前 9 月居民用电十年来首现负增长，可能受哪些因素影响？”位列第 20 位，公开热度指标为 104 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：买过和没买过的都来说说看
+来源公开摘要显示：10月21日，国家能源局发布最新全国电力消费数据。一组值得留意的数据是，2026年1-9月，全国城乡居民生活用电量12346亿千瓦时，同比下降0.3%。 第一财经记者通过官方数据梳理发现，这是近十年该统计口径下，1-9月居民用电累计增速首次由正转负。 与之形成对照的是，全社会用电依然维持稳定增长，1-9月全社会用电量 80734亿千瓦时，同比增长 3.9%，增长动力集中在工业、高技术制造以及数字、充换电等服务业。 分月来看，这一轮居民用电的重要拐点出现在9月。9月单月城乡居民生活用电量1210亿千瓦时，同比下降6.0%，下拉了前8个月微弱的正增长。国家能
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [法国55万人大游行！但马克龙和夫人在跳舞](you-sheng-you-se.md)
-- [郭雪芙被曝在日遇害身亡 后援会辟谣](yin-ren-ru-sheng.md)
-- [马天宇低谷期找杨幂谈心](jing-di-zhi-wa.md)
-- [纪念红军长征胜利90周年晚会10个细节](hai-kuo-tian-kong.md)
+- [中日情侣相恋2345天，在今天修成正果！](you-sheng-you-se.md)
+- [直击西藏地震灾区救援现场](yin-ren-ru-sheng.md)
+- [张亮请张亮吃张亮](jing-di-zhi-wa.md)
+- [iPhone Duo开售 义乌手机壳同步上市](hai-kuo-tian-kong.md)
 
 ## 站内推荐
 
-- [马克龙称未来数日将禁止非法抗议活动](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [大火逼近中国 日本道歉岂能只道一半](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [《offer 8》嘉宾称「专博期间不上临床」被质疑，福医大称其已完成18个月临床轮转，如何看待此事？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [如何评价英雄联盟 S16 全球总决赛入围赛因阴间时间，解说及二路主播集体加班播到「神志不清」？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [兵马俑明明很写实，为什么中国雕塑后来“放弃” 了这条路？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [西藏7.0级强震已致16死65伤](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [香港餐饮业出现倒闭潮，部分餐厅甩锅深圳抢客，你怎么看待？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [都说无印良品和宜家不值那个价，为什么还有那么多人买呢？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [Anthropic最快将于本周提交S-1招股说明书，有望冲击史上最大IPO，会对市场带来怎样的影响？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [原「死了么」App 年费最高 199 元，由政府采购供独居老人免费使用，收费高吗？政府采购有必要吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [姜妍小城良方下沉市场口碑](http://www.daogukj.com/8005923)
-- [西藏7.0级强震已致16死46伤](http://www.play.hengshemaoyi.cn/xiju/7463191.htm)
-- [在星巴克开会1小时被提醒点单5次](http://www.movie.hkepx.cn/movie/4169739.htm)
-- [《offer 8》嘉宾称「专博期间不上临床」被质疑，福医大称其已完成18个月临床轮转，如何看待此事？](http://www.play.hengshemaoyi.cn/xiju/5874723.htm)
-- [“地震像几百头牦牛同时奔跑”](http://www.movie.hkepx.cn/movie/3447925.htm)
-- [西藏地震为今年以来中国最大地震](http://www.play.hengshemaoyi.cn/kongbu/4576162.htm)
-- [苹果内屏磨砂膜能徒手撕下](http://www.play.hengshemaoyi.cn/xiju/9969388.htm)
-- [iPhone Duo测评出炉，折叠3000次后，折痕明显加深，高负载下发热明显，还有哪些问题值得关注？](http://www.play.hengshemaoyi.cn/kongbu/2274251.htm)
-- [你只是怕了](http://www.movie.hkepx.cn/xiju/5546881.htm)
-- [红军为何总能绝处逢生](http://www.play.hengshemaoyi.cn/kongbu/8488935.htm)
-- [不嫁入豪门就出不来的学校→ 丨妖怪澡堂丨第八回丨【B站AI影视片场】](http://www.play.hengshemaoyi.cn/xiju/5663353.htm)
-- [今日霜降](http://www.movie.hkepx.cn/xiju/5950485.htm)
-- [河南漯河26个单位联合招人系谣言](http://www.movie.hkepx.cn/movie/9193128.htm)
-- [韩国要收回美国权力指挥美军](http://www.daogukj.com/atarmjde/)
-- [前 9 月居民用电十年来首现负增长，可能受哪些因素影响？](http://www.play.hengshemaoyi.cn/xiju/9145960.htm)
-- [时速400公里的高铁真要来了吗](http://www.movie.hkepx.cn/xiju/2578023.htm)
-- [新兴领域良性循环加快形成](http://www.daogukj.com/5709010)
-- [小狗如奶油般融化…](http://www.daogukj.com/wpzjvegw/)
-- [王彦霖回应肖战说倪大红赢了](http://www.play.hengshemaoyi.cn/xiju/4598532.htm)
-- [手搓飞行滑板走红男生回应假飞传闻](http://www.play.hengshemaoyi.cn/kongbu/0125652.htm)
-- [超强台风蔷琵逼近中国](http://www.movie.hkepx.cn/xiju/2411242.htm)
-- [西藏那曲市巴青县发生3.0级地震](http://www.daogukj.com/6900199)
-- [以抛硬币为例，赌博为什么是“十赌九输”，而不是“二赌一输”？](http://www.movie.hkepx.cn/xiju/8302101.htm)
-- [西藏地震亲历者称房子震得嘎嘎叫](http://www.daogukj.com/vrviqqsc/)
-- [奥迪中国 首位中国籍总裁](http://www.daogukj.com/5803945)
+- [苹果折叠屏开售](http://www.daogukj.com/8005923)
+- [专家：黄金白银崩了](http://www.play.hengshemaoyi.cn/xiju/7463191.htm)
+- [孟子义尚公主剧宣排面](http://www.movie.hkepx.cn/movie/4169739.htm)
+- [都说无印良品和宜家不值那个价，为什么还有那么多人买呢？](http://www.play.hengshemaoyi.cn/xiju/5874723.htm)
+- [NBA回应76人29分大逆转骑士](http://www.movie.hkepx.cn/movie/3447925.htm)
+- [胡锡进：股票跌得心疼](http://www.play.hengshemaoyi.cn/kongbu/4576162.htm)
+- [胡昌升抵达7.0级地震震中指挥应急救援](http://www.play.hengshemaoyi.cn/xiju/9969388.htm)
+- [以抛硬币为例，赌博为什么是“十赌九输”，而不是“二赌一输”？](http://www.play.hengshemaoyi.cn/kongbu/2274251.htm)
+- [在星巴克开会1小时被提醒点单5次](http://www.movie.hkepx.cn/xiju/5546881.htm)
+- [再看这条征途 依旧热血难平](http://www.play.hengshemaoyi.cn/kongbu/8488935.htm)
+- [九旬老人在公共楼道睡了近一年](http://www.play.hengshemaoyi.cn/xiju/5663353.htm)
+- [嫁金钗](http://www.movie.hkepx.cn/xiju/5950485.htm)
+- [实拍西藏地震：镜头剧烈摇晃](http://www.movie.hkepx.cn/movie/9193128.htm)
+- [用寂静岭的画风打开《周处除三害》【AI MV大赛】](http://www.daogukj.com/atarmjde/)
+- [iPhone Duo 正式发售，相关媒体评论已解禁，哪些新要点值得关注？你最关注哪家测评？](http://www.play.hengshemaoyi.cn/xiju/9145960.htm)
+- [华强北商家说iPhoneDuo毫无技术含量](http://www.movie.hkepx.cn/xiju/2578023.htm)
+- [开放的中国始终与世界双向奔赴](http://www.daogukj.com/5709010)
+- [因为智商不够，从EXO到生子，被打脸的嘴硬的一生。【黄子韬徐艺洋官宣生子】](http://www.daogukj.com/wpzjvegw/)
+- [Gucci送肖战演唱会的花篮](http://www.play.hengshemaoyi.cn/xiju/4598532.htm)
+- [为啥智谱GLM海外口碑极佳，国内认知度却不及豆包DeepSeek？盈利模式、应用场景上三者有啥区别吗？](http://www.play.hengshemaoyi.cn/kongbu/0125652.htm)
+- [72岁李雪健已经失聪说不了话](http://www.movie.hkepx.cn/xiju/2411242.htm)
+- [霜降养生关键在于给身体“关好门窗”](http://www.daogukj.com/6900199)
+- [兵马俑明明很写实，为什么中国雕塑后来“放弃” 了这条路？](http://www.movie.hkepx.cn/xiju/8302101.htm)
+- [西藏巴青县7.0级地震已致16死65伤，为今年以来中国最大地震，当地目前情况如何？你那边有震感吗？](http://www.daogukj.com/vrviqqsc/)
+- [《后会友期》不敢请的全放观察室了](http://www.daogukj.com/5803945)
 - [为什么我国在黄海要进行持续 47 天的实弹射击？释放了哪些信号？](http://www.daogukj.com/pggqhldb/)
-- [抗日神剧逆天剧情！女兵战场睡觉？睡醒还要给她找吃的！](http://www.play.hengshemaoyi.cn/xiju/9613239.htm)
-- [女子100天零违章获奖1吨汽油](http://www.movie.hkepx.cn/xiju/1355542.htm)
-- [红果短剧日活超「爱优腾芒」四家总和，原因有哪些？](http://www.play.hengshemaoyi.cn/xiju/7010661.htm)
-- [美股科技股大跌](http://www.movie.hkepx.cn/xiju/1893259.htm)
-- [骚扰来电不接和挂断区别很大](http://www.daogukj.com/3906187)
-- [国乒女团2比3日本女团](http://www.daogukj.com/3891201)
-- [再听已是曲中人](http://www.movie.hkepx.cn/movie/0469338.htm)
-- [肖战新剧为了拒绝姜妍疯狂贬低自己](http://www.play.hengshemaoyi.cn/kongbu/9519674.htm)
-- [全球70%网站都危险了](http://www.daogukj.com/8314048)
-- [乒乓亚锦赛女团决赛，中国队 2-3 不敌日本获女团亚军，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/8783645.htm)
-- [《正常人谁去园区吃火锅啊》](http://www.play.hengshemaoyi.cn/kongbu/2446487.htm)
-- [医学博士称“诊断靠盲猜” 校方回应](http://www.movie.hkepx.cn/xiju/1583083.htm)
-- [特斯拉第三季度汽车部门营收同比下滑 3% ，公司经营利润下降 56% ，利润下滑的核心原因是什么？](http://www.movie.hkepx.cn/movie/7949727.htm)
-- [婚礼发言说虽然不是我的妻子](http://www.movie.hkepx.cn/xiju/7893335.htm)
-- [不卖不卖,根本不肥【AI全民制作人】](http://www.movie.hkepx.cn/movie/6332074.htm)
-- [西藏地震已致16死46伤](http://www.movie.hkepx.cn/xiju/9763550.htm)
-- [郭雪芙被曝在日遇害身亡 后援会辟谣](http://www.movie.hkepx.cn/movie/0911321.htm)
-- [马天宇低谷期找杨幂谈心](http://www.movie.hkepx.cn/movie/1570496.htm)
-- [马克龙称未来数日将禁止非法抗议活动](http://www.movie.hkepx.cn/xiju/5460806.htm)
-- [后会友期 想请不敢请的都放观察室了](http://www.movie.hkepx.cn/xiju/3915542.htm)
-- [人民日报评综艺里医学生盲猜病情](http://www.daogukj.com/obnsavya/)
-- [张本智和被打出0-11惨败](http://www.daogukj.com/thtteqlc/)
-- [香港餐饮业出现倒闭潮，部分餐厅甩锅深圳抢客，你怎么看待？](http://www.daogukj.com/6398059)
-- [美股收盘：SpaceX跌超9%](http://www.daogukj.com/5238190)
+- [《B 界 修 仙 传：长 篇 大 电 影》](http://www.play.hengshemaoyi.cn/xiju/9613239.htm)
+- [日本为何在美国沙漠试射防空导弹](http://www.movie.hkepx.cn/xiju/1355542.htm)
+- [《最绝望の守门员》](http://www.play.hengshemaoyi.cn/xiju/7010661.htm)
+- [骚扰来电不接和挂断区别很大](http://www.movie.hkepx.cn/xiju/1893259.htm)
+- [再见朋友厉娜许飞好纯粹的恨](http://www.daogukj.com/3906187)
+- [西藏地震地面裂缝比手宽](http://www.daogukj.com/3891201)
+- [新三国up锐评老三国24：布平生不好斗，唯好解斗！](http://www.movie.hkepx.cn/movie/0469338.htm)
+- [西藏7级地震](http://www.play.hengshemaoyi.cn/kongbu/9519674.htm)
+- [娃哈哈集团董事长被曝辞职](http://www.daogukj.com/8314048)
+- [如何看待《令人心动的offer8》李子祺在节目里诊断用盲猜，称专博不临床，10篇SCI被指为水刊凑数？](http://www.play.hengshemaoyi.cn/xiju/8783645.htm)
+- [《人间异想计划》22分钟实机首曝｜间章：如果之事与未践之约](http://www.play.hengshemaoyi.cn/kongbu/2446487.htm)
+- [台风蔷琵已致台湾1死94伤](http://www.movie.hkepx.cn/xiju/1583083.htm)
+- [假如张水华情商足够高，能否和前单位形成双赢？](http://www.movie.hkepx.cn/movie/7949727.htm)
+- [两女生投150万开无烟酒吧倒闭](http://www.movie.hkepx.cn/xiju/7893335.htm)
+- [FPS游戏必学两大焚诀，学会胜率直接飙升！](http://www.movie.hkepx.cn/movie/6332074.htm)
+- [别再嫌再见朋友请来的咖糊了](http://www.movie.hkepx.cn/xiju/9763550.htm)
+- [直击西藏地震灾区救援现场](http://www.movie.hkepx.cn/movie/0911321.htm)
+- [张亮请张亮吃张亮](http://www.movie.hkepx.cn/movie/1570496.htm)
+- [西藏7.0级强震已致16死65伤](http://www.movie.hkepx.cn/xiju/5460806.htm)
+- [乌克兰战俘痛骂泽连斯基：真正的小丑](http://www.movie.hkepx.cn/xiju/3915542.htm)
+- [大跌之后A股可以抄底吗](http://www.daogukj.com/obnsavya/)
+- [人民日报评综艺里医学生盲猜病情](http://www.daogukj.com/thtteqlc/)
+- [传统口技表演《大闹天宫》](http://www.daogukj.com/6398059)
+- [年轻人扎堆老年旅游团](http://www.daogukj.com/5238190)
 
 </details>
 
 ## 原始来源
 
-- [都说无印良品和宜家不值那个价，为什么还有那么多人买呢？](https://www.zhihu.com/question/2075979266378786110)
+- [前 9 月居民用电十年来首现负增长，可能受哪些因素影响？](https://www.zhihu.com/question/2096585400211060316)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: e44bd3cc24c76e42bef1 -->
+<!-- content-fingerprint: 981ff8b08ec2e0c2a7c6 -->
