@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 《人间异想计划》22分钟实机首曝｜间章：如果之事与未践之约
+# 如何评价特朗普发文痛批詹姆斯在奏国歌时做「高尔夫挥杆动作」，并要求其道歉？
 
-> 来源：哔哩哔哩热门 · 排名：第 19 位 · 热度：6045717 · 分类：MV · 更新：2026-10-23T22:28:01+08:00
+> 来源：知乎热榜 · 排名：第 19 位 · 热度：94 万热度 · 分类：问答 · 更新：2026-10-24T02:37:13+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“《人间异想计划》22分钟实机首曝｜间章：如果之事与未践之约”位列第 19 位，公开热度指标为 6045717，榜单分类为“MV”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何评价特朗普发文痛批詹姆斯在奏国歌时做「高尔夫挥杆动作」，并要求其道歉？”位列第 19 位，公开热度指标为 94 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：欢迎来到「异乐都」。自「白夜审判」以后，怪谈体与人类在空中都市「异乐都」共同生活。 你是怪谈事务所调查员、异调局合作特调员：身世不明，装备可疑，事务所地址也不太稳定。和住在画里的助手阿拉贝拉一起，处理那些没人搞得定的委托。 在异乐都，「正常」才是最稀有的怪谈。 本视频录制于主线间章剧情「夜莺·荧惑篇」：在「红移」中实时扭曲重组的街区，由执念拼成的心像世界，多重重力，在二维和三维之间穿梭，还有完整的战斗系统与多阶段Boss战。 游戏仍处于开发阶段，所展示内容不代表最终品质。 ______
+来源公开摘要显示：特朗普痛批詹姆斯奏国歌时挥杆
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `MV`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [杨紫VOGUE红毯好像孕妇装](miao-bi-sheng-hua.md)
-- [何穗走秀猫天天头排鼓掌](sheng-dong-huo-po.md)
-- [学者：美日军机群在冲绳“大象漫步”](xu-xu-ru-sheng.md)
-- [现货黄金失守 4000 美元关口，避险逻辑为什么失效了？这个位置适合买入吗？](huo-ling-huo-xian.md)
+- [史上第一个智械危机受害者](miao-bi-sheng-hua.md)
+- [曾经的国民神车 推出首款电动车](sheng-dong-huo-po.md)
+- [C罗第982球](xu-xu-ru-sheng.md)
+- [新疆新一届党委领导班子亮相](huo-ling-huo-xian.md)
 
 ## 站内推荐
 
-- [原「死了么」App 年费最高 199 元，由政府采购供独居老人免费使用，收费高吗？政府采购有必要吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [这个更新有亿点水——《伊莫》S1赛季「逐风启程・下」10月29日开启！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [😨"后室里的乌鲁鲁3"😰](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [四人行，必有一怂蛋](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [【战双帕弥什】「流光抛诸寰宇」版本PV](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [如何评价莫大「旭日旗事件」涉事学生开除文件已下达，但因涉及隐私法律规定或将不对外公开？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [广州商学院涨租逼走快递网点，又要求老师每天投诉6单，倒逼快递返回学校，如何看待这一操作？暴露什么问题？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [劳动争议开庭前夕，娃哈哈法定代表人许思敏突然辞职，从宗馥莉卸任到许思敏离职，娃哈哈内部管理发生了什么？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [为什么阿里巴巴和腾讯估值低，股价却总是下跌？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [如何评价《英雄联盟》10月22日上线的海克斯大乱斗4.0版本「巨星之路」？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [王毅：中方将办好今年APEC会议](http://www.movie.hkepx.cn/movie/8910900.htm)
-- [看到这朵“黄花”别上手](http://www.play.hengshemaoyi.cn/kongbu/1452959.htm)
-- [国际金价暴跌因获利了结](http://www.movie.hkepx.cn/movie/4326545.htm)
-- [《原神》7.2版本「坏灭肇始之时」前瞻特别节目](http://www.movie.hkepx.cn/movie/1643509.htm)
-- [😨"后室里的乌鲁鲁3"😰](http://www.daogukj.com/3734905)
-- [如何评价原神7.2版本前瞻特别节目《坏灭肇始之时》？](http://www.play.hengshemaoyi.cn/kongbu/4707077.htm)
-- [福建前首富林秀成被批捕](http://www.play.hengshemaoyi.cn/xiju/9679366.htm)
-- [白鹿 神之九秒](http://www.movie.hkepx.cn/movie/8897904.htm)
-- [劳动争议开庭前夕，娃哈哈法定代表人许思敏突然辞职，从宗馥莉卸任到许思敏离职，娃哈哈内部管理发生了什么？](http://www.play.hengshemaoyi.cn/xiju/8041326.htm)
-- [如何评价莫大「旭日旗事件」涉事学生开除文件已下达，但因涉及隐私法律规定或将不对外公开？](http://www.daogukj.com/8279615)
-- [iPhoneDuo 华为](http://www.movie.hkepx.cn/xiju/6205852.htm)
-- [海底捞小便案细节：商家索赔2300万](http://www.movie.hkepx.cn/xiju/0712642.htm)
-- [DeepSeek又要拿到一笔巨额融资了](http://www.movie.hkepx.cn/xiju/6035249.htm)
-- [刘亦菲亮相红毯被称“凤凰神女”](http://www.daogukj.com/4744923)
-- [【战双帕弥什】「流光抛诸寰宇」版本PV](http://www.movie.hkepx.cn/movie/5089029.htm)
-- [热巴蝴蝶飞走瞬间 列入内娱史册](http://www.movie.hkepx.cn/movie/2615772.htm)
-- [外媒发文称「如 BLG 无法在 S16 夺冠，LPL 将无法保持第二赛区地位」如何评价他的观点？](http://www.play.hengshemaoyi.cn/kongbu/7334127.htm)
-- [泽连斯基表态「愿以领土换和平协议」后，普京也确认愿恢复俄美乌三方谈判，为什么各方突然都松口了？](http://www.daogukj.com/ptpekaap/)
-- [国办发文减缓人工智能就业替代影响](http://www.daogukj.com/7356664)
-- [杨紫VOGUE红毯好像孕妇装](http://www.daogukj.com/ayichqdz/)
-- [13岁女孩卖妈妈金项链 金店当面熔化](http://www.movie.hkepx.cn/xiju/2706147.htm)
-- [男子突发脑梗 140多只猫狗急得直叫](http://www.play.hengshemaoyi.cn/xiju/6688215.htm)
-- [最高法通报牟某虐待案细节](http://www.daogukj.com/cndcdbte/)
-- [人一旦在有地铁的城市待久了](http://www.daogukj.com/3515388)
-- [【独家】时光代理人 第三季 PartOne 第12集 欢迎回家【8月国创】](http://www.movie.hkepx.cn/movie/2280366.htm)
-- [救命，东北农村婚礼大席吃这么豪吗？](http://www.movie.hkepx.cn/xiju/9102843.htm)
-- [继母介绍12岁女童进黑作坊务工致六级伤残，厂方仅支付1万元跑路，各方该承担什么责任？这对孩子影响多大？](http://www.movie.hkepx.cn/xiju/6537051.htm)
-- [真的有公司裁员裁到“大动脉”，最后不得不花高价把人请回来的吗？](http://www.daogukj.com/vzsgeebf/)
-- [传统口技表演《大闹天宫》](http://www.play.hengshemaoyi.cn/kongbu/3922698.htm)
-- [普京称乌领导层想继续打那就打](http://www.play.hengshemaoyi.cn/kongbu/6040149.htm)
-- [顾客理发时死亡 店员施救被索赔46万](http://www.daogukj.com/4077362)
-- [外卖小哥讲述与博士老婆离婚原因](http://www.movie.hkepx.cn/movie/8186635.htm)
-- [不减136斤不结婚，减掉还赢25万美金](http://www.daogukj.com/hrahgoeh/)
-- [A股惊天逆转 到底发生了什么](http://www.movie.hkepx.cn/xiju/7623213.htm)
-- [李雪健已无法说话 仅靠表情完成演出](http://www.play.hengshemaoyi.cn/kongbu/4814140.htm)
-- [孩子在幼儿园被抢玩具后推倒了同学，对方家长要求道歉，但孩子坚决拒绝，我该强迫他道歉吗？](http://www.daogukj.com/3537481)
-- [迪丽热巴第二套](http://www.play.hengshemaoyi.cn/kongbu/7154027.htm)
-- [为什么我国在黄海要进行持续 47 天的实弹射击？释放了哪些信号？](http://www.play.hengshemaoyi.cn/xiju/0242395.htm)
-- [原「死了么」App 年费最高 199 元，由政府采购供独居老人免费使用，收费高吗？政府采购有必要吗？](http://www.play.hengshemaoyi.cn/xiju/7718342.htm)
-- [专家：日美勾连暗藏大阴谋](http://www.play.hengshemaoyi.cn/kongbu/7089205.htm)
-- [北京出现美丽的“火箭云”](http://www.play.hengshemaoyi.cn/xiju/7227900.htm)
-- [李昌钰发妻离世后与蒋霞萍频繁通信](http://www.daogukj.com/9191044)
-- [为了妈妈，全校老师同学最团结的一集](http://www.daogukj.com/6256754)
-- [刘亦菲压轴](http://www.play.hengshemaoyi.cn/kongbu/3838323.htm)
-- [肖战 光点](http://www.movie.hkepx.cn/movie/3822357.htm)
-- [孙怡：李小冉想找头婚的不容易](http://www.movie.hkepx.cn/movie/9519234.htm)
-- [苹果总市值超越英伟达](http://www.play.hengshemaoyi.cn/xiju/4782804.htm)
-- [第五人格女团 PerVade 正式出道！首支单曲《Undefined》MV公开！](http://www.daogukj.com/urxbddis/)
-- [如何评价Shams 爆料勇士探索交易波尔津吉斯，后者若无法康复可能永久退役？这算是诈骗行为吗？](http://www.movie.hkepx.cn/xiju/7315864.htm)
-- [9岁孩子“开门杀” 司机获刑](http://www.play.hengshemaoyi.cn/xiju/8904435.htm)
+- [黄多多正式进圈](http://www.movie.hkepx.cn/movie/8910900.htm)
+- [影视飓风员工，开什么车？](http://www.play.hengshemaoyi.cn/kongbu/1452959.htm)
+- [13岁女孩卖妈妈金项链 金店当面熔化](http://www.movie.hkepx.cn/movie/4326545.htm)
+- [一顺风车司机困了让乘客开车，自己睡到目的地还照常收钱，平台最初只赔20元代金券，最后全额退款，合理吗？](http://www.movie.hkepx.cn/movie/1643509.htm)
+- [劳动争议开庭前夕，娃哈哈法定代表人许思敏突然辞职，从宗馥莉卸任到许思敏离职，娃哈哈内部管理发生了什么？](http://www.daogukj.com/3734905)
+- [讲台上的刘欢：香烟粉笔与花体字](http://www.play.hengshemaoyi.cn/kongbu/4707077.htm)
+- [在夜晚东京街头唱了《真夜中のドア〜stay with me》会穿越回泡沫经济时代吗？](http://www.play.hengshemaoyi.cn/xiju/9679366.htm)
+- [与美国妻子离婚外卖员不知何为绿卡](http://www.movie.hkepx.cn/movie/8897904.htm)
+- [办社保卡金卡每月发补贴？假的](http://www.play.hengshemaoyi.cn/xiju/8041326.htm)
+- [许家印被曝曾花13亿港元买艺术品](http://www.daogukj.com/8279615)
+- [独生女继承2亿遗产1年后遭离婚分产](http://www.movie.hkepx.cn/xiju/6205852.htm)
+- [一个家里只能有一个女主人](http://www.movie.hkepx.cn/xiju/0712642.htm)
+- [GEN战胜IG](http://www.movie.hkepx.cn/xiju/6035249.htm)
+- [宋威龙张婧仪是不是忘记官宣了](http://www.daogukj.com/4744923)
+- [如何评价《英雄联盟》10月22日上线的海克斯大乱斗4.0版本「巨星之路」？](http://www.movie.hkepx.cn/movie/5089029.htm)
+- [胡昌升：帐篷写上电话、哪个干部负责](http://www.movie.hkepx.cn/movie/2615772.htm)
+- [牛弹琴：普京最新表态这五刀真够狠](http://www.play.hengshemaoyi.cn/kongbu/7334127.htm)
+- [西藏地震地面裂缝比手宽](http://www.daogukj.com/ptpekaap/)
+- [刘亦菲 凤凰神女](http://www.daogukj.com/7356664)
+- [史上第一个智械危机受害者](http://www.daogukj.com/ayichqdz/)
+- [假如把一只体型放大10倍的变异雀尾螳螂虾，扔进4.45亿年前的奥陶纪深海，它能活多久？](http://www.movie.hkepx.cn/xiju/2706147.htm)
+- [这个更新有亿点水——《伊莫》S1赛季「逐风启程・下」10月29日开启！](http://www.play.hengshemaoyi.cn/xiju/6688215.htm)
+- [全民“戒断”红果 可能吗](http://www.daogukj.com/cndcdbte/)
+- [GEN对战iG](http://www.daogukj.com/3515388)
+- [Anthropic 科学家称「AGI 若三年内到来读博将失去意义」，如何看待这一观点？](http://www.movie.hkepx.cn/movie/2280366.htm)
+- [如何评价2026年10月米哈游《原神》7.2版本前瞻直播【坏灭肇始之时】？](http://www.movie.hkepx.cn/xiju/9102843.htm)
+- [两女生投150万开无烟酒吧倒闭](http://www.movie.hkepx.cn/xiju/6537051.htm)
+- [A股市场底部探明了吗](http://www.daogukj.com/vzsgeebf/)
+- [泽连斯基表态「愿以领土换和平协议」后，普京也确认愿恢复俄美乌三方谈判，为什么各方突然都松口了？](http://www.play.hengshemaoyi.cn/kongbu/3922698.htm)
+- [S16](http://www.play.hengshemaoyi.cn/kongbu/6040149.htm)
+- [【独家】时光代理人 第三季 PartOne 第12集 欢迎回家【8月国创】](http://www.daogukj.com/4077362)
+- [不减136斤不结婚，减掉还赢25万美金](http://www.movie.hkepx.cn/movie/8186635.htm)
+- [如何看待土耳其计划推出两套新的历史教材，把中国新疆、青海、甘肃等地区，纳入所谓「突厥世界」的版图？](http://www.daogukj.com/hrahgoeh/)
+- [1个碳纤维板换到6个大红？！清图大哥不敢拿，怕我是外挂](http://www.movie.hkepx.cn/xiju/7623213.htm)
+- [Zuian督战TES打HLE](http://www.play.hengshemaoyi.cn/kongbu/4814140.htm)
+- [刘亦菲亮相红毯被称“凤凰神女”](http://www.daogukj.com/3537481)
+- [避孕药 避孕只是它的用途之一](http://www.play.hengshemaoyi.cn/kongbu/7154027.htm)
+- [被拐卖到电诈园区的女性会经历什么](http://www.play.hengshemaoyi.cn/xiju/0242395.htm)
+- [如何评价莫大「旭日旗事件」涉事学生开除文件已下达，但因涉及隐私法律规定或将不对外公开？](http://www.play.hengshemaoyi.cn/xiju/7718342.htm)
+- [王楚钦多次退赛会被赋零分吗](http://www.play.hengshemaoyi.cn/kongbu/7089205.htm)
+- [祖海认领](http://www.play.hengshemaoyi.cn/xiju/7227900.htm)
+- [未成年人向火锅小便 家长被判赔220万](http://www.daogukj.com/9191044)
+- [如何评价Kimi K3.1？](http://www.daogukj.com/6256754)
+- [警惕涉西藏巴青7.0级地震不实信息](http://www.play.hengshemaoyi.cn/kongbu/3838323.htm)
+- [娃哈哈集团董事长被曝辞职](http://www.movie.hkepx.cn/movie/3822357.htm)
+- [张予曦裙子湿了需要赔钱吗](http://www.movie.hkepx.cn/movie/9519234.htm)
+- [四人行，必有一怂蛋](http://www.play.hengshemaoyi.cn/xiju/4782804.htm)
+- [DeepSeek拟新融资1000亿元，腾讯、宁德时代出资最多，这会不会改写国内大模型的竞争格局？](http://www.daogukj.com/urxbddis/)
+- [辽宁舰现身菲律宾家门口意味着啥](http://www.movie.hkepx.cn/xiju/7315864.htm)
+- [⚡魔 鬼 小 瞒 腰⚡](http://www.play.hengshemaoyi.cn/xiju/8904435.htm)
 
 </details>
 
 ## 原始来源
 
-- [《人间异想计划》22分钟实机首曝｜间章：如果之事与未践之约](https://b23.tv/BV1Ranw6DEYW)
+- [如何评价特朗普发文痛批詹姆斯在奏国歌时做「高尔夫挥杆动作」，并要求其道歉？](https://www.zhihu.com/question/2096894678494884280)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: b381d65f0e414d24eb5a -->
+<!-- content-fingerprint: e20515c15fa6274c5511 -->
