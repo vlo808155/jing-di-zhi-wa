@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 肖战演唱会全场唯一舞蹈
+# 不减136斤不结婚，减掉还赢25万美金
 
-> 来源：微博热搜 · 排名：第 20 位 · 热度：251899 · 分类：演出 · 更新：2026-10-24T12:26:52+08:00
+> 来源：哔哩哔哩热门 · 排名：第 20 位 · 热度：3193878 · 分类：日常 · 更新：2026-10-24T17:00:19+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“肖战演唱会全场唯一舞蹈”位列第 20 位，公开热度指标为 251899，榜单分类为“演出”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“不减136斤不结婚，减掉还赢25万美金”位列第 20 位，公开热度指标为 3193878，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：我给一对即将结婚的情侣准备了一场疯狂的挑战：只要两人在婚礼前合力减掉136斤，就能赢走25万美金！💰 从高强度训练到不断升级的挑战，这场减肥计划远比想象中艰难。为了25万美金，也为了在婚礼上遇见更好的彼此，他们最终能坚持下来吗？看完记得一键三连！
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `演出`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `日常`
 
 ## 相关热点
 
-- [西藏强震成因揭晓](sheng-dong-huo-po.md)
-- [为什么阿里巴巴和腾讯估值低，股价却总是下跌？](xu-xu-ru-sheng.md)
-- [1个碳纤维板换到6个大红？！清图大哥不敢拿，怕我是外挂](huo-ling-huo-xian.md)
-- [李昌钰去世前最后照片公开](you-sheng-you-se.md)
+- [赵丽颖直播称没有关注粉丝](sheng-dong-huo-po.md)
+- [甜馨14岁生日全家福](xu-xu-ru-sheng.md)
+- [杜兰特盛赞阿门：他是个运动怪物](huo-ling-huo-xian.md)
+- [iPhone Duo开售，每人限购两部，你买到了吗？很多人刚开箱就屏幕开裂，你遇到了吗？使用感受如何？](you-sheng-you-se.md)
 
 ## 站内推荐
 
-- [有用版新植物：野狗小喷菇](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [【2026全球总决赛】10月24日 BLG vs MKOI](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [11天，我们干掉祸害20多年的传销头目！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [AI短剧公司几乎不需要基础岗](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [S16抽签 内战](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [《绝区零》先导演示丨挽昼](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
+- [人工耳蜗里的声音，到底是什么样的？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [谁给杨紫选的衣服](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [唐登杰当选山西省委书记](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [谁说我的背后只是个影子？😎](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [女子嫁给老外立遗嘱财产全给哥哥](http://www.play.hengshemaoyi.cn/xiju/5042626.htm)
+- [2026年中国票房第三名《功夫女足》跌至 5.9 分，是否可以印证冯小刚当年的话是对的？](http://www.play.hengshemaoyi.cn/xiju/5042626.htm)
 - [领导让你去他车里拿茅台，但车里没有怎么办？](http://www.play.hengshemaoyi.cn/xiju/7956106.htm)
-- [祝贺！中国成功发射一箭六星](http://www.movie.hkepx.cn/movie/4841456.htm)
-- [年轻人正在抛弃帆布鞋](http://www.movie.hkepx.cn/xiju/7247523.htm)
-- [泽连斯基含泪谈俄乌冲突：我夜不能寐](http://www.movie.hkepx.cn/movie/5948248.htm)
-- [有些癌症真是“胖出来的”](http://www.daogukj.com/jeqkpawe/)
-- [避孕药 避孕只是它的用途之一](http://www.daogukj.com/4687345)
-- [山河旅探团队新作：多人联机游戏《潜梦者》首曝|独行或结伴，潜入梦之海](http://www.daogukj.com/vpnhlcyn/)
-- [张家齐被吐槽最不喜欢这个运动员太高调了](http://www.movie.hkepx.cn/movie/1315163.htm)
-- [迪丽热巴嘴衔蝴蝶惊艳亮相](http://www.daogukj.com/rwppwnza/)
-- [湖南麻阳县委书记穿张雪机车服助威](http://www.play.hengshemaoyi.cn/kongbu/1523322.htm)
-- [我的天呐！这S赛太让人痛苦了，突破历史的首日全败！观众做了什么坏事要熬夜看这种比赛？【1酱赛评S赛瑞士轮Day1】](http://www.daogukj.com/2194242)
-- [迪丽热巴微指断层](http://www.play.hengshemaoyi.cn/xiju/4017132.htm)
-- [“订单排到2031年” 重量级国货爆单](http://www.movie.hkepx.cn/xiju/3408542.htm)
-- [抖音商城双11现货现发](http://www.daogukj.com/awgjlldl/)
-- [现在就出发](http://www.play.hengshemaoyi.cn/xiju/6207562.htm)
-- [有用版新植物：野狗小喷菇](http://www.daogukj.com/mrofapbq/)
-- [俄军宣布将在赫尔松方向停火](http://www.play.hengshemaoyi.cn/kongbu/5453073.htm)
-- [长六改火箭升空画出绝美“水母云”](http://www.play.hengshemaoyi.cn/xiju/6087046.htm)
-- [「父亲遛狗两岁男童坠亡」警方不予立案，孩子母亲拟申请立案监督，法律上如何分析？能否立案取决于什么？](http://www.movie.hkepx.cn/movie/8965197.htm)
-- [我的手办还会动，这世道不会还有人没有会动的手办吧，不会吧不会吧](http://www.play.hengshemaoyi.cn/kongbu/7748359.htm)
-- [【真实锐评】LPL瑞士轮首轮全败！4个0-1 4个BO1加一起凑不出来一条龙魂！牛了！](http://www.movie.hkepx.cn/xiju/0862966.htm)
-- [官方通报13岁女孩卖金项链被熔化](http://www.play.hengshemaoyi.cn/kongbu/9726074.htm)
-- [S16抽签 内战](http://www.movie.hkepx.cn/movie/4830470.htm)
-- [为什么阿里巴巴和腾讯估值低，股价却总是下跌？](http://www.play.hengshemaoyi.cn/xiju/3660611.htm)
-- [办社保卡金卡每月发补贴？假的](http://www.daogukj.com/7984737)
-- [土耳其新教材虚构新疆历史](http://www.movie.hkepx.cn/movie/5738447.htm)
-- [乡村走秀爆火 女生被夸是第二个刘雯](http://www.daogukj.com/cjltxhnp/)
-- [郭宁宁任福建省政府党组书记](http://www.play.hengshemaoyi.cn/kongbu/7175788.htm)
-- [如何看待沙特联第11轮费萨里1-3利雅得胜利，C罗头发丝进球2.0事件？](http://www.movie.hkepx.cn/movie/4124367.htm)
-- [唐驳虎：日本7根“脊梁骨”被打断](http://www.play.hengshemaoyi.cn/xiju/7951635.htm)
-- [Kimi K3.1 Pro 正式发布，如何评价该新模型？有哪些值得关注的亮点？](http://www.play.hengshemaoyi.cn/xiju/9311263.htm)
-- [“大肥鱼适合做女朋友吗？”](http://www.daogukj.com/qhynwuoo/)
-- [如何评价英国拟征收看剧税，观看 YouTube、Netflix 等网络流媒体需每年缴纳 180 英镑？](http://www.play.hengshemaoyi.cn/xiju/2836720.htm)
-- [毛不易出席多年好友婚礼致辞引争议](http://www.daogukj.com/0046089)
-- [如何评价博主称“游戏劫持了人生最珍贵的算力，导致现实问题一个都没碰”的观点？](http://www.play.hengshemaoyi.cn/kongbu/6160337.htm)
-- [【2026全球总决赛】10月24日 BLG vs MKOI](http://www.play.hengshemaoyi.cn/kongbu/7581667.htm)
-- [普京问乌克兰真准备战至最后一人吗](http://www.movie.hkepx.cn/movie/1557680.htm)
-- [前有白冰被指偷穿高定，后有曝一明星自费买高定引品牌方暴怒，为啥奢侈品行业要设置这些普通人看不懂的规矩？](http://www.movie.hkepx.cn/movie/5183784.htm)
-- [任泽平微信公众号违规被禁止关注](http://www.movie.hkepx.cn/xiju/8111897.htm)
-- [首部龙标AI电影正式上映](http://www.play.hengshemaoyi.cn/kongbu/4378701.htm)
-- [黄海冰演《嫁金钗》皇帝被错认樊少皇](http://www.daogukj.com/7904792)
-- [【2026全球总决赛】10月24日 GEN vs IG](http://www.movie.hkepx.cn/xiju/7283893.htm)
-- [只有369摸到过高地](http://www.daogukj.com/4389315)
-- [AI短剧公司几乎不需要基础岗](http://www.movie.hkepx.cn/xiju/0722929.htm)
-- [律师回应独生女继承2亿遭离婚分产](http://www.play.hengshemaoyi.cn/kongbu/4443491.htm)
-- [寒武纪（cambrian）为什么被翻译成“寒武纪”？](http://www.daogukj.com/4354382)
-- [中国贝爷刘教去海岛感受南国美食](http://www.daogukj.com/4226089)
-- [大S最有野心的那一年淡妆走红毯](http://www.movie.hkepx.cn/xiju/3342028.htm)
-- [过去引以为傲的技术能力被 AI 快速追上，是失落还是解脱？](http://www.daogukj.com/jkvkxuzz/)
+- [“蛟龙”出海记](http://www.movie.hkepx.cn/movie/4841456.htm)
+- [菲防长竟叫嚣战争行为恐吓中国](http://www.movie.hkepx.cn/xiju/7247523.htm)
+- [苏州市委书记会见谷爱凌](http://www.movie.hkepx.cn/movie/5948248.htm)
+- [光刻机被抢疯了](http://www.daogukj.com/jeqkpawe/)
+- [刘亦菲上场前欧阳娜娜给她换伞](http://www.daogukj.com/4687345)
+- [人性、欲望与奇观，自驾拉斯维加斯，现实夜之城什么样？](http://www.daogukj.com/vpnhlcyn/)
+- [老年人摔倒后身体断崖式衰退真相](http://www.movie.hkepx.cn/movie/1315163.htm)
+- [你怎么看毛不易在女性好友婚礼上的致辞，算越界吗？为什么「结婚越来越不意味着什么」引发热议？](http://www.daogukj.com/rwppwnza/)
+- [菲两架军机空中相撞画面曝光](http://www.play.hengshemaoyi.cn/kongbu/1523322.htm)
+- [【纪录片】中国救护2 06 此去仍有光](http://www.daogukj.com/2194242)
+- [西藏强震成因揭晓](http://www.play.hengshemaoyi.cn/xiju/4017132.htm)
+- [年轻人正在抛弃帆布鞋](http://www.movie.hkepx.cn/xiju/3408542.htm)
+- [96岁老人因高龄被旅行社拒收，独自乘火车43小时进藏旅行，完成走遍全国的心愿，此事带给我们怎样的触动？](http://www.daogukj.com/awgjlldl/)
+- [多位网友晒iPhoneDuo屏幕裂了](http://www.play.hengshemaoyi.cn/xiju/6207562.htm)
+- [《绝区零》先导演示丨挽昼](http://www.daogukj.com/mrofapbq/)
+- [女子追尾后鲨鱼夹碎裂 医生提醒](http://www.play.hengshemaoyi.cn/kongbu/5453073.htm)
+- [父亲突发脑梗儿子用豆包抢出救命时间](http://www.play.hengshemaoyi.cn/xiju/6087046.htm)
+- [😨"后室里的乌鲁鲁3"😰](http://www.movie.hkepx.cn/movie/8965197.htm)
+- [秦岭半山红叶半山雪](http://www.play.hengshemaoyi.cn/kongbu/7748359.htm)
+- [《纯阳真气》](http://www.movie.hkepx.cn/xiju/0862966.htm)
+- [BLG不夺冠雷鸟退全款](http://www.play.hengshemaoyi.cn/kongbu/9726074.htm)
+- [谁说我的背后只是个影子？😎](http://www.movie.hkepx.cn/movie/4830470.htm)
+- [甜馨14岁生日全家福](http://www.play.hengshemaoyi.cn/xiju/3660611.htm)
+- [大同市委书记朱晓东当选山西省委常委](http://www.daogukj.com/7984737)
+- [如何看待六部门联合印发《关于推进老旧街区厂区改造提升的指导意见》，实施1500个重大工程项目？](http://www.movie.hkepx.cn/movie/5738447.htm)
+- [豆浆机大王一个月涨了120%](http://www.daogukj.com/cjltxhnp/)
+- [为什么江西小炒火遍江南？](http://www.play.hengshemaoyi.cn/kongbu/7175788.htm)
+- [王一博的名字真出现在摄影团队名单里](http://www.movie.hkepx.cn/movie/4124367.htm)
+- [9岁孩子开门杀致路人死亡，司机获刑10个月缓刑1年，开门的是乘客，为何判刑的是司机？带给我们哪些启示？](http://www.play.hengshemaoyi.cn/xiju/7951635.htm)
+- [S16 全球总决赛瑞士轮首日 LPL 战队四战全败创联赛最差开局成绩，如何评价首日他们的表现？](http://www.play.hengshemaoyi.cn/xiju/9311263.htm)
+- [“借大圣威名，护我痴儿周全”](http://www.daogukj.com/qhynwuoo/)
+- [如何评价博主称“游戏劫持了人生最珍贵的算力，导致现实问题一个都没碰”的观点？](http://www.play.hengshemaoyi.cn/xiju/2836720.htm)
+- [石油是怎样变成衣服的](http://www.daogukj.com/0046089)
+- [听说月球在以每年四厘米的距离离开地球，这是不是真的？](http://www.play.hengshemaoyi.cn/kongbu/6160337.htm)
+- [人工耳蜗里的声音，到底是什么样的？](http://www.play.hengshemaoyi.cn/kongbu/7581667.htm)
+- [红军最小军团长唯一照片首次公开](http://www.movie.hkepx.cn/movie/1557680.htm)
+- [国务院办公厅称要「有效减缓人工智能应用就业替代影响」，释放出什么信号？可能带来哪些实际影响？](http://www.movie.hkepx.cn/movie/5183784.htm)
+- [乌称约950万公民流落海外](http://www.movie.hkepx.cn/xiju/8111897.htm)
+- [苏州市委书记范波会见谷爱凌](http://www.play.hengshemaoyi.cn/kongbu/4378701.htm)
+- [黄友政0比3张本智和](http://www.daogukj.com/7904792)
+- [青海玉树州杂多县发生5.3级地震](http://www.movie.hkepx.cn/xiju/7283893.htm)
+- [谢卫江已任湖南省政府党组书记](http://www.daogukj.com/4389315)
+- [唐登杰当选山西省委书记](http://www.movie.hkepx.cn/xiju/0722929.htm)
+- [直击台风“蔷琵”实时路径](http://www.play.hengshemaoyi.cn/kongbu/4443491.htm)
+- [嫁金钗没有人真正关心君黛](http://www.daogukj.com/4354382)
+- [父亲突发脑梗儿子用AI抢出救命时间](http://www.daogukj.com/4226089)
+- [男明星红毯 无聊](http://www.movie.hkepx.cn/xiju/3342028.htm)
+- [挑战最快爆发引体](http://www.daogukj.com/jkvkxuzz/)
 
 </details>
 
 ## 原始来源
 
-- [肖战演唱会全场唯一舞蹈](https://s.weibo.com/weibo?q=%E8%82%96%E6%88%98%E6%BC%94%E5%94%B1%E4%BC%9A%E5%85%A8%E5%9C%BA%E5%94%AF%E4%B8%80%E8%88%9E%E8%B9%88)
+- [不减136斤不结婚，减掉还赢25万美金](https://b23.tv/BV1XZn26rE8x)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9dbb3c17a46c138cb4fc -->
+<!-- content-fingerprint: 70e4df16edba6a793da0 -->
