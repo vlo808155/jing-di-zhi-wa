@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 李雪健已无法说话
+# 国务院提出「优化家庭财税稳人口」，有哪些信息值得关注？
 
-> 来源：微博热搜 · 排名：第 17 位 · 热度：220414 · 分类：艺人 · 更新：2026-10-25T14:55:06+08:00
+> 来源：知乎热榜 · 排名：第 17 位 · 热度：103 万热度 · 分类：问答 · 更新：2026-10-25T20:17:50+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“李雪健已无法说话”位列第 17 位，公开热度指标为 220414，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“国务院提出「优化家庭财税稳人口」，有哪些信息值得关注？”位列第 17 位，公开热度指标为 103 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：【国务院常务会议：要加快建设生育友好型社会，优化面向家庭的财税、社保、住房等支持举措，努力稳定新出生人口规模】财联社10月23日电，李强主持召开国务院常务会议，会议指出，人口是经济社会发展的基础条件，要更好统筹人口与经济社会、资源环境的关系，进一步完善相关政策，持续积累和释放人口综合红利，以人口高质量发展更好支撑经济社会高质量发展。要更加突出人的全面发展，提高人口科学文化、职业技能、身心健康等水平，加快完善全民终身学习机制，广泛开展技能培训，强化教育、培训与产业发展协同联动，促进高质量充分就业。要加强区域人口发展分类指导，引导城乡人口有序流动，稳步推进基
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `艺人`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [金饰克价较一个月前跌了约100元](gao-zhan-yuan-zhu.md)
-- [陕西问界车毁人亡后，有人发现懂车帝2024年就指出问界汽车油路太靠前，碰撞后容易自燃，如何看待？](xiong-you-cheng-zhu.md)
-- [一线明星参演、高成本制作、高市早苗点名要看？热播日剧背后的认知投毒真危险！](yun-chou-wei-wo.md)
-- [这是数学还是语文](shen-mou-yuan-lv.md)
+- [200万合成玉，803颗源石，672张单抽卷，54张十连卷，我等到她](gao-zhan-yuan-zhu.md)
+- [青海玉树州发生5.6级左右地震](xiong-you-cheng-zhu.md)
+- [廖碧儿承认恋情](yun-chou-wei-wo.md)
+- [牧民镜头下羊群转场像流动生命长河](shen-mou-yuan-lv.md)
 
 ## 站内推荐
 
-- [向英雄致敬迎英雄回家](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [唐诡五六季一起拍80集](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [迪丽热巴全平台爆出圈](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [电诈分子盯上了医院](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [堺雅人遭抵制](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [御寒物资发放到村 震后安置有序推进](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
+- [西藏巴青县5.7级地震](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [如何看待S16瑞士轮第三轮抽签结果，IG vs HLE，TES vs G2，BLG vs KC？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [黄多多在VOGUE盛典完成红毯首秀，如何评价她的表现？她这算正式出圈了吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [如果给英国重来的机会，怎么才能不丢掉美洲？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [菲防长叫嚣“战争行为”恐吓中国](http://www.play.hengshemaoyi.cn/kongbu/1578357.htm)
-- [英防长呼吁民众储备应急物资](http://www.movie.hkepx.cn/xiju/7876471.htm)
-- [女儿跪地迎接抗美援朝烈士画像回家](http://www.movie.hkepx.cn/xiju/5115238.htm)
-- [178平方豪宅6个套间 每间都有马桶](http://www.movie.hkepx.cn/movie/0606742.htm)
-- [张雪在家乡刷新吉尼斯纪录](http://www.play.hengshemaoyi.cn/xiju/7807975.htm)
-- [亚锦赛女双中日争冠](http://www.movie.hkepx.cn/xiju/9954551.htm)
-- [多名女性被发色情软件都接触过同一人](http://www.movie.hkepx.cn/movie/7533960.htm)
-- [这是数学还是语文](http://www.movie.hkepx.cn/xiju/8246281.htm)
-- [跑步伤膝盖吗](http://www.play.hengshemaoyi.cn/xiju/4160683.htm)
-- [这不是科幻这是中国智造](http://www.movie.hkepx.cn/movie/4035506.htm)
-- [堺雅人遭抵制](http://www.movie.hkepx.cn/movie/7792290.htm)
-- [重点中学教师称高一开学仅一个月，其任教的每个班均有学生因心理问题休学，这是普遍现象吗？为什么会这样？](http://www.play.hengshemaoyi.cn/kongbu/1158345.htm)
-- [迪丽热巴全平台爆出圈](http://www.play.hengshemaoyi.cn/xiju/2216098.htm)
-- [人性、欲望与奇观，自驾拉斯维加斯，现实夜之城什么样？](http://www.daogukj.com/7206749)
-- [高盛：人民币将迎来5.5时代](http://www.daogukj.com/3682471)
-- [县委书记拒绝张雪为家乡打广告](http://www.play.hengshemaoyi.cn/kongbu/5760703.htm)
-- [羌塘无人区失踪一年多后，自行车意外被人发现，李聪明](http://www.play.hengshemaoyi.cn/xiju/5757022.htm)
-- [【抢先版】保姆一家躲进通风管道，偷吃偷窃想占我别墅，我假意封死通风口，用法律狠狠惩治这群坏人！](http://www.play.hengshemaoyi.cn/kongbu/7848326.htm)
-- [76 年过后，抗美援朝战争对当今中国有着怎样的意义？这场战争在历史上留下的痕迹，还在怎样影响着我们？](http://www.movie.hkepx.cn/xiju/6958589.htm)
-- [深圳水贝被挤爆](http://www.movie.hkepx.cn/movie/7310674.htm)
-- [辽宁锦州大暴雨致街道成海是谣言](http://www.play.hengshemaoyi.cn/kongbu/2440700.htm)
-- [新角色：大肥鱼](http://www.play.hengshemaoyi.cn/kongbu/6463071.htm)
-- [地震躲“生命三角”避险不靠谱](http://www.daogukj.com/uiqoxaho/)
-- [姑娘花3.8万在鹤岗买房入住后傻眼](http://www.movie.hkepx.cn/xiju/9888707.htm)
-- [二十国混战：速通复盘中土网友对线大战](http://www.movie.hkepx.cn/xiju/8080320.htm)
-- [为什么我们越来越害怕成为“嘉豪”？](http://www.play.hengshemaoyi.cn/xiju/5503009.htm)
-- [“喝大水、睡大觉、练薄肌”](http://www.play.hengshemaoyi.cn/xiju/8114286.htm)
-- [香港中环偶遇虞书欣](http://www.play.hengshemaoyi.cn/xiju/9867402.htm)
-- [江苏姑娘网购鹤岗房搬进去后傻眼](http://www.daogukj.com/5414956)
-- [全网最高记录，单局十颗非洲之心](http://www.movie.hkepx.cn/movie/5135374.htm)
-- [《纯阳真气》](http://www.movie.hkepx.cn/movie/5537104.htm)
-- [超6万件套救援物资运往灾区](http://www.daogukj.com/nlpmxiub/)
-- [国务院提出「优化家庭财税稳人口」，有哪些信息值得关注？](http://www.daogukj.com/9528136)
-- [《绝区零》先导演示丨挽昼](http://www.movie.hkepx.cn/xiju/7046583.htm)
-- [张雪：打99分留1分不要太骄傲](http://www.movie.hkepx.cn/movie/7006918.htm)
-- [国考83个职位无人报名](http://www.play.hengshemaoyi.cn/kongbu/0001475.htm)
-- [电诈分子盯上了医院](http://www.play.hengshemaoyi.cn/xiju/7201519.htm)
-- [成都蓉城为何快成“笑话”了](http://www.movie.hkepx.cn/xiju/0892442.htm)
-- [唐朝诡事录](http://www.daogukj.com/vukboudm/)
-- [经济学者任泽平公众号违规被禁止关注，背后的原因可能有哪些？](http://www.movie.hkepx.cn/movie/9956763.htm)
-- [【头文字F4】德彪~德彪~得意的彪](http://www.daogukj.com/6468305)
-- [178平房改6个套间楼下邻居崩溃](http://www.movie.hkepx.cn/xiju/5050923.htm)
-- [名片交换](http://www.play.hengshemaoyi.cn/kongbu/1188761.htm)
-- [一线明星参演、高成本制作、高市早苗点名要看？热播日剧背后的认知投毒真危险！](http://www.daogukj.com/gueipuzl/)
-- [现在的西红柿为何不好吃？](http://www.daogukj.com/0647494)
-- [“中国桂花第一村”5天收花7万斤](http://www.play.hengshemaoyi.cn/xiju/5125908.htm)
-- [薄肌级【不要笑挑战】只有10.24%的人能忍得住不笑看到最后！](http://www.movie.hkepx.cn/movie/9717231.htm)
-- [李雪健已听不见也无法说话](http://www.play.hengshemaoyi.cn/kongbu/0333129.htm)
-- [如何看待 17 岁天才少年陈广宇离开月之暗面赴美？](http://www.play.hengshemaoyi.cn/xiju/0914168.htm)
-- [日剧把日军罪行嫁接给中国人](http://www.daogukj.com/0263464)
+- [马尔芙小姐，我能请你共舞一曲吗？｜PV](http://www.play.hengshemaoyi.cn/kongbu/1578357.htm)
+- [薄肌级【不要笑挑战】只有10.24%的人能忍得住不笑看到最后！](http://www.movie.hkepx.cn/xiju/7876471.htm)
+- [你看到的博主视频和实际上的博主拍视频？烧心啊！！！哈哈哈](http://www.movie.hkepx.cn/xiju/5115238.htm)
+- [老戏骨集体飙戏 男女主像睡着了](http://www.movie.hkepx.cn/movie/0606742.htm)
+- [2026王者荣耀共创之夜](http://www.play.hengshemaoyi.cn/xiju/7807975.htm)
+- [张智霖与前女友许秋怡世纪合体](http://www.movie.hkepx.cn/xiju/9954551.htm)
+- [印度找德国入手盾构机？学者解读](http://www.movie.hkepx.cn/movie/7533960.htm)
+- [牧民镜头下羊群转场像流动生命长河](http://www.movie.hkepx.cn/xiju/8246281.htm)
+- [《话术博弈》如何优雅的套出对方的真心话？](http://www.play.hengshemaoyi.cn/xiju/4160683.htm)
+- [卫星互联网低轨28组卫星发射成功](http://www.movie.hkepx.cn/movie/4035506.htm)
+- [如果给英国重来的机会，怎么才能不丢掉美洲？](http://www.movie.hkepx.cn/movie/7792290.htm)
+- [【独家】牧神记 第106集 道剑十四篇](http://www.play.hengshemaoyi.cn/kongbu/1158345.htm)
+- [如何看待S16瑞士轮第三轮抽签结果，IG vs HLE，TES vs G2，BLG vs KC？](http://www.play.hengshemaoyi.cn/xiju/2216098.htm)
+- [今年成马极氪休息区火了](http://www.daogukj.com/7206749)
+- [名片交换](http://www.daogukj.com/3682471)
+- [再也不去理发店去洗头了](http://www.play.hengshemaoyi.cn/kongbu/5760703.htm)
+- [东部战区发布重磅海报](http://www.play.hengshemaoyi.cn/xiju/5757022.htm)
+- [肖战演唱会](http://www.play.hengshemaoyi.cn/kongbu/7848326.htm)
+- [辽宁锦州大暴雨致街道成海是谣言](http://www.movie.hkepx.cn/xiju/6958589.htm)
+- [奥巴马怒喷特朗普所为何事](http://www.movie.hkepx.cn/movie/7310674.htm)
+- [徐冬冬回应身材争议](http://www.play.hengshemaoyi.cn/kongbu/2440700.htm)
+- [金饰克价最多跌近500元](http://www.play.hengshemaoyi.cn/kongbu/6463071.htm)
+- [高启强&陈淑婷《Trouble Maker》](http://www.daogukj.com/uiqoxaho/)
+- [张雪刷新「改装摩托车在开阔水域行驶最远距离」吉尼斯世界纪录，这个难度主要在哪里？有什么样的意义？](http://www.movie.hkepx.cn/xiju/9888707.htm)
+- [杨幂神级射箭](http://www.movie.hkepx.cn/xiju/8080320.htm)
+- [女子宁波站屡遭二手烟索起诉赔2元](http://www.play.hengshemaoyi.cn/xiju/5503009.htm)
+- [县委书记拒绝张雪为家乡打广告](http://www.play.hengshemaoyi.cn/xiju/8114286.htm)
+- [烟草第一大省云南前三季度烟草工业负增长，中国烟草市场正在发生什么变化？为何烤烟卖不动了？](http://www.play.hengshemaoyi.cn/xiju/9867402.htm)
+- [张雪挑战成功后开香槟激动庆祝](http://www.daogukj.com/5414956)
+- [黄子韬怒怼黑粉](http://www.movie.hkepx.cn/movie/5135374.htm)
+- [韩国人真的好爱艾敬](http://www.movie.hkepx.cn/movie/5537104.htm)
+- [你有5分钟把一个回形针藏在家里，侦探有24小时来找，找不到就给你1万美元。你会藏在哪里？](http://www.daogukj.com/nlpmxiub/)
+- [飙涨超200% 这个百亿风口越炒越旺](http://www.daogukj.com/9528136)
+- [张雪把县委书记丢河里](http://www.movie.hkepx.cn/xiju/7046583.htm)
+- [已无法说话的李雪健仅靠表情在《长征颂歌》晚会中完成的演出为何能这么动人？](http://www.movie.hkepx.cn/movie/7006918.htm)
+- [现在的西红柿为何不好吃？](http://www.play.hengshemaoyi.cn/kongbu/0001475.htm)
+- [黄多多在VOGUE盛典完成红毯首秀，如何评价她的表现？她这算正式出圈了吗？](http://www.play.hengshemaoyi.cn/xiju/7201519.htm)
+- [史密斯先生在学说话](http://www.movie.hkepx.cn/xiju/0892442.htm)
+- [亚洲乒乓球锦标赛女单半决赛，蒯曼 2-3 不敌张本美和，无缘女单决赛，如何评价这场比赛？](http://www.daogukj.com/vukboudm/)
+- [网友给羊年春晚提建议](http://www.movie.hkepx.cn/movie/9956763.htm)
+- [比亚迪助力足球少年圆梦北京工体](http://www.daogukj.com/6468305)
+- [微软宣布全面转向原生开发并告别网页套壳，能解决 Windows11 的卡顿臃肿吗？](http://www.movie.hkepx.cn/xiju/5050923.htm)
+- [南京3000万豪宅出入口在隧道里](http://www.play.hengshemaoyi.cn/kongbu/1188761.htm)
+- [廖碧儿承认恋情](http://www.daogukj.com/gueipuzl/)
+- [西藏那曲发生5.7级地震](http://www.daogukj.com/0647494)
+- [迪丽热巴雨中衔蝶全平台爆火](http://www.play.hengshemaoyi.cn/xiju/5125908.htm)
+- [海拔4800米的生命救援](http://www.movie.hkepx.cn/movie/9717231.htm)
+- [蒯曼王艺迪夺亚锦赛女双冠军](http://www.play.hengshemaoyi.cn/kongbu/0333129.htm)
+- [《功夫女足》烂番茄0分开局](http://www.play.hengshemaoyi.cn/xiju/0914168.htm)
+- [二十国混战：速通复盘中土网友对线大战](http://www.daogukj.com/0263464)
 
 </details>
 
 ## 原始来源
 
-- [李雪健已无法说话](https://s.weibo.com/weibo?q=%E6%9D%8E%E9%9B%AA%E5%81%A5%E5%B7%B2%E6%97%A0%E6%B3%95%E8%AF%B4%E8%AF%9D)
+- [国务院提出「优化家庭财税稳人口」，有哪些信息值得关注？](https://www.zhihu.com/question/2097058448156397670)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9477f7885ad4a0aa1a5a -->
+<!-- content-fingerprint: d466362ba620a35e4c4d -->

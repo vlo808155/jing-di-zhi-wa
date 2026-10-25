@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# S16瑞士轮1-1组死亡之组出炉
+# 如何看待 17 岁天才少年陈广宇离开月之暗面赴美？
 
-> 来源：微博热搜 · 排名：第 18 位 · 热度：219162 · 分类：电竞 · 更新：2026-10-25T14:55:06+08:00
+> 来源：知乎热榜 · 排名：第 18 位 · 热度：93 万热度 · 分类：问答 · 更新：2026-10-25T20:17:50+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“S16瑞士轮1-1组死亡之组出炉”位列第 18 位，公开热度指标为 219162，榜单分类为“电竞”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待 17 岁天才少年陈广宇离开月之暗面赴美？”位列第 18 位，公开热度指标为 93 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：17岁天才少年告别Kimi，奔赴硅谷 猎云网 2026-10-16 17:34发布于猎云网官方账号 17岁天才少年告别kimi，奔赴硅谷
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `电竞`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [张水华获成都马拉松亚军](jian-wei-zhi-zhu.md)
-- [如何看待 17 岁天才少年陈广宇离开月之暗面赴美？](du-ju-hui-yan.md)
-- [人性、欲望与奇观，自驾拉斯维加斯，现实夜之城什么样？](bie-ju-jiang-xin.md)
-- [王者荣耀共创之夜节目单](qiao-duo-tian-gong.md)
+- [双人抬棺](jian-wei-zhi-zhu.md)
+- [《功夫女足》烂番茄0分开局](du-ju-hui-yan.md)
+- [今年成马极氪休息区火了](bie-ju-jiang-xin.md)
+- [俄乌曾秘密渠道试探停战？博主解读](qiao-duo-tian-gong.md)
 
 ## 站内推荐
 
-- [深圳水贝被挤爆](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [高市早苗点名要看抹黑中国日剧](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [香港中环偶遇虞书欣](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [日剧Vivant抹黑中国](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [iPhoneDuo王者荣耀黑边](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [奥巴马怒喷特朗普所为何事](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [美初创公司宣称已实现「汞变稳定黄金」，但成果尚未得到独立验证，技术原理是啥？技术可行性与商业价值如何？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [烟草第一大省云南前三季度烟草工业负增长，中国烟草市场正在发生什么变化？为何烤烟卖不动了？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [美国公布新一批 UFO 文件，其中一飞行物可无声悬停、3 秒飞出 2.4 公里，还有哪些信息值得关注？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [《西游记》中如来佛祖为什么要推蝎子精，而蝎子精又为何胆大到敢扎佛祖？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [李雪健已无法说话](http://www.daogukj.com/4857502)
-- [为什么我们越来越害怕成为“嘉豪”？](http://www.daogukj.com/fxomsuem/)
-- [这不是科幻这是中国智造](http://www.play.hengshemaoyi.cn/xiju/4881423.htm)
-- [AI歌曲《过来人》爆火](http://www.movie.hkepx.cn/xiju/2224998.htm)
-- [超6万件套救援物资运往灾区](http://www.daogukj.com/xislksiq/)
-- [李雪健已听不见也无法说话](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
-- [暗粥野排现状](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
-- [S16 瑞士轮次日 TES 1:0 击败 AL 拿下首胜，如何评价这场比赛？](http://www.movie.hkepx.cn/xiju/3925704.htm)
-- [你有5分钟把一个回形针藏在家里，侦探有24小时来找，找不到就给你1万美元。你会藏在哪里？](http://www.daogukj.com/zjqbftsa/)
-- [“中国桂花第一村”5天收花7万斤](http://www.daogukj.com/odtszjmj/)
-- [江苏姑娘网购鹤岗房搬进去后傻眼](http://www.movie.hkepx.cn/movie/8285885.htm)
-- [香港中环偶遇虞书欣](http://www.movie.hkepx.cn/xiju/1770369.htm)
-- [深圳水贝被挤爆](http://www.daogukj.com/8527580)
-- [自家车经常被鸟拉屎男子莫名确诊肺炎](http://www.daogukj.com/9299314)
-- [亚洲最长的地铁环线来了](http://www.daogukj.com/5812229)
-- [日剧把日军罪行嫁接给中国人](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
-- [重点中学教师称高一开学仅一个月，其任教的每个班均有学生因心理问题休学，这是普遍现象吗？为什么会这样？](http://www.daogukj.com/5338633)
-- [蓉城球迷戴血压仪 目睹6次丢冠军点](http://www.movie.hkepx.cn/xiju/7272064.htm)
-- [张水华获成都马拉松亚军](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
-- [经济学者任泽平公众号违规被禁止关注，背后的原因可能有哪些？](http://www.daogukj.com/3351222)
-- [奶爸带双胞胎半年 前后判若两人](http://www.play.hengshemaoyi.cn/xiju/0501282.htm)
-- [陕西问界车毁人亡后，有人发现懂车帝2024年就指出问界汽车油路太靠前，碰撞后容易自燃，如何看待？](http://www.movie.hkepx.cn/movie/7142641.htm)
-- [日剧Vivant抹黑中国](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
-- [美初创公司宣称已实现「汞变稳定黄金」，但成果尚未得到独立验证，技术原理是啥？技术可行性与商业价值如何？](http://www.movie.hkepx.cn/xiju/5072930.htm)
-- [堺雅人遭抵制](http://www.daogukj.com/mkxvsuhn/)
-- [“喝大水、睡大觉、练薄肌”](http://www.daogukj.com/9044973)
-- [新角色：大肥鱼](http://www.daogukj.com/6197852)
-- [【独家】牧神记 第106集 道剑十四篇](http://www.daogukj.com/ryrqoiii/)
-- [女生拒绝表白后照片被发色情软件](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
-- [全网最高记录，单局十颗非洲之心](http://www.play.hengshemaoyi.cn/kongbu/7063878.htm)
-- [多名女性被发色情软件都接触过同一人](http://www.movie.hkepx.cn/movie/2552102.htm)
-- [名片交换](http://www.movie.hkepx.cn/xiju/2129564.htm)
-- [央视：美军选特殊时期挑衅已劣迹斑斑](http://www.daogukj.com/1731517)
-- [稻城亚丁一游客疑高反失控冲下山坡](http://www.daogukj.com/0178251)
-- [广西一病人转院被网约车司机丢弃致死，家属索赔96万，法院一审判司机平台赔1.3万，如何从法律角度解读？](http://www.movie.hkepx.cn/movie/2491274.htm)
-- [菲防长叫嚣“战争行为”恐吓中国](http://www.daogukj.com/1710555)
-- [马尔芙小姐，我能请你共舞一曲吗？｜PV](http://www.daogukj.com/iqnxgakx/)
-- [亚锦赛女双中日争冠](http://www.daogukj.com/evhpdqcv/)
-- [薄肌级【不要笑挑战】只有10.24%的人能忍得住不笑看到最后！](http://www.movie.hkepx.cn/movie/9669872.htm)
-- [178平房改6个套间楼下邻居崩溃](http://www.play.hengshemaoyi.cn/xiju/7739320.htm)
-- [金饰克价较一个月前跌了约100元](http://www.movie.hkepx.cn/xiju/6624711.htm)
-- [迪丽热巴全平台爆出圈](http://www.movie.hkepx.cn/movie/0041132.htm)
-- [王者荣耀共创之夜节目单](http://www.movie.hkepx.cn/xiju/9486629.htm)
-- [斯里兰卡遭遇全国性断电 6 小时，太阳能发电过剩为何会导致电网崩溃？](http://www.movie.hkepx.cn/movie/9796335.htm)
-- [西藏震区小学墙体裂缝比拳头还大](http://www.daogukj.com/0823826)
-- [国务院提出「优化家庭财税稳人口」，有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
-- [向英雄致敬迎英雄回家](http://www.movie.hkepx.cn/movie/5397309.htm)
-- [76 年过后，抗美援朝战争对当今中国有着怎样的意义？这场战争在历史上留下的痕迹，还在怎样影响着我们？](http://www.daogukj.com/0899815)
-- [2025年出生人口男孩多于女孩](http://www.play.hengshemaoyi.cn/xiju/2828553.htm)
-- [毛不易婚礼发言引网友争议](http://www.daogukj.com/cachqmkl/)
+- [国务院提出「优化家庭财税稳人口」，有哪些信息值得关注？](http://www.daogukj.com/4857502)
+- [女子宁波站屡遭二手烟索起诉赔2元](http://www.daogukj.com/fxomsuem/)
+- [卫星互联网低轨28组卫星发射成功](http://www.play.hengshemaoyi.cn/xiju/4881423.htm)
+- [姑娘花3.8万在鹤岗买房入住后傻眼](http://www.movie.hkepx.cn/xiju/2224998.htm)
+- [你有5分钟把一个回形针藏在家里，侦探有24小时来找，找不到就给你1万美元。你会藏在哪里？](http://www.daogukj.com/xislksiq/)
+- [蒯曼王艺迪夺亚锦赛女双冠军](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
+- [迪丽热巴带动蝴蝶经济](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
+- [婚礼录像迎来了那位最想看它的观众](http://www.movie.hkepx.cn/xiju/3925704.htm)
+- [《一把长椅卡俩头》](http://www.daogukj.com/zjqbftsa/)
+- [迪丽热巴雨中衔蝶全平台爆火](http://www.daogukj.com/odtszjmj/)
+- [张雪挑战成功后开香槟激动庆祝](http://www.movie.hkepx.cn/movie/8285885.htm)
+- [烟草第一大省云南前三季度烟草工业负增长，中国烟草市场正在发生什么变化？为何烤烟卖不动了？](http://www.movie.hkepx.cn/xiju/1770369.htm)
+- [奥巴马怒喷特朗普所为何事](http://www.daogukj.com/8527580)
+- [县委书记回应麻阳红糖断货](http://www.daogukj.com/9299314)
+- [媒体评李雪健的无声台词](http://www.daogukj.com/5812229)
+- [二十国混战：速通复盘中土网友对线大战](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
+- [【独家】牧神记 第106集 道剑十四篇](http://www.daogukj.com/5338633)
+- [黑龙江一企业门前送粮车排队超5公里](http://www.movie.hkepx.cn/xiju/7272064.htm)
+- [双人抬棺](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
+- [网友给羊年春晚提建议](http://www.daogukj.com/3351222)
+- [地震躲“生命三角”避险不靠谱](http://www.play.hengshemaoyi.cn/xiju/0501282.htm)
+- [青海玉树州发生5.6级左右地震](http://www.movie.hkepx.cn/movie/7142641.htm)
+- [美国公布新一批 UFO 文件，其中一飞行物可无声悬停、3 秒飞出 2.4 公里，还有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
+- [《鸣潮》世界观PV | 超验TRANSCENDO](http://www.movie.hkepx.cn/xiju/5072930.htm)
+- [如果给英国重来的机会，怎么才能不丢掉美洲？](http://www.daogukj.com/mkxvsuhn/)
+- [县委书记拒绝张雪为家乡打广告](http://www.daogukj.com/9044973)
+- [金饰克价最多跌近500元](http://www.daogukj.com/6197852)
+- [31省份去年平均工资出炉](http://www.daogukj.com/ryrqoiii/)
+- [【抢先看】《想拿同事当冤大头，当场翻车》｜我宣布这是2026最解气职场爽剧！同事豪请全组中秋宴花八万六，偷偷刷我的会员卡买单，密码输错当场社死！](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
+- [黄子韬怒怼黑粉](http://www.play.hengshemaoyi.cn/kongbu/7063878.htm)
+- [印度找德国入手盾构机？学者解读](http://www.movie.hkepx.cn/movie/2552102.htm)
+- [南京3000万豪宅出入口在隧道里](http://www.movie.hkepx.cn/xiju/2129564.htm)
+- [人造黄金会不会击穿金价](http://www.daogukj.com/1731517)
+- [人性、欲望与奇观，自驾拉斯维加斯，现实夜之城什么样？](http://www.daogukj.com/0178251)
+- [恭喜Asuka荣获本届歌手争霸赛歌王称号！！【bilibili次元干杯】](http://www.movie.hkepx.cn/movie/2491274.htm)
+- [马尔芙小姐，我能请你共舞一曲吗？｜PV](http://www.daogukj.com/1710555)
+- [魏娆陆濯甘之如饴吻](http://www.daogukj.com/iqnxgakx/)
+- [张智霖与前女友许秋怡世纪合体](http://www.daogukj.com/evhpdqcv/)
+- [海拔4800米的生命救援](http://www.movie.hkepx.cn/movie/9669872.htm)
+- [微软宣布全面转向原生开发并告别网页套壳，能解决 Windows11 的卡顿臃肿吗？](http://www.play.hengshemaoyi.cn/xiju/7739320.htm)
+- [200万合成玉，803颗源石，672张单抽卷，54张十连卷，我等到她](http://www.movie.hkepx.cn/xiju/6624711.htm)
+- [如何看待S16瑞士轮第三轮抽签结果，IG vs HLE，TES vs G2，BLG vs KC？](http://www.movie.hkepx.cn/movie/0041132.htm)
+- [俄乌曾秘密渠道试探停战？博主解读](http://www.movie.hkepx.cn/xiju/9486629.htm)
+- [为什么我们越来越害怕成为“嘉豪”？](http://www.movie.hkepx.cn/movie/9796335.htm)
+- [我花了3个月！把MC爆改成别的游戏！！](http://www.daogukj.com/0823826)
+- [飙涨超200% 这个百亿风口越炒越旺](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
+- [御寒物资发放到村 震后安置有序推进](http://www.movie.hkepx.cn/movie/5397309.htm)
+- [辽宁锦州大暴雨致街道成海是谣言](http://www.daogukj.com/0899815)
+- [为什么恋综这么多高颜值精英、富二代、留学生，但是他们在恋综呈现出的生活依旧很无聊?](http://www.play.hengshemaoyi.cn/xiju/2828553.htm)
+- [夫妻花67.3万买劳力士却不挑选不试戴，店员果断报警，最终证实夫妻两人遭遇诈骗，这背后有着怎样的骗局？](http://www.daogukj.com/cachqmkl/)
 
 </details>
 
 ## 原始来源
 
-- [S16瑞士轮1-1组死亡之组出炉](https://s.weibo.com/weibo?q=S16%E7%91%9E%E5%A3%AB%E8%BD%AE1-1%E7%BB%84%E6%AD%BB%E4%BA%A1%E4%B9%8B%E7%BB%84%E5%87%BA%E7%82%89)
+- [如何看待 17 岁天才少年陈广宇离开月之暗面赴美？](https://www.zhihu.com/question/2094503900531405705)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: efcfc228bfbb5bdb5bc1 -->
+<!-- content-fingerprint: 84d008327ae74d853178 -->
