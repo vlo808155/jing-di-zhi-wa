@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 如何看待 Kimi K3.1 Pro 开源版刻意削弱网安能力？
+# 杨幂拉弓像从游戏里走出来
 
-> 来源：知乎热榜 · 排名：第 20 位 · 热度：84 万热度 · 分类：问答 · 更新：2026-10-26T07:41:29+08:00
+> 来源：百度热搜 · 排名：第 20 位 · 热度：5892489 · 更新：2026-10-26T09:46:48+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何看待 Kimi K3.1 Pro 开源版刻意削弱网安能力？”位列第 20 位，公开热度指标为 84 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“杨幂拉弓像从游戏里走出来”位列第 20 位，公开热度指标为 5892489。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：月之暗面近日发布 Kimi K3.1 Pro，并计划于 11 月 4 日前开放模型权重。 根据官方技术博客，为降低开源模型的网络攻防能力，研发团队在中期训练阶段过滤了网络攻防相关数据，并在强化学习阶段移除了网络攻防任务，保留通用编程任务。 官方公布的内部测试数据显示，在漏洞发现与利用基准 xdev-bench-hard 上，未经削弱的模型 pass@3 为90.5%，最终版本为81.0%，下降9.5 个百分点。 月之暗面还在技术博客中将不开放权重发布处于全球网络攻防能力前沿的模型列为其开源原则之一。 官方技术博客：https://www.kimi.ai/
+来源公开摘要显示：近日，杨幂身穿蓝紫色立体刺绣短裙现身王者荣耀共创之夜，其拉弓瞬间被赞像游戏里走出来的精灵，造型又冷又仙，肩颈线优越，整体状态十分惊艳，引发网友感叹“完全被射中了”。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [【头文字F4】德彪~德彪~得意的彪](sheng-dong-huo-po.md)
-- [杨幂拉弓像从游戏里走出来](xu-xu-ru-sheng.md)
-- [不上班后发现上海才是最宜居的城市](huo-ling-huo-xian.md)
-- [iPhone Duo开售2天就跌破官方首发价](you-sheng-you-se.md)
+- [肖战演唱会伴手礼是什么水平](sheng-dong-huo-po.md)
+- [国乒获奖组委会错放日本国旗](xu-xu-ru-sheng.md)
+- [如何看待小鹏副总裁称「老登」不指向用户，被喊「老登」的高管在内部反复表扬，该员工将继续站在发布会上？](huo-ling-huo-xian.md)
+- [恭喜Asuka荣获本届歌手争霸赛歌王称号！！【bilibili次元干杯】](you-sheng-you-se.md)
 
 ## 站内推荐
 
-- [高启强&陈淑婷《Trouble Maker》](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [广东人最爱的不锈钢闯进了时尚圈](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [卢宁本场5次扑救2次解围](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [国考83个职位无人报名](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [张雪刷新「改装摩托车在开阔水域行驶最远距离」吉尼斯世界纪录，这个难度主要在哪里？有什么样的意义？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [美国客户一口气在广州买200套房](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
+- [AI生成视频已经能逃过人脸识别系统](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [人民日报刊文驳斥“台湾地位未定论”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [《罗德岛学院》——早八！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [凌晨一点突袭大米庄园！竟然见证了TES创造奇迹...](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [U17女足世界杯中国队力克美国队](http://www.play.hengshemaoyi.cn/xiju/5042626.htm)
-- [皇马绝杀巴萨](http://www.play.hengshemaoyi.cn/xiju/7956106.htm)
-- [国家水网到底有多硬核](http://www.movie.hkepx.cn/movie/4841456.htm)
-- [如何看待周星驰《功夫女足》在烂番茄开分 0 分？](http://www.movie.hkepx.cn/xiju/7247523.htm)
-- [姆巴佩双响 皇马终结巴萨9连胜](http://www.movie.hkepx.cn/movie/5948248.htm)
-- [一条匿名差评 胖哥俩咋追踪到人的](http://www.daogukj.com/jeqkpawe/)
-- [被一株三角梅燃到了](http://www.daogukj.com/4687345)
-- [日本人吃自助不好意思多要跟我外国人有什么关系？读鸡毛空气啊，我踏麻吃吃吃！](http://www.daogukj.com/vpnhlcyn/)
-- [“23:59:60”今后将不再出现](http://www.movie.hkepx.cn/movie/1315163.htm)
-- [S16瑞士轮G2 0:1 TES，如何评价这场比赛？](http://www.daogukj.com/rwppwnza/)
-- [「赐死七万精锐铁骑」、「送太子和亲」、「冻死兵部尚书」，古偶为什么总是出现逆天剧情？](http://www.play.hengshemaoyi.cn/kongbu/1523322.htm)
-- [黄子韬我结婚生子碍你事了吗](http://www.daogukj.com/2194242)
-- [院士：主动是健康最可靠的路径](http://www.play.hengshemaoyi.cn/xiju/4017132.htm)
-- [姆巴佩绝杀巴萨](http://www.movie.hkepx.cn/xiju/3408542.htm)
-- [拼多多的商业壁垒（护城河）是什么？](http://www.daogukj.com/awgjlldl/)
-- [江苏姑娘花3.8万网购鹤岗房，入住后屋顶漏水正起诉解约，问题出在哪？鹤岗热潮至今，人们还愿意留下来吗？](http://www.play.hengshemaoyi.cn/xiju/6207562.htm)
-- [高启强&陈淑婷《Trouble Maker》](http://www.daogukj.com/mrofapbq/)
-- [恭喜Asuka荣获本届歌手争霸赛歌王称号！！【bilibili次元干杯】](http://www.play.hengshemaoyi.cn/kongbu/5453073.htm)
-- [毛不易如何公关才能应对这次的「婚礼致辞」事件？](http://www.play.hengshemaoyi.cn/xiju/6087046.htm)
-- [《罗德岛学院》——早八！](http://www.movie.hkepx.cn/movie/8965197.htm)
-- [湖人vs爵士](http://www.play.hengshemaoyi.cn/kongbu/7748359.htm)
-- [张智霖与前女友许秋怡世纪合体](http://www.movie.hkepx.cn/xiju/0862966.htm)
-- [如何看待夫妻携 242 枚商周至民国时期钱币出国，想送给国外定居子女，被海关查扣？](http://www.play.hengshemaoyi.cn/kongbu/9726074.htm)
-- [张雪刷新「改装摩托车在开阔水域行驶最远距离」吉尼斯世界纪录，这个难度主要在哪里？有什么样的意义？](http://www.movie.hkepx.cn/movie/4830470.htm)
-- [杨幂拉弓像从游戏里走出来](http://www.play.hengshemaoyi.cn/xiju/3660611.htm)
-- [名片交换](http://www.daogukj.com/7984737)
-- [热播日剧把中国人拍成施暴者，设计中方人员对日本情报人员切指、刺穿腹部情节，为何娱乐化包装的敌意更危险？](http://www.movie.hkepx.cn/movie/5738447.htm)
-- [穆里尼奥再现滑跪挥拳庆祝](http://www.daogukj.com/cjltxhnp/)
-- [如何看待小鹏副总裁称「老登」不指向用户，被喊「老登」的高管在内部反复表扬，该员工将继续站在发布会上？](http://www.play.hengshemaoyi.cn/kongbu/7175788.htm)
-- [这部离谱日剧为谁招魂](http://www.movie.hkepx.cn/movie/4124367.htm)
-- [双人抬棺](http://www.play.hengshemaoyi.cn/xiju/7951635.htm)
-- [369 首胜赛后采访称「希望 ZUIAN 签证抓紧办，速速来美国帮我」对此你有什么想说的？](http://www.play.hengshemaoyi.cn/xiju/9311263.htm)
-- [杨幂给林俊杰伴舞](http://www.daogukj.com/qhynwuoo/)
-- [大家用 WorkBuddy 都用来干啥？](http://www.play.hengshemaoyi.cn/xiju/2836720.htm)
-- [姑娘花3.8万在鹤岗买房入住后傻眼](http://www.daogukj.com/0046089)
-- [中国90%的人都听过的童年阴影BGM！20年后我终于扒出了它的真身……SCARSONG终极溯源！【互联网大冒险】](http://www.play.hengshemaoyi.cn/kongbu/6160337.htm)
-- [广东人最爱的不锈钢闯进了时尚圈](http://www.play.hengshemaoyi.cn/kongbu/7581667.htm)
-- [乒乓球亚锦赛女单决赛，陈熠 3-0 张本美和，夺得冠军，如何评价这场比赛？](http://www.movie.hkepx.cn/movie/1557680.htm)
-- [人造黄金会不会击穿金价](http://www.movie.hkepx.cn/movie/5183784.htm)
-- [吴站长携天津站男团激情演唱《Uptown Funk》](http://www.movie.hkepx.cn/xiju/8111897.htm)
-- [人均48杯 冰杯卖得比咖啡还疯](http://www.play.hengshemaoyi.cn/kongbu/4378701.htm)
-- [国乒获奖组委会错放日本国旗](http://www.daogukj.com/7904792)
-- [美国UFO文件披露神秘“黑三角”](http://www.movie.hkepx.cn/xiju/7283893.htm)
-- [泽连斯基：绝不接受放弃25%领土提议](http://www.daogukj.com/4389315)
-- [国考83个职位无人报名](http://www.movie.hkepx.cn/xiju/0722929.htm)
-- [如何看待张雪机车成功挑战摩托车水上漂40公里吉尼斯世界纪录？这对硬件和技术有怎样的要求？](http://www.play.hengshemaoyi.cn/kongbu/4443491.htm)
-- [被年轻人抛弃的农家乐杀回来了](http://www.daogukj.com/4354382)
-- [林俊杰杨幂 茉莉雨](http://www.daogukj.com/4226089)
-- [地震躲“生命三角”避险不靠谱](http://www.movie.hkepx.cn/xiju/3342028.htm)
-- [曼联0-3伯恩茅斯](http://www.daogukj.com/jkvkxuzz/)
+- [如何看待一位临终者把“亲眼看到《流浪地球3》”作为心愿这一新闻？该新闻为何引发关注？](http://www.play.hengshemaoyi.cn/xiju/5042626.htm)
+- [一觉醒来LPL全赢了](http://www.play.hengshemaoyi.cn/xiju/7956106.htm)
+- [76年了，致敬最可爱的他们](http://www.movie.hkepx.cn/movie/4841456.htm)
+- [吴站长携天津站男团激情演唱《Uptown Funk》](http://www.movie.hkepx.cn/xiju/7247523.htm)
+- [【2026全球总决赛】10月26日 TES vs G2](http://www.movie.hkepx.cn/movie/5948248.htm)
+- [住房公积金更好用了](http://www.daogukj.com/jeqkpawe/)
+- [S16瑞士轮G2 0:1 TES，如何评价这场比赛？](http://www.daogukj.com/4687345)
+- [金牌闪耀赛场人生不惧残缺](http://www.daogukj.com/vpnhlcyn/)
+- [愚蠢鬼](http://www.movie.hkepx.cn/movie/1315163.htm)
+- [马尔芙小姐，我能请你共舞一曲吗？｜PV](http://www.daogukj.com/rwppwnza/)
+- [浙江宣传：AI短剧真的“降智”吗](http://www.play.hengshemaoyi.cn/kongbu/1523322.htm)
+- [和胡彦斌分手后状态反差](http://www.daogukj.com/2194242)
+- [美俄乌又准备谈判了，但泽圣还在秀操作](http://www.play.hengshemaoyi.cn/xiju/4017132.htm)
+- [顾客理发时突发疾病死亡，店员施救反被索赔46万，法院一二审均驳回，是否合理？如何理解家属的追责行为？](http://www.movie.hkepx.cn/xiju/3408542.htm)
+- [七天三场大选：决定世界走向的疯狂选举周大幕拉开](http://www.daogukj.com/awgjlldl/)
+- [张麻子《鹅城FUNK》](http://www.play.hengshemaoyi.cn/xiju/6207562.htm)
+- [美国客户一口气在广州买200套房](http://www.daogukj.com/mrofapbq/)
+- [iG战胜HLE](http://www.play.hengshemaoyi.cn/kongbu/5453073.htm)
+- [小区近300户玻璃自爆 物业：过质保期](http://www.play.hengshemaoyi.cn/xiju/6087046.htm)
+- [大S二十年前分享的西太后穿搭](http://www.movie.hkepx.cn/movie/8965197.htm)
+- [如何看待 Kimi K3.1 Pro 开源版刻意削弱网安能力？](http://www.play.hengshemaoyi.cn/kongbu/7748359.htm)
+- [邓超登台演唱主打一个放飞自我](http://www.movie.hkepx.cn/xiju/0862966.htm)
+- [北京人为什么不把北京烤鸭的秘方教给全国各地的人，好让全国的人都能吃到正宗的北京烤鸭？](http://www.play.hengshemaoyi.cn/kongbu/9726074.htm)
+- [凌晨一点突袭大米庄园！竟然见证了TES创造奇迹...](http://www.movie.hkepx.cn/movie/4830470.htm)
+- [国乒获奖组委会错放日本国旗](http://www.play.hengshemaoyi.cn/xiju/3660611.htm)
+- [双人抬棺](http://www.daogukj.com/7984737)
+- [土豆革命：为什么改变世界的，偏偏是一颗土豆？](http://www.movie.hkepx.cn/movie/5738447.htm)
+- [如何看待夫妻携 242 枚商周至民国时期钱币出国，想送给国外定居子女，被海关查扣？](http://www.daogukj.com/cjltxhnp/)
+- [住房支持生育还有几张牌](http://www.play.hengshemaoyi.cn/kongbu/7175788.htm)
+- [长期过量吃蔬菜有何危害](http://www.movie.hkepx.cn/movie/4124367.htm)
+- [二十届五中全会今起在北京召开](http://www.play.hengshemaoyi.cn/xiju/7951635.htm)
+- [国家水网到底有多硬核](http://www.play.hengshemaoyi.cn/xiju/9311263.htm)
+- [二十届五中全会今起至29日召开](http://www.daogukj.com/qhynwuoo/)
+- [巴西总统卢拉赢得连任](http://www.play.hengshemaoyi.cn/xiju/2836720.htm)
+- [江苏姑娘花3.8万网购鹤岗房，入住后屋顶漏水正起诉解约，问题出在哪？鹤岗热潮至今，人们还愿意留下来吗？](http://www.daogukj.com/0046089)
+- [金球奖](http://www.play.hengshemaoyi.cn/kongbu/6160337.htm)
+- [AI生成视频已经能逃过人脸识别系统](http://www.play.hengshemaoyi.cn/kongbu/7581667.htm)
+- [A股开盘 创业板指低开1.43%](http://www.movie.hkepx.cn/movie/1557680.htm)
+- [我国家庭规模持续缩小](http://www.movie.hkepx.cn/movie/5183784.htm)
+- [起猛了 爬泰山被机器人超过去了](http://www.movie.hkepx.cn/xiju/8111897.htm)
+- [皇马 2-1 终结巴萨 9 连胜，姆巴佩双响，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/4378701.htm)
+- [热播日剧把中国人拍成施暴者，设计中方人员对日本情报人员切指、刺穿腹部情节，为何娱乐化包装的敌意更危险？](http://www.daogukj.com/7904792)
+- [唐驳虎：1600万吨海底稀土救不了日本](http://www.movie.hkepx.cn/xiju/7283893.htm)
+- [武契奇承认前进党在议会选举中败选，称将以反对党身份开展政治活动，将对塞尔维亚政坛产生哪些影响？](http://www.daogukj.com/4389315)
+- [《罗德岛学院》——早八！](http://www.movie.hkepx.cn/xiju/0722929.htm)
+- [正面交锋！姆巴佩双响 拉菲尼亚破门难救主 巴萨1比2皇马](http://www.play.hengshemaoyi.cn/kongbu/4443491.htm)
+- [iG与TES双双晋级2-1组](http://www.daogukj.com/4354382)
+- [徐冬冬回应身材争议](http://www.daogukj.com/4226089)
+- [卢拉赢得连任，当选巴西新一任总统，怎样看待这一结果？](http://www.movie.hkepx.cn/xiju/3342028.htm)
+- [徐艺洋赶来安抚黄子韬的情绪](http://www.daogukj.com/jkvkxuzz/)
 
 </details>
 
 ## 原始来源
 
-- [如何看待 Kimi K3.1 Pro 开源版刻意削弱网安能力？](https://www.zhihu.com/question/2097222392464655823)
+- [杨幂拉弓像从游戏里走出来](https://www.baidu.com/s?wd=%E6%9D%A8%E5%B9%82%E6%8B%89%E5%BC%93%E5%83%8F%E4%BB%8E%E6%B8%B8%E6%88%8F%E9%87%8C%E8%B5%B0%E5%87%BA%E6%9D%A5&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4ada435b31a83e2071a5 -->
+<!-- content-fingerprint: bef2377ed89431bfe66e -->
