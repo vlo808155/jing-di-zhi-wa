@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 如何看待张雪机车成功挑战摩托车水上漂40公里吉尼斯世界纪录？这对硬件和技术有怎样的要求？
+# 巴西在美股上市的公司股价暴跌
 
-> 来源：知乎热榜 · 排名：第 18 位 · 热度：198 万热度 · 分类：问答 · 更新：2026-10-26T15:02:50+08:00
+> 来源：百度热搜 · 排名：第 18 位 · 热度：6080045 · 更新：2026-10-26T22:08:48+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何看待张雪机车成功挑战摩托车水上漂40公里吉尼斯世界纪录？这对硬件和技术有怎样的要求？”位列第 18 位，公开热度指标为 198 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“巴西在美股上市的公司股价暴跌”位列第 18 位，公开热度指标为 6080045。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：快科技10月25日消息，据新华社报道，今日张雪机车创始人张雪在家乡湖南省怀化市麻阳苗族自治县郭公坪镇小坡村，驾驶改装摩托车MX450成功刷新“改装摩托车在开阔水域行驶最远距离”吉尼斯世界纪录，最终成绩40.74公里。 吉尼斯世界纪录认证官现场监督了整个挑战过程，对行驶距离、水域条件和车辆改装规格进行了严格审核，40.74公里的成绩将被正式收录。 挑战开始前，张雪接受采访时被问及17年前挑战失败为何现在再战，张雪表示：“我们每个人，他在做一件事没有做成以后，心里多少还是有些小遗憾，然后再加上我们这段时间，MX450开发完成了，所以它的那个硬件条件是达成了，
+来源公开摘要显示：10月26日，美股三大指数集体高开。然而，巴西在美股上市公司暴跌，XP跌超52%，PAGSEGURO DIGITAL跌超33%，伊塔乌联合银行跌超23%。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [【灰石剧场400杀】摆完挂机 简单好抄](jian-wei-zhi-zhu.md)
-- [杜甫、刘邦和孙悟空的rap刷屏](du-ju-hui-yan.md)
-- [马天宇李明德时间线](bie-ju-jiang-xin.md)
-- [全球养老体系面临大考](qiao-duo-tian-gong.md)
+- [北京对单身女性有多友好](jian-wei-zhi-zhu.md)
+- [台媒：台湾需要找回光复历史](du-ju-hui-yan.md)
+- [存款一百万是啥感觉呀？](bie-ju-jiang-xin.md)
+- [【IGN】10分，《影之刃零》评测： 武侠朋克传奇](qiao-duo-tian-gong.md)
 
 ## 站内推荐
 
-- [武契奇承认败选](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [曝美认为欧尔班适合担任联合国秘书长](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [杨议被观众喊“杨老五”后怒怼骂人](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [如何看待小鹏副总裁称「老登」不指向用户，被喊「老登」的高管在内部反复表扬，该员工将继续站在发布会上？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [名片交换](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [媒体：娱乐至死的医疗真人秀该叫停了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [奥迪中国四环标和字母标正式分家](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [胖东来5名员工遭顾客打骂获补偿](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [金球奖](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [外交部：中方尊重巴西人民的选择](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [如何看待iPhone Duo才开卖一天，网上就很多内屏损坏的案例，而且在同一个位置？](http://www.daogukj.com/4857502)
-- [老干妈600人变48人意味着什么](http://www.daogukj.com/fxomsuem/)
-- [纪念红军长征胜利90周年主题长卷](http://www.play.hengshemaoyi.cn/xiju/4881423.htm)
-- [海拔4800米的生命救援](http://www.movie.hkepx.cn/xiju/2224998.htm)
-- [从人手一双到无人买单，曾经的「帆布鞋鼻祖」匡威为何卖不动了？年轻人到底想要什么？](http://www.daogukj.com/xislksiq/)
-- [苹果称很多客户取消iPhoneDuo订单](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
-- [丈夫转情人2575万情人回转2258万](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
-- [中国90%的人都听过的童年阴影BGM！20年后我终于扒出了它的真身……SCARSONG终极溯源！【互联网大冒险】](http://www.movie.hkepx.cn/xiju/3925704.htm)
-- [双人抬棺](http://www.daogukj.com/zjqbftsa/)
-- [别杀我我是浙江人](http://www.daogukj.com/odtszjmj/)
-- [iPhone Duo专属系统上线](http://www.movie.hkepx.cn/movie/8285885.htm)
-- [杨议被观众喊“杨老五”后怒怼骂人](http://www.movie.hkepx.cn/xiju/1770369.htm)
-- [武契奇承认败选](http://www.daogukj.com/8527580)
-- [卢拉用标志“小跳”庆祝连任](http://www.daogukj.com/9299314)
-- [母亲用惠民保报销十万元](http://www.daogukj.com/5812229)
-- [熬夜的年轻人开始吃中药零食养生](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
-- [【IGN】10分，《影之刃零》评测： 武侠朋克传奇](http://www.daogukj.com/5338633)
-- [学习通崩了](http://www.movie.hkepx.cn/xiju/7272064.htm)
-- [【灰石剧场400杀】摆完挂机 简单好抄](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
-- [AI不会告诉你，王虹到底证明了什么](http://www.daogukj.com/3351222)
-- [和胡彦斌分手后状态反差](http://www.play.hengshemaoyi.cn/xiju/0501282.htm)
-- [“娱乐至死”的医疗真人秀该叫停了](http://www.movie.hkepx.cn/movie/7142641.htm)
-- [如何看待小鹏副总裁称「老登」不指向用户，被喊「老登」的高管在内部反复表扬，该员工将继续站在发布会上？](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
-- [如何看待周星驰《功夫女足》在烂番茄开分 0 分？](http://www.movie.hkepx.cn/xiju/5072930.htm)
-- [一家三口食用炒鸡蛋后中毒，原因是水洗后储藏导致变质了，为什么这样保存有风险？放冰箱门格子影响有多大？](http://www.daogukj.com/mkxvsuhn/)
-- [樊振东去巴萨主场被反复质疑盘查](http://www.daogukj.com/9044973)
-- [相声演员杨议表演现场疑情绪失控](http://www.daogukj.com/6197852)
-- [腾冲辣椒厂起火 全城人都在咳嗽](http://www.daogukj.com/ryrqoiii/)
-- [31 省份去年平均工资出炉，全国城镇非私营单位平均工资 129441 元，还有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
-- [气旋撞击喜马拉雅？中央气象台回应](http://www.play.hengshemaoyi.cn/kongbu/7063878.htm)
-- [全城人都在咳嗽 原来是辣椒厂起火](http://www.movie.hkepx.cn/movie/2552102.htm)
-- [年轻人正成为红色旅游主力军](http://www.movie.hkepx.cn/xiju/2129564.htm)
-- [日本前首相福田康夫去世](http://www.daogukj.com/1731517)
-- [马尔芙小姐，我能请你共舞一曲吗？｜PV](http://www.daogukj.com/0178251)
-- [日本人吃自助不好意思多要跟我外国人有什么关系？读鸡毛空气啊，我踏麻吃吃吃！](http://www.movie.hkepx.cn/movie/2491274.htm)
-- [卢拉赢得连任，当选巴西新一任总统，怎样看待这一结果？](http://www.daogukj.com/1710555)
-- [安踏卖不动了](http://www.daogukj.com/iqnxgakx/)
-- [小哥因为网卡抢到两台苹果折叠屏](http://www.daogukj.com/evhpdqcv/)
-- [中国发展机遇持续与世界共享](http://www.movie.hkepx.cn/movie/9669872.htm)
-- [多个“首部”“首次”布局发展新方向](http://www.play.hengshemaoyi.cn/xiju/7739320.htm)
-- [美俄乌又准备谈判了，但泽圣还在秀操作](http://www.movie.hkepx.cn/xiju/6624711.htm)
-- [网传“气旋撞击喜马拉雅”说法不实](http://www.movie.hkepx.cn/movie/0041132.htm)
-- [全球养老体系面临大考](http://www.movie.hkepx.cn/xiju/9486629.htm)
-- [生活中的一些概念神](http://www.movie.hkepx.cn/movie/9796335.htm)
-- [这游戏给我恐高症治好了](http://www.daogukj.com/0823826)
-- [胖郎中将离开万岁山：就是来练把脉的](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
-- [在新征程上持之以恒推进全面从严治党](http://www.movie.hkepx.cn/movie/5397309.htm)
-- [遇到射手牢玩家，我李信只能急的原地转圈圈](http://www.daogukj.com/0899815)
-- [80岁卢拉再次当选巴西总统](http://www.play.hengshemaoyi.cn/xiju/2828553.htm)
-- [薛之谦贵阳演唱会炸出隐藏大神](http://www.daogukj.com/cachqmkl/)
+- [熬夜熬的是甲状腺寿命](http://www.daogukj.com/4857502)
+- [毛不易如何公关才能应对这次的「婚礼致辞」事件？](http://www.daogukj.com/fxomsuem/)
+- [多项重大水利工程取得重要进展](http://www.play.hengshemaoyi.cn/xiju/4881423.htm)
+- [我国风光装机量突破20亿千瓦](http://www.movie.hkepx.cn/xiju/2224998.htm)
+- [家长在大群发问“孩子回家说位置调到最后一排，是哪里得罪您了吗”，班主任直接回应，大家怎么看待这件事？](http://www.daogukj.com/xislksiq/)
+- [长鑫拒绝为苹果降价](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
+- [安徽启动2027年居民医保筹资工作](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
+- [The shy：我不是F6！](http://www.movie.hkepx.cn/xiju/3925704.htm)
+- [日本人吃自助不好意思多要跟我外国人有什么关系？读鸡毛空气啊，我踏麻吃吃吃！](http://www.daogukj.com/zjqbftsa/)
+- [许飞 你想要我命都给你](http://www.daogukj.com/odtszjmj/)
+- [王兴兴两次认错 宇树暴涨1100亿](http://www.movie.hkepx.cn/movie/8285885.htm)
+- [胖东来5名员工遭顾客打骂获补偿](http://www.movie.hkepx.cn/xiju/1770369.htm)
+- [媒体：娱乐至死的医疗真人秀该叫停了](http://www.daogukj.com/8527580)
+- [马尔芙小姐，我能请你共舞一曲吗？｜PV](http://www.daogukj.com/9299314)
+- [装X翻车全网群嘲？医学界有自己的翟天临！深扒李子祺事变](http://www.daogukj.com/5812229)
+- [徐艺洋个人品牌多次使用小海豚元素](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
+- [张麻子《鹅城FUNK》](http://www.daogukj.com/5338633)
+- [内存价格出现倒挂](http://www.movie.hkepx.cn/xiju/7272064.htm)
+- [北京对单身女性有多友好](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
+- [武契奇承认败选](http://www.daogukj.com/3351222)
+- [老干妈日销售额从万元跌至千元](http://www.play.hengshemaoyi.cn/xiju/0501282.htm)
+- [黄仁勋最新访谈透露哪些关键信息](http://www.movie.hkepx.cn/movie/7142641.htm)
+- [金球奖](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
+- [动态视频｜子弹时间再升级，70台iPhone造了个捕捉时空的球](http://www.movie.hkepx.cn/xiju/5072930.htm)
+- [县委书记被扔下水 舆论为何一片叫好](http://www.daogukj.com/mkxvsuhn/)
+- [多所高校将通过数字人民币发工资](http://www.daogukj.com/9044973)
+- [如何评价刘诗诗、李乃文主演的犯罪剧《醉梦》？](http://www.daogukj.com/6197852)
+- [千万豪宅出入口在市政隧道](http://www.daogukj.com/ryrqoiii/)
+- [即便真的有人像夏洛一样穿越回1997年抄袭了周杰伦的全部歌曲，周杰伦就无法创作出同等水平的歌曲了么？](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
+- [长期吃素能“排毒”系谣言](http://www.play.hengshemaoyi.cn/kongbu/7063878.htm)
+- [被取消演出的大衣哥回家干农活了](http://www.movie.hkepx.cn/movie/2552102.htm)
+- [“何以中国”的答案在哪里](http://www.movie.hkepx.cn/xiju/2129564.htm)
+- [被张雪扔下水县委书记拿到大结果](http://www.daogukj.com/1731517)
+- [上海迪士尼否认起火但现场浓烟弥漫](http://www.daogukj.com/0178251)
+- [万重山河皆侠骨！剑网3新50级版本MV《万重山》上线](http://www.movie.hkepx.cn/movie/2491274.htm)
+- [DeepSeek 营收只有几亿，却融资上千亿，这种模式合理吗？](http://www.daogukj.com/1710555)
+- [巴西股指期货暴跌20%触及跌停](http://www.daogukj.com/iqnxgakx/)
+- [爽！！！我们能赢LCK！仁川人2026年还在创造奇迹！IG掀翻银河战舰HLE！TES拿下G2！【1酱赛评世界赛瑞士轮day3 】](http://www.daogukj.com/evhpdqcv/)
+- [“看不见的外贸”畅跑全球](http://www.movie.hkepx.cn/movie/9669872.htm)
+- [我国风光累计装机容量突破20亿千瓦](http://www.play.hengshemaoyi.cn/xiju/7739320.htm)
+- [小城良方 看书想吐真的是病](http://www.movie.hkepx.cn/xiju/6624711.htm)
+- [气旋撞击喜马拉雅？不实](http://www.movie.hkepx.cn/movie/0041132.htm)
+- [【IGN】10分，《影之刃零》评测： 武侠朋克传奇](http://www.movie.hkepx.cn/xiju/9486629.htm)
+- [中国90%的人都听过的童年阴影BGM！20年后我终于扒出了它的真身……SCARSONG终极溯源！【互联网大冒险】](http://www.movie.hkepx.cn/movie/9796335.htm)
+- [iPhoneDuo折叠挑战后摔坏](http://www.daogukj.com/0823826)
+- [替境外电诈团伙取现 6人团伙落网](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
+- [用党的创新理论凝心铸魂](http://www.movie.hkepx.cn/movie/5397309.htm)
+- [一个“国误奇观”的故事](http://www.daogukj.com/0899815)
+- [AI短片《齐天大圣》为何能引发关注](http://www.play.hengshemaoyi.cn/xiju/2828553.htm)
+- [电动自行车行业将迎来新一轮洗牌吗](http://www.daogukj.com/cachqmkl/)
 
 </details>
 
 ## 原始来源
 
-- [如何看待张雪机车成功挑战摩托车水上漂40公里吉尼斯世界纪录？这对硬件和技术有怎样的要求？](https://www.zhihu.com/question/2097614338253234554)
+- [巴西在美股上市的公司股价暴跌](https://www.baidu.com/s?wd=%E5%B7%B4%E8%A5%BF%E5%9C%A8%E7%BE%8E%E8%82%A1%E4%B8%8A%E5%B8%82%E7%9A%84%E5%85%AC%E5%8F%B8%E8%82%A1%E4%BB%B7%E6%9A%B4%E8%B7%8C&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 55528935f3a949f9b8ee -->
+<!-- content-fingerprint: 2764d76f12250f2f59fb -->
