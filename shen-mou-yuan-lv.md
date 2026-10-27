@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 金球奖连续3年迎来新王
+# 苹果 iPad mini 8 发布，首搭 OLED 屏幕，起售价 5499 元，还有哪些亮点值得关注？
 
-> 来源：今日头条热榜 · 排名：第 18 位 · 热度：2688040 · 更新：2026-10-27T10:23:00+08:00
+> 来源：知乎热榜 · 排名：第 18 位 · 热度：100 万热度 · 分类：问答 · 更新：2026-10-27T16:07:27+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“金球奖连续3年迎来新王”位列第 18 位，公开热度指标为 2688040。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“苹果 iPad mini 8 发布，首搭 OLED 屏幕，起售价 5499 元，还有哪些亮点值得关注？”位列第 18 位，公开热度指标为 100 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：文｜吴彬 编辑｜徐青阳 北京时间10月26日，苹果发布新款iPad mini。相比上一代，这款产品的主要变化来自屏幕、芯片和机身设计：它首次采用8.5英寸OLED显示屏，搭载A20 Pro芯片，机身厚度降至5.4毫米，并具备IP67级抗水防尘能力。新机将于10月28日接受订购，11月6日正式发售。 在机身尺寸与前代相近的情况下，苹果通过收窄24%的屏幕边框，将显示面积扩大至8.5英寸。新OLED材质屏幕支持1200尼特峰值亮度、600尼特全屏亮度和200万比1的对比度，和iPad Pro等产品一样，苹果也在iPad mini上首次提供了纳米纹理玻璃选项。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [毛不易婚礼致辞事件会对他的事业造成影响吗？](ming-cha-qiu-hao.md)
-- [遇到射手牢玩家，我李信只能急的原地转圈圈](jian-wei-zhi-zhu.md)
-- [郑钦文配樊振东小作文笑点加倍](du-ju-hui-yan.md)
-- [三季报：这些经济大省“支棱”起来了](bie-ju-jiang-xin.md)
+- [万字复盘AL惨败北美16强回家！HOPE没有希望，连还手的勇气都没！](ming-cha-qiu-hao.md)
+- [徽剑疑似遇害前最后一条朋友圈曝光](jian-wei-zhi-zhu.md)
+- [徽剑遇害前曾被打听住址](du-ju-hui-yan.md)
+- [租客留277元离开房东退回1177元](bie-ju-jiang-xin.md)
 
 ## 站内推荐
 
-- [百合网创始人慕岩在朋友圈化缘要饭](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [租客不辞而别 留下字条和277块现金](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [肖战做好拿奖的准备吧](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [AL官方赛后致歉](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [The Weeknd 新歌《Hong Kong》采样王菲经典作品《季候风》，如何评价这次梦幻联动？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [央视全面叫停涉姆巴佩赛事和广告播出](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [联合国报告对内塔尼亚胡选情有何影响](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [寒武纪辟谣明年出货100万颗芯片](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [iPhone Duo被指用几天就坏了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [把帝国大厦翻译成国风音乐](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [东鹏饮料终止与姆巴佩合作](http://www.play.hengshemaoyi.cn/kongbu/7686149.htm)
-- [如何看待ETH（指数时间猜想）猜想被OpenAI证伪？](http://www.movie.hkepx.cn/movie/4579405.htm)
-- [东鹏饮料：终止与姆巴佩全部合作](http://www.movie.hkepx.cn/xiju/3169477.htm)
-- [⚡️老詹狂野单曲《LeBron Funk》乐邦放克⚡️【AI MV大赛】](http://www.movie.hkepx.cn/xiju/8635128.htm)
-- [花4毛钱让1000个蓝色大肥鱼建造故宫](http://www.play.hengshemaoyi.cn/kongbu/9338626.htm)
-- [三季报：这些经济大省“支棱”起来了](http://www.play.hengshemaoyi.cn/kongbu/1542166.htm)
-- [女子驾车过高架车顶被风筝线割破](http://www.daogukj.com/0287665)
-- [武契奇败选意味着什么](http://www.movie.hkepx.cn/movie/7272745.htm)
-- [徽剑因举报柬埔寨电诈大佬遭买凶遇害](http://www.play.hengshemaoyi.cn/xiju/6780679.htm)
-- [张雪校招称年薪10万起买车就半价](http://www.daogukj.com/4477330)
-- [郑钦文配樊振东小作文笑点加倍](http://www.daogukj.com/0861506)
-- [369 赛后采访称「本来做好了挨揍准备，结果发现大家好像也没差太多」是他天赋高还是本届上单地位有下滑？](http://www.daogukj.com/9767084)
-- [用党的创新理论凝心铸魂](http://www.movie.hkepx.cn/movie/5257500.htm)
-- [演唱会上唱《万疆》 永久免费授权](http://www.daogukj.com/gykfwffn/)
-- [在毛毯上玩一会4399吧（纯手搓版） 超大工程！](http://www.play.hengshemaoyi.cn/xiju/5052420.htm)
-- [联合国：以色列持续实施种族灭绝](http://www.daogukj.com/xdtbrdmh/)
-- [《嫁金钗》负荆请罪 腹肌请罪](http://www.daogukj.com/0346242)
-- [百合网创始人慕岩在朋友圈化缘要饭](http://www.movie.hkepx.cn/xiju/3607769.htm)
-- [物业设电子屏滚动播放业主欠缴费用，包含姓氏、楼栋等信息，这一行为合法吗？有没有更好的催收办法？](http://www.play.hengshemaoyi.cn/kongbu/0133104.htm)
-- [生命起源：四十亿年前，地球如何诞生第一个生命？](http://www.movie.hkepx.cn/xiju/7939480.htm)
-- [哈利波特发现自己继承了父母的巨额遗产后，为什么不分点给姨夫姨妈一家报答养育之恩？](http://www.movie.hkepx.cn/xiju/0345684.htm)
-- [iOS27.2](http://www.movie.hkepx.cn/xiju/4105891.htm)
-- [菲尔兹奖得主邓煜评论 AI 公司「你不能只在你蒸馏全人类的知识时支持蒸馏」，如何看待模型厂的反蒸馏？](http://www.movie.hkepx.cn/xiju/7210722.htm)
-- [定格测试回顾丨永不褪色的电子相册](http://www.movie.hkepx.cn/movie/8592737.htm)
-- [为什么大家都说圆形餐桌好，却给家里选了长桌？](http://www.play.hengshemaoyi.cn/xiju/5306630.htm)
-- [凯恩荣膺金球奖 拜仁激动到乱码](http://www.daogukj.com/1659974)
-- [The shy：我不是F6！](http://www.movie.hkepx.cn/movie/0941539.htm)
-- [毛不易婚礼致辞事件会对他的事业造成影响吗？](http://www.movie.hkepx.cn/movie/2635515.htm)
-- [租客不辞而别 留下字条和277块现金](http://www.movie.hkepx.cn/xiju/6515808.htm)
-- [小博索纳罗放弃推翻巴西大选结果](http://www.play.hengshemaoyi.cn/xiju/8816869.htm)
-- [媒体：娱乐至死的医疗真人秀该叫停了](http://www.daogukj.com/dvtugytg/)
-- [多家A股半导体龙头发声](http://www.movie.hkepx.cn/xiju/6349162.htm)
-- [“看不见的外贸”畅跑全球](http://www.daogukj.com/uiagrfmg/)
-- [接招吧，由精锐弓床弩组成的密集火力网！【帝国时代4】](http://www.movie.hkepx.cn/xiju/5108394.htm)
-- [媒体评相声演员让观众滚一边去](http://www.play.hengshemaoyi.cn/kongbu/2476719.htm)
-- [如何评价自媒体人「徽剑」已于2年前遭买凶遇害，曾公开举报电诈大佬刘忍？这起惨剧背后有哪些警示？](http://www.play.hengshemaoyi.cn/kongbu/6062295.htm)
-- [The Weeknd 新歌《Hong Kong》采样王菲经典作品《季候风》，如何评价这次梦幻联动？](http://www.play.hengshemaoyi.cn/xiju/4493695.htm)
-- [中土互联网大战，有多爆笑？](http://www.daogukj.com/tnrfqrke/)
-- [女子险遭保安性侵后酒店竟涨价](http://www.movie.hkepx.cn/xiju/4346084.htm)
-- [寒武纪辟谣明年出货100万颗芯片](http://www.movie.hkepx.cn/movie/7332141.htm)
-- [拜仁简介改为金球奖得主的俱乐部](http://www.daogukj.com/qwdjcwxs/)
-- [父亲去世母亲改嫁 小伙邀网友喝喜酒](http://www.daogukj.com/uqrxqnjs/)
-- [凯恩获金球奖](http://www.play.hengshemaoyi.cn/xiju/9086559.htm)
-- [史上最大IPO 史上最亏AI公司](http://www.play.hengshemaoyi.cn/xiju/0582780.htm)
-- [内存市场出现局部价格倒挂，渠道商面临库存压力选择降价清库存，普通消费者现在适合入手吗？](http://www.movie.hkepx.cn/xiju/5890662.htm)
-- [一个“国误奇观”的故事](http://www.movie.hkepx.cn/movie/9155162.htm)
-- [iOS27.2更新汇总](http://www.movie.hkepx.cn/movie/7891312.htm)
-- [管泽元回应AL十六强](http://www.play.hengshemaoyi.cn/xiju/9382187.htm)
-- [AL官方赛后致歉](http://www.play.hengshemaoyi.cn/xiju/1231015.htm)
-- [“何以中国”的答案在哪里](http://www.daogukj.com/fpcntxir/)
+- [央视叫停涉姆巴佩赛事和广告播出](http://www.play.hengshemaoyi.cn/kongbu/7686149.htm)
+- [极危？这都快养泛滥了！！！！](http://www.movie.hkepx.cn/movie/4579405.htm)
+- [电诈头目刘忍被押解回国画面曝光](http://www.movie.hkepx.cn/xiju/3169477.htm)
+- [普通女同事的职场纠纷和爱恨情仇【卡黄盘点】](http://www.movie.hkepx.cn/xiju/8635128.htm)
+- [身上这4个部位软一点可能更长寿](http://www.play.hengshemaoyi.cn/kongbu/9338626.htm)
+- [租客留277元离开房东退回1177元](http://www.play.hengshemaoyi.cn/kongbu/1542166.htm)
+- [新娘回应参加婚礼吃了一桌外卖](http://www.daogukj.com/0287665)
+- [巴西总统卢拉赢得连任，巴西主题 ETF 大跌，巴西 ETF 华夏、巴西 ETF 易方达跌停，如何解读？](http://www.movie.hkepx.cn/movie/7272745.htm)
+- [雷军卖房了？小米首个住宅小区开售](http://www.play.hengshemaoyi.cn/xiju/6780679.htm)
+- [为什么以前老师用钢笔批改作业时，不会只用红墨水，而是要在里面滴一两滴黑墨水呢?](http://www.daogukj.com/4477330)
+- [徽剑遇害前曾被打听住址](http://www.daogukj.com/0861506)
+- [毛不易婚礼致辞事件会对他的事业造成影响吗？](http://www.daogukj.com/9767084)
+- [风清气正暖民心](http://www.movie.hkepx.cn/movie/5257500.htm)
+- [AL Hope](http://www.daogukj.com/gykfwffn/)
+- [科创50指数跌幅扩大至4%](http://www.play.hengshemaoyi.cn/xiju/5052420.htm)
+- [生命起源：四十亿年前，地球如何诞生第一个生命？](http://www.daogukj.com/xdtbrdmh/)
+- [西甲](http://www.daogukj.com/0346242)
+- [央视全面叫停涉姆巴佩赛事和广告播出](http://www.movie.hkepx.cn/xiju/3607769.htm)
+- [锐评S16瑞士轮TLAW战胜AL：一场不胜止步16强！惊天0-4！史无前例！](http://www.play.hengshemaoyi.cn/kongbu/0133104.htm)
+- [【真实锐评】AL一号种子16强：开除必须开除！这简直就是奇耻大辱 ！](http://www.movie.hkepx.cn/xiju/7939480.htm)
+- [万重山河皆侠骨！剑网3新50级版本MV《万重山》上线](http://www.movie.hkepx.cn/xiju/0345684.htm)
+- [网友称参加婚礼吃了一桌子外卖](http://www.movie.hkepx.cn/xiju/4105891.htm)
+- [持证可抵个税3600元](http://www.movie.hkepx.cn/xiju/7210722.htm)
+- [【抢先看】植物大战僵尸・超长番：从新手村到万物共生，一集封神！](http://www.movie.hkepx.cn/movie/8592737.htm)
+- [财神窦占龙 第13集 杀狼【8月国创】](http://www.play.hengshemaoyi.cn/xiju/5306630.htm)
+- [广电要求有线电视开机不得播广告](http://www.daogukj.com/1659974)
+- [参加婚礼吃了一桌子外卖](http://www.movie.hkepx.cn/movie/0941539.htm)
+- [万字复盘AL惨败北美16强回家！HOPE没有希望，连还手的勇气都没！](http://www.movie.hkepx.cn/movie/2635515.htm)
+- [联合国报告对内塔尼亚胡选情有何影响](http://www.movie.hkepx.cn/xiju/6515808.htm)
+- [苹果称很多客户取消 iPhone Duo 订单，具体是什么原因？其他购买渠道靠谱吗？](http://www.play.hengshemaoyi.cn/xiju/8816869.htm)
+- [最高法明确法官违反职责终身追责，将对司法审判带来哪些改变？](http://www.daogukj.com/dvtugytg/)
+- [乌克兰人口外流有多严重](http://www.movie.hkepx.cn/xiju/6349162.htm)
+- [把严的基调长期坚持下去](http://www.daogukj.com/uiagrfmg/)
+- [张一鸣6700亿刷新中国首富财富纪录](http://www.movie.hkepx.cn/xiju/5108394.htm)
+- [如何看待ETH（指数时间猜想）猜想被OpenAI证伪？](http://www.play.hengshemaoyi.cn/kongbu/2476719.htm)
+- [渡鸦风云记](http://www.play.hengshemaoyi.cn/kongbu/6062295.htm)
+- [把帝国大厦翻译成国风音乐](http://www.play.hengshemaoyi.cn/xiju/4493695.htm)
+- [AI短剧演技比真人还好](http://www.daogukj.com/tnrfqrke/)
+- [肖战伴手礼17斤](http://www.movie.hkepx.cn/xiju/4346084.htm)
+- [如何评价 OpenAI 宣布证明四维杨–米尔斯理论的存在性？这项结果的意义有多大？](http://www.movie.hkepx.cn/movie/7332141.htm)
+- [姆巴佩发表涉华不当言论](http://www.daogukj.com/qwdjcwxs/)
+- [A股基本面底盘愈发坚实](http://www.daogukj.com/uqrxqnjs/)
+- [OpenAI 10月26日宣布证明所有维度局部光滑猜想，一举推平调和分析四大猜想，如何理解这一事件？](http://www.play.hengshemaoyi.cn/xiju/9086559.htm)
+- [库里进8个球砍24分](http://www.play.hengshemaoyi.cn/xiju/0582780.htm)
+- [终于遇到真正实力相当的对手，变成回合制了](http://www.movie.hkepx.cn/xiju/5890662.htm)
+- [这种作业本不能给娃买](http://www.movie.hkepx.cn/movie/9155162.htm)
+- [一代相亲大佬慕岩被迫“要饭”](http://www.movie.hkepx.cn/movie/7891312.htm)
+- [中国麻将在美爆火卖400美元还得抢](http://www.play.hengshemaoyi.cn/xiju/9382187.htm)
+- [iPhone Duo被指用几天就坏了](http://www.play.hengshemaoyi.cn/xiju/1231015.htm)
+- [孩子们心中的英雄有了模样](http://www.daogukj.com/fpcntxir/)
 
 </details>
 
 ## 原始来源
 
-- [金球奖连续3年迎来新王](https://www.toutiao.com/trending/7701149095011896870/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227701149095011896870%22%2C%22hot_board_impr_id%22%3A%2220261027102258B1391D002A5A418AD5E6%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [苹果 iPad mini 8 发布，首搭 OLED 屏幕，起售价 5499 元，还有哪些亮点值得关注？](https://www.zhihu.com/question/2098169752493486112)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9b6860c517fe1ca9c6a7 -->
+<!-- content-fingerprint: f1b00dac52f1630d4b3a -->
