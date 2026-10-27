@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 如何看待六小龄童称「圣黛CP」既有意义也很有趣，但需做好正确引导？你认为文艺作品的二创需要设立底线吗？
+# 小鹏X9撞烂报废安全气囊未弹出，官方称未达气囊碰撞传感器触发条件，怎样看待这一回应？触发条件是什么？
 
-> 来源：知乎热榜 · 排名：第 19 位 · 热度：76 万热度 · 分类：问答 · 更新：2026-10-27T07:30:08+08:00
+> 来源：知乎热榜 · 排名：第 19 位 · 热度：98 万热度 · 分类：问答 · 更新：2026-10-27T10:23:00+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何看待六小龄童称「圣黛CP」既有意义也很有趣，但需做好正确引导？你认为文艺作品的二创需要设立底线吗？”位列第 19 位，公开热度指标为 76 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“小鹏X9撞烂报废安全气囊未弹出，官方称未达气囊碰撞传感器触发条件，怎样看待这一回应？触发条件是什么？”位列第 19 位，公开热度指标为 98 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：10月18日，六小龄童回应被刷50亿次的“圣黛CP”改编。他对此予以肯定，表示该创意既有意义又有趣，能吸引一代代人关注传统文化。但他强调，改编应忠于原著、慎于翻新，需做好正确引导与梳理。‌‌ 他表示对此有所了解，“昨天在报纸上看到一则介绍，圣黛CP相关内容播放量已经达到50亿次。这足以说明，一代又一代观众、读者，始终喜爱中国经典名著《西游记》《红楼梦》等作品。有人把央视86版《西游记》里的孙悟空形象，和央视版《红楼梦》中的林黛玉形象融合在一起。《红楼梦》又名《石头记》，而孙悟空正是从石头里诞生的齐天大圣。在我看来，这样的创意既有意义，也很有趣。借助这类对
+来源公开摘要显示：小鹏MPV车型因发生事故后安全气囊未弹出引发关注。 据南京晨报，10月15日，刘先生驾驶小鹏X9过程中撞上了路牙，然后车辆失控接连撞上行道树和电线杆，随后车辆发生侧翻，车头被撞稀巴烂，所幸没有发生人员伤亡。保险公司勘察后认为，这辆车毁损严重，已经没有维修的必要，建议直接报废。 “幸亏事故发生时只是车辆毁损，我们人员没有受伤，安全气囊在这种情况下都没有弹出，这也太没有安全感了。”刘先生说，他的这辆小鹏X9刚刚买了两年，当时花了接近50万买的，结果发生严重事故安全气囊都没有打开。 小鹏汽车在发给记者的邮件中回应表示：“该客户车辆10月15日发生碰撞。经后台数
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [日本人吃自助不好意思多要跟我外国人有什么关系？读鸡毛空气啊，我踏麻吃吃吃！](gui-fu-shen-gong.md)
-- [AI伪人广告正在集体“霸凌”人类](jin-shang-tian-hua.md)
-- [iPad mini](hua-long-dian-jing.md)
-- [母女被未拴绳大狗逼到墙角 警方回应](miao-bi-sheng-hua.md)
+- [⚡️老詹狂野单曲《LeBron Funk》乐邦放克⚡️【AI MV大赛】](gui-fu-shen-gong.md)
+- [史上最大IPO 史上最亏AI公司](jin-shang-tian-hua.md)
+- [富士康员工曝iPhoneDuo碎屏原因](hua-long-dian-jing.md)
+- [小博索纳罗放弃推翻巴西大选结果](miao-bi-sheng-hua.md)
 
 ## 站内推荐
 
-- [被张雪扔下水县委书记拿到大结果](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [凯恩获金球奖](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [凯恩造81球本世纪金球得主排第4](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [国企欠款上千万元称先给十万八万](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [樊振东用荒诞形容首次诺坎普之旅](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [徽剑因举报柬埔寨电诈大佬遭买凶遇害](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [东鹏饮料：终止与姆巴佩全部合作](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [交警提醒没戴头盔女子前面罚款嘞](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [iOS27.2](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [学者：中国如何面对更加分裂的巴西](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [遇到射手牢玩家，我李信只能急的原地转圈圈](http://www.movie.hkepx.cn/movie/3926125.htm)
-- [武契奇承认败选](http://www.daogukj.com/jbrqqhbh/)
-- [县委书记被扔下水没必要尬吹硬捧](http://www.daogukj.com/6283106)
-- [花4毛钱让1000个蓝色大肥鱼建造故宫](http://www.play.hengshemaoyi.cn/xiju/3501535.htm)
-- [张麻子《鹅城FUNK》](http://www.daogukj.com/tfcvjhpk/)
-- [动态视频｜子弹时间再升级，70台iPhone造了个捕捉时空的球](http://www.daogukj.com/4841868)
-- [媒体：娱乐至死的医疗真人秀该叫停了](http://www.play.hengshemaoyi.cn/kongbu/6429820.htm)
-- [数说中国外贸澎湃动能](http://www.daogukj.com/jehuxdgs/)
-- [为什么手机越卖越少越卖越贵](http://www.movie.hkepx.cn/xiju/1384580.htm)
-- [TLAW战胜AL](http://www.daogukj.com/qyeqjnqv/)
-- [马尔芙小姐，我能请你共舞一曲吗？｜PV](http://www.movie.hkepx.cn/movie/7212048.htm)
-- [家长在大群发问“孩子回家说位置调到最后一排，是哪里得罪您了吗”，班主任直接回应，大家怎么看待这件事？](http://www.movie.hkepx.cn/xiju/5780029.htm)
-- [邵永灵：卢拉阻击了“唐罗主义”](http://www.daogukj.com/efezhgld/)
+- [在毛毯上玩一会4399吧（纯手搓版） 超大工程！](http://www.movie.hkepx.cn/movie/3926125.htm)
+- [寒武纪辟谣明年出货100万颗芯片](http://www.daogukj.com/jbrqqhbh/)
+- [多家A股半导体龙头发声](http://www.daogukj.com/6283106)
+- [哈利波特发现自己继承了父母的巨额遗产后，为什么不分点给姨夫姨妈一家报答养育之恩？](http://www.play.hengshemaoyi.cn/xiju/3501535.htm)
+- [菲尔兹奖得主邓煜评论 AI 公司「你不能只在你蒸馏全人类的知识时支持蒸馏」，如何看待模型厂的反蒸馏？](http://www.daogukj.com/tfcvjhpk/)
+- [ILLIT 'You're Under Arrest' Official MV](http://www.daogukj.com/4841868)
+- [苏州一超市学习胖东来营业额过亿](http://www.play.hengshemaoyi.cn/kongbu/6429820.htm)
+- [老字号新顶流](http://www.daogukj.com/jehuxdgs/)
+- [郑钦文配樊振东小作文笑点加倍](http://www.movie.hkepx.cn/xiju/1384580.htm)
+- [租客不辞而别 留下字条和277块现金](http://www.daogukj.com/qyeqjnqv/)
+- [接招吧，由精锐弓床弩组成的密集火力网！【帝国时代4】](http://www.movie.hkepx.cn/movie/7212048.htm)
+- [S16瑞士轮第 3 轮低分淘汰赛，AL0:2TLAW，被称为LPL历史最差一号种子，如何评价这场比赛？](http://www.movie.hkepx.cn/xiju/5780029.htm)
+- [曝光缅北电诈的自媒体人已遭买凶遇害](http://www.daogukj.com/efezhgld/)
 - [中国90%的人都听过的童年阴影BGM！20年后我终于扒出了它的真身……SCARSONG终极溯源！【互联网大冒险】](http://www.play.hengshemaoyi.cn/kongbu/8328027.htm)
-- [杨贵媚金钟奖三封视后](http://www.movie.hkepx.cn/xiju/5360773.htm)
-- [红灯变绿后，为什么总有前车要愣两三秒才起步？](http://www.movie.hkepx.cn/movie/9566975.htm)
-- [金球奖前十](http://www.daogukj.com/8649041)
-- [AL止步十六强](http://www.daogukj.com/zvuykujr/)
-- [全城人都在咳嗽 原来是辣椒厂起火](http://www.daogukj.com/smataala/)
+- [女子险遭保安性侵后酒店竟涨价](http://www.movie.hkepx.cn/xiju/5360773.htm)
+- [如何评价自媒体人「徽剑」已于2年前遭买凶遇害，曾公开举报电诈大佬刘忍？这起惨剧背后有哪些警示？](http://www.movie.hkepx.cn/movie/9566975.htm)
+- [渡鸦风云记](http://www.daogukj.com/8649041)
+- [《嫁金钗》负荆请罪 腹肌请罪](http://www.daogukj.com/zvuykujr/)
+- [金球奖连续3年迎来新王](http://www.daogukj.com/smataala/)
 - [毛不易婚礼致辞事件会对他的事业造成影响吗？](http://www.daogukj.com/mzqlfhhq/)
-- [金球奖](http://www.play.hengshemaoyi.cn/kongbu/8184754.htm)
-- [日本人吃自助不好意思多要跟我外国人有什么关系？读鸡毛空气啊，我踏麻吃吃吃！](http://www.movie.hkepx.cn/movie/8042143.htm)
-- [我做了个AI捡漏神器，薅全世界的羊毛！](http://www.play.hengshemaoyi.cn/xiju/7145463.htm)
-- [越造越大越卖越贵 纯电小车变味了吗](http://www.play.hengshemaoyi.cn/kongbu/4548535.htm)
-- [三颗“本不该存在”的行星被发现](http://www.daogukj.com/0313251)
-- [气旋撞击喜马拉雅？不实](http://www.play.hengshemaoyi.cn/kongbu/0820222.htm)
+- [LPL三个队都输不过AL](http://www.play.hengshemaoyi.cn/kongbu/8184754.htm)
+- [⚡️老詹狂野单曲《LeBron Funk》乐邦放克⚡️【AI MV大赛】](http://www.movie.hkepx.cn/movie/8042143.htm)
+- [生命起源：四十亿年前，地球如何诞生第一个生命？](http://www.play.hengshemaoyi.cn/xiju/7145463.htm)
+- [百合网创始人慕岩在朋友圈化缘要饭](http://www.play.hengshemaoyi.cn/kongbu/4548535.htm)
+- [越造越大越卖越贵 纯电小车变味了吗](http://www.daogukj.com/0313251)
+- [武契奇败选意味着什么](http://www.play.hengshemaoyi.cn/kongbu/0820222.htm)
 - [我国风光累计装机容量突破20亿千瓦](http://www.daogukj.com/btolggbq/)
-- [AI伪人广告正在集体“霸凌”人类](http://www.play.hengshemaoyi.cn/xiju/2703241.htm)
-- [为什么广东那么潮湿却没养成吃辣椒祛湿的习惯？](http://www.play.hengshemaoyi.cn/xiju/1475778.htm)
+- [史上最大IPO 史上最亏AI公司](http://www.play.hengshemaoyi.cn/xiju/2703241.htm)
+- [蒋诗萌与贾玲的体型相近，都是以自黑出圈，贾玲转行当导演后，你认为她能顶替贾玲的生态位吗？](http://www.play.hengshemaoyi.cn/xiju/1475778.htm)
 - [长期吃素能“排毒”系谣言](http://www.play.hengshemaoyi.cn/xiju/4475779.htm)
-- [2026年第70届金球奖揭晓，凯恩获得最佳射手奖和金球奖，如何评价这一结果？](http://www.play.hengshemaoyi.cn/xiju/3969235.htm)
-- [如何评价呼和浩特盛乐国际机场将于 2026 年 11 月 26 日正式投入运营？](http://www.play.hengshemaoyi.cn/kongbu/1797022.htm)
-- [老公把我要走了换成出去玩儿啦](http://www.movie.hkepx.cn/xiju/9886322.htm)
-- [金球揭晓时间](http://www.play.hengshemaoyi.cn/xiju/1914744.htm)
-- [张雪校招称年薪10万起买车就半价](http://www.movie.hkepx.cn/movie/2301491.htm)
+- [江苏多所高校将用数字人民币发工资，数字人民币与银行卡发工资有啥区别？这一举措会带来哪些改变？](http://www.play.hengshemaoyi.cn/xiju/3969235.htm)
+- [The Weeknd 新歌《Hong Kong》采样王菲经典作品《季候风》，如何评价这次梦幻联动？](http://www.play.hengshemaoyi.cn/kongbu/1797022.htm)
+- [中资网贷在印度亏七十亿退场](http://www.movie.hkepx.cn/xiju/9886322.htm)
+- [凯恩荣膺金球奖 拜仁激动到乱码](http://www.play.hengshemaoyi.cn/xiju/1914744.htm)
+- [拒让张雪打广告的县委书记为何出圈](http://www.movie.hkepx.cn/movie/2301491.htm)
 - [“何以中国”的答案在哪里](http://www.play.hengshemaoyi.cn/xiju/2353249.htm)
-- [拒让张雪打广告的县委书记为何出圈](http://www.daogukj.com/fownzino/)
-- [“鸣人 其实我也没有考上中忍”（完整版）](http://www.play.hengshemaoyi.cn/xiju/3652466.htm)
-- [樊振东用荒诞形容首次诺坎普之旅](http://www.daogukj.com/7447842)
-- [被张雪扔下水县委书记拿到大结果](http://www.daogukj.com/kzpjmnze/)
-- [如何看待郑州马拉松一男子系绳带 9 岁儿童跑全马被禁赛三年？儿童跑马拉松有哪些健康风险？](http://www.play.hengshemaoyi.cn/kongbu/4160936.htm)
-- [369 赛后采访称「本来做好了挨揍准备，结果发现大家好像也没差太多」是他天赋高还是本届上单地位有下滑？](http://www.daogukj.com/5391271)
-- [国家为什么迟迟不肯挖掘秦始皇陵呢？](http://www.play.hengshemaoyi.cn/xiju/1037193.htm)
-- [Kimi致歉](http://www.daogukj.com/4166842)
-- [2个衣架轻松收纳大衣](http://www.movie.hkepx.cn/xiju/6638941.htm)
-- [「南北」奥迪正式分家，四环归一汽，AUDI 归上汽，背后出于怎样的商业考量？将带来哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/4151588.htm)
-- [T1大概率抽到LPL](http://www.daogukj.com/jguwcjlw/)
+- [媒体评相声演员让观众滚一边去](http://www.daogukj.com/fownzino/)
+- [为什么手机越卖越少越卖越贵](http://www.play.hengshemaoyi.cn/xiju/3652466.htm)
+- [学者：中国如何面对更加分裂的巴西](http://www.daogukj.com/7447842)
+- [徽剑因举报柬埔寨电诈大佬遭买凶遇害](http://www.daogukj.com/kzpjmnze/)
+- [《名侦探柯南》必然会以柯南永久性变回工藤新一为大结局吗？](http://www.play.hengshemaoyi.cn/kongbu/4160936.htm)
+- [马尔芙小姐，我能请你共舞一曲吗？｜PV](http://www.daogukj.com/5391271)
+- [如何看待ETH（指数时间猜想）猜想被OpenAI证伪？](http://www.play.hengshemaoyi.cn/xiju/1037193.htm)
+- [微软向6万名员工开放自愿离职方案](http://www.daogukj.com/4166842)
+- [iOS27.2更新汇总](http://www.movie.hkepx.cn/xiju/6638941.htm)
+- [联合国：以色列持续实施种族灭绝](http://www.play.hengshemaoyi.cn/kongbu/4151588.htm)
+- [肖战做好拿奖的准备吧](http://www.daogukj.com/jguwcjlw/)
 - [“看不见的外贸”畅跑全球](http://www.movie.hkepx.cn/xiju/6322184.htm)
-- [凯恩获2026年金球奖](http://www.play.hengshemaoyi.cn/xiju/2530472.htm)
-- [玉簟秋](http://www.daogukj.com/5202971)
+- [反诈博主徽剑被曝遇害](http://www.play.hengshemaoyi.cn/xiju/2530472.htm)
+- [三季报：这些经济大省“支棱”起来了](http://www.daogukj.com/5202971)
 
 </details>
 
 ## 原始来源
 
-- [如何看待六小龄童称「圣黛CP」既有意义也很有趣，但需做好正确引导？你认为文艺作品的二创需要设立底线吗？](https://www.zhihu.com/question/2095160220192396358)
+- [小鹏X9撞烂报废安全气囊未弹出，官方称未达气囊碰撞传感器触发条件，怎样看待这一回应？触发条件是什么？](https://www.zhihu.com/question/2097641374887702529)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9e42098dcbb55ae710ca -->
+<!-- content-fingerprint: 83ebff43ec0bb8f127cd -->
