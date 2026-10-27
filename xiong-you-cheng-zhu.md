@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 新加坡将提高退休年龄至65岁
+# 西甲
 
-> 来源：百度热搜 · 排名：第 17 位 · 热度：6187692 · 更新：2026-10-27T16:07:27+08:00
+> 来源：微博热搜 · 排名：第 18 位 · 热度：366994 · 分类：体育 · 更新：2026-10-27T22:23:24+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“新加坡将提高退休年龄至65岁”位列第 17 位，公开热度指标为 6187692。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“西甲”位列第 18 位，公开热度指标为 366994，榜单分类为“体育”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：新加坡自2029年元旦起，将法定退休年龄由64岁提高至65岁，再就业年龄则由69岁提高至70岁，以因应高龄化社会，建立年龄友善、多元的职场环境。实施时间较原定时程提早一年。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `体育`
 
 ## 相关热点
 
-- [一代相亲大佬慕岩被迫“要饭”](yun-chou-wei-wo.md)
+- [央视全面叫停涉姆巴佩赛事和广告播出](yun-chou-wei-wo.md)
 - [苹果 iPad mini 8 发布，首搭 OLED 屏幕，起售价 5499 元，还有哪些亮点值得关注？](shen-mou-yuan-lv.md)
-- [万字复盘AL惨败北美16强回家！HOPE没有希望，连还手的勇气都没！](ming-cha-qiu-hao.md)
-- [徽剑疑似遇害前最后一条朋友圈曝光](jian-wei-zhi-zhu.md)
+- [AL十六强淘汰单曲《绝望是会窒息的痛》](ming-cha-qiu-hao.md)
+- [你吃的“潮汕牛肉”可能来自宁夏](jian-wei-zhi-zhu.md)
 
 ## 站内推荐
 
-- [为什么中国人都执着于买房而不是租房？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [持证可抵个税3600元](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [参加婚礼吃了一桌子外卖](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [这种作业本不能给娃买](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [评论员：警惕美日军演三大动向](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [根本就没有这种比赛！！](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [被人买凶杀死的自媒体人徽剑【热点详解01】](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [复仇者联盟的农村生活](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [【2026全球总决赛】10月27日 TLAW vs AL](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [皇马反复碰触国人情感红线](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [光明日报：不容侮辱中国已故伟大领袖](http://www.play.hengshemaoyi.cn/kongbu/3483820.htm)
-- [联合国报告对内塔尼亚胡选情有何影响](http://www.movie.hkepx.cn/xiju/3408565.htm)
-- [一斤开心果抵十斤猪肉](http://www.play.hengshemaoyi.cn/kongbu/9358766.htm)
-- [AL Hope](http://www.movie.hkepx.cn/movie/6761076.htm)
+- [小城良方 76位医学顾问](http://www.play.hengshemaoyi.cn/kongbu/3483820.htm)
+- [红米K100提前发布](http://www.movie.hkepx.cn/xiju/3408565.htm)
+- [中国足协要求姆巴佩和皇马道歉](http://www.play.hengshemaoyi.cn/kongbu/9358766.htm)
+- [中国人不开的全地形车在美国有多挣钱](http://www.movie.hkepx.cn/movie/6761076.htm)
 - [毛不易婚礼致辞事件会对他的事业造成影响吗？](http://www.movie.hkepx.cn/movie/4354942.htm)
-- [声生不息宝岛季2首发阵容](http://www.play.hengshemaoyi.cn/kongbu/7691913.htm)
-- [生命起源：四十亿年前，地球如何诞生第一个生命？](http://www.daogukj.com/zxhxffqk/)
-- [巴西总统卢拉赢得连任，巴西主题 ETF 大跌，巴西 ETF 华夏、巴西 ETF 易方达跌停，如何解读？](http://www.play.hengshemaoyi.cn/kongbu/0581403.htm)
-- [极危？这都快养泛滥了！！！！](http://www.play.hengshemaoyi.cn/xiju/8368894.htm)
-- [S16瑞士轮第 3 轮低分淘汰赛，AL0:2TLAW，被称为LPL历史最差一号种子，如何评价这场比赛？](http://www.movie.hkepx.cn/movie/3724589.htm)
-- [AI短剧演技比真人还好](http://www.movie.hkepx.cn/movie/4073082.htm)
+- [苹果折叠屏“出师不利”](http://www.play.hengshemaoyi.cn/kongbu/7691913.htm)
+- [西甲主席及官方发布声明，为姆巴佩言论深表遗憾，向中国球迷致以诚挚的歉意，此事对西甲联赛影响有多大？](http://www.daogukj.com/zxhxffqk/)
+- [四价流感疫苗消失了？不实](http://www.play.hengshemaoyi.cn/kongbu/0581403.htm)
+- [为什么以前老师用钢笔批改作业时，不会只用红墨水，而是要在里面滴一两滴黑墨水呢?](http://www.play.hengshemaoyi.cn/xiju/8368894.htm)
+- [西甲致歉](http://www.movie.hkepx.cn/movie/3724589.htm)
+- [台风烟花：是的 我又重生回来了](http://www.movie.hkepx.cn/movie/4073082.htm)
 - [苹果 iPad mini 8 发布，首搭 OLED 屏幕，起售价 5499 元，还有哪些亮点值得关注？](http://www.movie.hkepx.cn/movie/7225991.htm)
-- [参加婚礼吃了一桌子外卖](http://www.movie.hkepx.cn/movie/5475557.htm)
-- [皇马吧声明：绝不姑息 坚守底线](http://www.play.hengshemaoyi.cn/xiju/1901702.htm)
-- [采购商的行李箱装满中国好物](http://www.daogukj.com/1487547)
-- [“买东西”为什么不叫“买南北”？为什么汉语用“东西”代替物品？](http://www.daogukj.com/sqqsfnyh/)
-- [徽剑遭买凶杀害 电诈不除绝不收兵](http://www.movie.hkepx.cn/movie/3969864.htm)
-- [为什么以前老师用钢笔批改作业时，不会只用红墨水，而是要在里面滴一两滴黑墨水呢?](http://www.daogukj.com/iqmqrbhp/)
-- [万重山河皆侠骨！剑网3新50级版本MV《万重山》上线](http://www.play.hengshemaoyi.cn/xiju/8313158.htm)
-- [中国麻将在美国爆火](http://www.movie.hkepx.cn/xiju/9816658.htm)
-- [陕视评：判决未至，定论先入教材 武大图书馆事件反思：公共出版物不能越司法“断案” （策划：李彤 任超 评论员：刁坤 摄像：姬佩瑶）](http://www.daogukj.com/3514427)
+- [复仇者联盟的农村生活](http://www.movie.hkepx.cn/movie/5475557.htm)
+- [百里守约绕后了](http://www.play.hengshemaoyi.cn/xiju/1901702.htm)
+- [秦始皇之死：真的是求长生不老，害了他吗？](http://www.daogukj.com/1487547)
+- [小米首个住宅小区开售](http://www.daogukj.com/sqqsfnyh/)
+- [万字复盘AL惨败北美16强回家！HOPE没有希望，连还手的勇气都没！](http://www.movie.hkepx.cn/movie/3969864.htm)
+- [中部六省22万亿GDP背后](http://www.daogukj.com/iqmqrbhp/)
+- [循环歌单【致童年の小曲】“所以呢，你也成为苦瓜大王了吗？”](http://www.play.hengshemaoyi.cn/xiju/8313158.htm)
+- [大体老师不是取乐玩物](http://www.movie.hkepx.cn/xiju/9816658.htm)
+- [泡泡玛特收入暴跌](http://www.daogukj.com/3514427)
 - [第9期（上）：收官高能局！阿瓦隆烧脑智斗对决【时差五小时3】](http://www.movie.hkepx.cn/movie/5821299.htm)
-- [offer8嘉宾称在澳洲已是实习医生，却不会握手术刀、缝合打结，为啥会这样？中外医学教育差异这么大吗？](http://www.movie.hkepx.cn/movie/7016997.htm)
-- [中国麻将在美爆火卖400美元还得抢](http://www.daogukj.com/klgjmmqw/)
-- [乌克兰人口外流有多严重](http://www.play.hengshemaoyi.cn/kongbu/2965446.htm)
-- [财神窦占龙 第13集 杀狼【8月国创】](http://www.daogukj.com/8554716)
-- [江苏多所高校将用数字人民币发工资，数字人民币与银行卡发工资有啥区别？这一举措会带来哪些改变？](http://www.daogukj.com/4018030)
-- [库里进8个球砍24分](http://www.play.hengshemaoyi.cn/xiju/7007818.htm)
-- [东鹏、蒙牛相继宣布终止与姆巴佩全部合作，称零容忍伤害民族感情行为，具体情况如何？将带来哪些影响？](http://www.daogukj.com/7787398)
-- [迪奥下架姆巴佩内容](http://www.play.hengshemaoyi.cn/xiju/3303937.htm)
-- [网友称参加婚礼吃了一桌子外卖](http://www.play.hengshemaoyi.cn/xiju/6811831.htm)
-- [量质齐升 中国外贸何以表现强劲](http://www.play.hengshemaoyi.cn/kongbu/5731979.htm)
-- [城管摇了摊主好了顾客笑了](http://www.play.hengshemaoyi.cn/kongbu/8531788.htm)
-- [雷军卖房了？小米首个住宅小区开售](http://www.play.hengshemaoyi.cn/xiju/3940464.htm)
-- [寒武纪辟谣明年出货100万颗芯片](http://www.play.hengshemaoyi.cn/xiju/5367021.htm)
-- [租客留277元离开房东退回1177元](http://www.movie.hkepx.cn/xiju/7619002.htm)
-- [张一鸣6700亿刷新中国首富财富纪录](http://www.play.hengshemaoyi.cn/xiju/7491703.htm)
-- [女子窃30万份国家秘密报复同事](http://www.movie.hkepx.cn/xiju/9433984.htm)
-- [评论员：警惕美日军演三大动向](http://www.play.hengshemaoyi.cn/xiju/8043846.htm)
-- [《名侦探柯南》必然会以柯南永久性变回工藤新一为大结局吗？](http://www.play.hengshemaoyi.cn/kongbu/5790640.htm)
-- [小米首个住宅小区开售](http://www.play.hengshemaoyi.cn/kongbu/2929388.htm)
-- [身上这4个部位软一点可能更长寿](http://www.play.hengshemaoyi.cn/xiju/2191121.htm)
-- [把严的基调长期坚持下去](http://www.play.hengshemaoyi.cn/kongbu/3389194.htm)
-- [A股基本面底盘愈发坚实](http://www.daogukj.com/2463480)
-- [为什么中国人都执着于买房而不是租房？](http://www.movie.hkepx.cn/xiju/2416068.htm)
-- [谷歌 CEO 称「宁可牺牲云业务利润，也要打赢前沿大模型生死战」，大模型对于谷歌有多重要？](http://www.daogukj.com/4620332)
-- [百里守约绕后了](http://www.movie.hkepx.cn/movie/5413853.htm)
-- [孩子们心中的英雄有了模样](http://www.play.hengshemaoyi.cn/kongbu/3114909.htm)
-- [姆巴佩多平台被禁言](http://www.movie.hkepx.cn/movie/3357497.htm)
-- [电动自行车灯亮度堪比汽车大灯](http://www.daogukj.com/aagwkkjr/)
+- [外交部回应姆巴佩发表不当言论](http://www.movie.hkepx.cn/movie/7016997.htm)
+- [疑似新毒株腹痛只能硬熬](http://www.daogukj.com/klgjmmqw/)
+- [极客湾](http://www.play.hengshemaoyi.cn/kongbu/2965446.htm)
+- [为什么韩国吃不起肉，却有韩式炸鸡、韩式烤肉等美食呢？](http://www.daogukj.com/8554716)
+- [《阴阳师》UR大天狗·高天铁羽CG丨飞羽凌云（CV：前野智昭）](http://www.daogukj.com/4018030)
+- [一家四口在上海地铁扶梯滚落](http://www.play.hengshemaoyi.cn/xiju/7007818.htm)
+- [旗舰手机芯片大横评：苹果高通发哥玄戒谁最强？](http://www.daogukj.com/7787398)
+- [肖战伴手礼17斤](http://www.play.hengshemaoyi.cn/xiju/3303937.htm)
+- [环球时报评姆巴佩事件](http://www.play.hengshemaoyi.cn/xiju/6811831.htm)
+- [长征中的隐蔽斗争](http://www.play.hengshemaoyi.cn/kongbu/5731979.htm)
+- [孙颖莎3比0卢茨晋级16强](http://www.play.hengshemaoyi.cn/kongbu/8531788.htm)
+- [外交部回应“姆巴佩遭中国公司解约”](http://www.play.hengshemaoyi.cn/xiju/3940464.htm)
+- [杨洋陈都灵 等风热吻你](http://www.play.hengshemaoyi.cn/xiju/5367021.htm)
+- [网红“双波”ICU昏迷24天后苏醒](http://www.movie.hkepx.cn/xiju/7619002.htm)
+- [万重山河皆侠骨！剑网3新50级版本MV《万重山》上线](http://www.play.hengshemaoyi.cn/xiju/7491703.htm)
+- [家长月花3000多元住酒店陪读](http://www.movie.hkepx.cn/xiju/9433984.htm)
+- [皇马反复碰触国人情感红线](http://www.play.hengshemaoyi.cn/xiju/8043846.htm)
+- [《影之刃零》确认包含 30 种主武器且不做完美平衡，如何看待这种设计理念？](http://www.play.hengshemaoyi.cn/kongbu/5790640.htm)
+- [央视已全面叫停涉及姆巴佩的赛事和广告播出，姆巴佩社交账号被禁言，此次风波带来的连锁反应有多大？](http://www.play.hengshemaoyi.cn/kongbu/2929388.htm)
+- [比亚迪版“劳斯莱斯”来了](http://www.play.hengshemaoyi.cn/xiju/2191121.htm)
+- [从多组硬核数据透视高质量发展成绩单](http://www.play.hengshemaoyi.cn/kongbu/3389194.htm)
+- [Cat TTG](http://www.daogukj.com/2463480)
+- [根本就没有这种比赛！！](http://www.movie.hkepx.cn/xiju/2416068.htm)
+- [打了马赛克的二维码被 AI 完整复原，原理是什么？什么样的遮挡才真的防 AI 破解？](http://www.daogukj.com/4620332)
+- [基金经理重仓AI巨亏公开致歉，称没必要低位离场，等流动性恢复，当基金经理也靠信仰持股，算不算风险信号？](http://www.movie.hkepx.cn/movie/5413853.htm)
+- [丰收时节 看稻香里的新品种](http://www.play.hengshemaoyi.cn/kongbu/3114909.htm)
+- [网友不接受姆巴佩道歉](http://www.movie.hkepx.cn/movie/3357497.htm)
+- [小城良方被指医学漏洞百出](http://www.daogukj.com/aagwkkjr/)
 
 </details>
 
 ## 原始来源
 
-- [新加坡将提高退休年龄至65岁](https://www.baidu.com/s?wd=%E6%96%B0%E5%8A%A0%E5%9D%A1%E5%B0%86%E6%8F%90%E9%AB%98%E9%80%80%E4%BC%91%E5%B9%B4%E9%BE%84%E8%87%B365%E5%B2%81&sa=fyb_news&rsv_dl=fyb_news)
+- [西甲](https://s.weibo.com/weibo?q=%E8%A5%BF%E7%94%B2)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 929e8a6859a1f9e992da -->
+<!-- content-fingerprint: 9f91e0894e89ddba94d5 -->
