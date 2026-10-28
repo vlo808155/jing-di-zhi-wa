@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 湖人不敌开拓者吞赛季首败
+# 外交部重视姆巴佩道歉或等于收到
 
-> 来源：今日头条热榜 · 排名：第 20 位 · 热度：19381259 · 分类：热门事件 · 更新：2026-10-28T16:23:49+08:00
+> 来源：微博热搜 · 排名：第 20 位 · 热度：358524 · 分类：民生新闻,体育 · 更新：2026-10-28T23:15:46+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“湖人不敌开拓者吞赛季首败”位列第 20 位，公开热度指标为 19381259，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“外交部重视姆巴佩道歉或等于收到”位列第 20 位，公开热度指标为 358524，榜单分类为“民生新闻,体育”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
+`微博热搜` `实时热搜` `热点资讯` `民生新闻,体育`
 
 ## 相关热点
 
-- [为啥日本料理的量那么感人呢？](sheng-dong-huo-po.md)
-- [《洛克王国：世界》S5赛季部分新增和优化内容，实机提前看！](xu-xu-ru-sheng.md)
-- [情侣亲密时遭遇维修工开窗](huo-ling-huo-xian.md)
-- [令人心动的offer8 停更](you-sheng-you-se.md)
+- [解放军舰艇在菲东海域集结有何深意](sheng-dong-huo-po.md)
+- [华为 PuraXView 销量超 60 万台且持续缺货，阔直屏形态会成为行业新趋势吗？](xu-xu-ru-sheng.md)
+- [疯狂十六强，启动！](huo-ling-huo-xian.md)
+- [31岁女子欠1700元被限高](you-sheng-you-se.md)
 
 ## 站内推荐
 
-- [第一个“三机场”城市要来了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [男性雄激素缺乏和腰围息息相关](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [几百万粒芝麻拼出《清明上河图》](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [男子借助AI买彩票中508万](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [皇马称姆巴佩言论仅代表个人](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [《异环》1.5版本前瞻特别节目回顾](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
+- [做了一个错误的决定： 信了贵州辣卤不辣！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [对中国34个省的刻板印象](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [万万没想到！下完雨的小塘藏着这么大的货](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [人民日报评“高校教学严禁全程PPT”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [曝华为Mate90全系支持四卡三待](http://www.play.hengshemaoyi.cn/xiju/5042626.htm)
-- [东北八大怪之大缸小缸腌酸菜](http://www.play.hengshemaoyi.cn/xiju/7956106.htm)
-- [我国工业结构向新向优向好](http://www.movie.hkepx.cn/movie/4841456.htm)
-- [民调：内塔尼亚胡阵营未获过半议席](http://www.movie.hkepx.cn/xiju/7247523.htm)
-- [DeepSeek新版模型单周调用量登顶全球首位，环比暴增801%，该模型为什么能实现登顶？意味着什么？](http://www.movie.hkepx.cn/movie/5948248.htm)
-- [将门独后](http://www.daogukj.com/jeqkpawe/)
-- [仿生人会梦见什么羊？](http://www.daogukj.com/4687345)
-- [坚持用严明的纪律管全党治全党](http://www.daogukj.com/vpnhlcyn/)
-- [邱毅：美日长蛇阵“七寸”在石垣岛](http://www.movie.hkepx.cn/movie/1315163.htm)
-- [横店和字节合作把15万个群演喂给AI](http://www.daogukj.com/rwppwnza/)
-- [红果短剧成立3年，2026年收入预测超过400亿，有望追上甚至超越全国电影院总票房，如何评价这股势头？](http://www.play.hengshemaoyi.cn/kongbu/1523322.htm)
-- [永远和你在一起](http://www.daogukj.com/2194242)
-- [华为发布会](http://www.play.hengshemaoyi.cn/xiju/4017132.htm)
-- [Shanks回应AL止步十六强](http://www.movie.hkepx.cn/xiju/3408542.htm)
-- [美国驱逐古巴驻联合国外交官](http://www.daogukj.com/awgjlldl/)
-- [于东来在英国伦敦吃胡辣汤](http://www.play.hengshemaoyi.cn/xiju/6207562.htm)
-- [第一个“三机场”城市要来了](http://www.daogukj.com/mrofapbq/)
-- [5000 名教师在体育馆观摩语文公开课，到底是教研还是表演？](http://www.play.hengshemaoyi.cn/kongbu/5453073.htm)
-- [周星驰为什么再也拍不出《功夫》《大话西游》那样的经典电影了？](http://www.play.hengshemaoyi.cn/xiju/6087046.htm)
-- [年轻人开始流行「喝大水」，喝水越多越好吗？短时间大量喝水有什么危害？如何正确饮水？](http://www.movie.hkepx.cn/movie/8965197.htm)
-- [“人人都会变老 为什么要嘲笑老登”](http://www.play.hengshemaoyi.cn/kongbu/7748359.htm)
-- [疯狂十六强，启动！](http://www.movie.hkepx.cn/xiju/0862966.htm)
-- [姆巴佩事件皇马休想蒙混过关](http://www.play.hengshemaoyi.cn/kongbu/9726074.htm)
-- [皇马称姆巴佩言论仅代表个人](http://www.movie.hkepx.cn/movie/4830470.htm)
-- [《洛克王国：世界》S5赛季部分新增和优化内容，实机提前看！](http://www.play.hengshemaoyi.cn/xiju/3660611.htm)
-- [长期吃素能“排毒”？假的](http://www.daogukj.com/7984737)
-- [多名幼童小区裸体跑动妈妈称管不住](http://www.movie.hkepx.cn/movie/5738447.htm)
-- [金价回落女子趁低买金镯金戒指](http://www.daogukj.com/cjltxhnp/)
-- [悲伤逆流成河](http://www.play.hengshemaoyi.cn/kongbu/7175788.htm)
-- [对中国34个省的刻板印象](http://www.movie.hkepx.cn/movie/4124367.htm)
-- [如何看待越来越多青年教师「付费上班」，有人完不成考核自费50万充横向经费，发论文自费找润色、报统计班？](http://www.play.hengshemaoyi.cn/xiju/7951635.htm)
-- [爸爸去哪儿 x Counting Stars](http://www.play.hengshemaoyi.cn/xiju/9311263.htm)
-- [这些“红军树”见证长征精神](http://www.daogukj.com/qhynwuoo/)
-- [【究极佐菲格斗】第五集 危险的雄狮！佐菲机器人 雷欧 泰罗 超兽黑鸽子 黑暗星人巴巴尔 登场](http://www.play.hengshemaoyi.cn/xiju/2836720.htm)
-- [江山大同首发预告](http://www.daogukj.com/0046089)
-- [特朗普为了中期大选真拼了](http://www.play.hengshemaoyi.cn/kongbu/6160337.htm)
-- [男性雄激素缺乏和腰围息息相关](http://www.play.hengshemaoyi.cn/kongbu/7581667.htm)
-- [外交部回应姆巴佩道歉，「我们重视当事人作出的道歉」，姆巴佩事件的后续走向还有哪些可能性？](http://www.movie.hkepx.cn/movie/1557680.htm)
-- [胎盘是如何照顾胎儿的-山东方言](http://www.movie.hkepx.cn/movie/5183784.htm)
-- [如何看待极客湾最新视频《旗舰手机芯片大横评》？](http://www.movie.hkepx.cn/xiju/8111897.htm)
-- [海信称与姆巴佩无商业合作](http://www.play.hengshemaoyi.cn/kongbu/4378701.htm)
-- [藏北高原上的中国速度](http://www.daogukj.com/7904792)
-- [自媒体称澳大利亚每年花费巨额从中国进口屎壳郎，这是真吗？中国的屎壳郎真的如此兢兢业业、不挑食吗？](http://www.movie.hkepx.cn/xiju/7283893.htm)
-- [法国媒体批姆巴佩团队极度短视](http://www.daogukj.com/4389315)
-- [男子借助AI买彩票中508万](http://www.movie.hkepx.cn/xiju/0722929.htm)
-- [新服务激活田野里的新质生产力](http://www.play.hengshemaoyi.cn/kongbu/4443491.htm)
-- [万万没想到！下完雨的小塘藏着这么大的货](http://www.daogukj.com/4354382)
-- [海信回应与皇马合作](http://www.daogukj.com/4226089)
-- [身家1270亿 中国新晋女首富诞生](http://www.movie.hkepx.cn/xiju/3342028.htm)
-- [姆巴佩发表涉华不当言论！全网封杀！没有中国市场，姆巴佩会失去什么？](http://www.daogukj.com/jkvkxuzz/)
+- [《信》信仰是什么](http://www.play.hengshemaoyi.cn/xiju/5042626.htm)
+- [如何评价秦朔发文《可怕的红果与中国互联网的字节时间》？](http://www.play.hengshemaoyi.cn/xiju/7956106.htm)
+- [全面从严治党为世界提供重要借鉴](http://www.movie.hkepx.cn/movie/4841456.htm)
+- [2026款理想i6售价24.98万元](http://www.movie.hkepx.cn/xiju/7247523.htm)
+- [刘延东同志遗像](http://www.movie.hkepx.cn/movie/5948248.htm)
+- [微信新功能来了：只用动嘴](http://www.daogukj.com/jeqkpawe/)
+- [S16 全球总决赛 Faker 及 T1 达成第七冠的概率有多大？](http://www.daogukj.com/4687345)
+- [奶奶的皱纹里，藏着我一生的甜与暖](http://www.daogukj.com/vpnhlcyn/)
+- [女子欠1700元被限高公开照片](http://www.movie.hkepx.cn/movie/1315163.htm)
+- [巴基斯坦对台湾地区航司关闭领空](http://www.daogukj.com/rwppwnza/)
+- [人民日报评姆巴佩翻车](http://www.play.hengshemaoyi.cn/kongbu/1523322.htm)
+- [很多年轻人「对工作的容忍度只有两年」，这反映出怎样的职场心态？](http://www.daogukj.com/2194242)
+- [男生最怕的事也莫过于此](http://www.play.hengshemaoyi.cn/xiju/4017132.htm)
+- [雷军晒照爆料新车 尾翼大到夸张](http://www.movie.hkepx.cn/xiju/3408542.htm)
+- [【捉迷躲猫王】😱太阴了躲在粪坑下面？？大哥你无敌了啊？！废弃监狱超高难度捉迷藏~！](http://www.daogukj.com/awgjlldl/)
+- [现在就出发5原班人马](http://www.play.hengshemaoyi.cn/xiju/6207562.htm)
+- [《异环》1.5版本前瞻特别节目回顾](http://www.daogukj.com/mrofapbq/)
+- [辽宁舰首次穿越菲腹地释放哪些信号](http://www.play.hengshemaoyi.cn/kongbu/5453073.htm)
+- [男子回应借助AI买彩票中508万](http://www.play.hengshemaoyi.cn/xiju/6087046.htm)
+- [NEON编舞师称无人跳对](http://www.movie.hkepx.cn/movie/8965197.htm)
+- [“一丝温脉相牵，爱藏岁岁流年”【把回忆拼好给你DJ-变速】【母子连心の小曲】](http://www.play.hengshemaoyi.cn/kongbu/7748359.htm)
+- [Anthropic 招股书写道：Claude最终形态是「数据中心里的天才之国」，如何解读这一展望？](http://www.movie.hkepx.cn/xiju/0862966.htm)
+- [祭祀用品印有高秀敏张少华 网友谴责](http://www.play.hengshemaoyi.cn/kongbu/9726074.htm)
+- [人民日报评“高校教学严禁全程PPT”](http://www.movie.hkepx.cn/movie/4830470.htm)
+- [华为 PuraXView 销量超 60 万台且持续缺货，阔直屏形态会成为行业新趋势吗？](http://www.play.hengshemaoyi.cn/xiju/3660611.htm)
+- [白小纯 青稚](http://www.daogukj.com/7984737)
+- [《玉簟秋》尺度](http://www.movie.hkepx.cn/movie/5738447.htm)
+- [刘延东遗像](http://www.daogukj.com/cjltxhnp/)
+- [离职别忘了这笔钱](http://www.play.hengshemaoyi.cn/kongbu/7175788.htm)
+- [最新研究通过指纹推断兵马俑制作或有女性和少年参与，有哪些考古学意义？是如何用指纹推断出性别和年龄的?](http://www.movie.hkepx.cn/movie/4124367.htm)
+- [算力网加速织就 八大枢纽各展所长](http://www.play.hengshemaoyi.cn/xiju/7951635.htm)
+- [西班牙高铁相撞事故已造成 64 人死亡，有中国公民受伤，初步调查显示事故系人为失误所致，具体情况如何？](http://www.play.hengshemaoyi.cn/xiju/9311263.htm)
+- [【2026王者荣耀共创之夜】晚会完整回放](http://www.daogukj.com/qhynwuoo/)
+- [小米首个住宅小区正式开售，仅面向内部员工销售，为何小米开始卖房了？未来会推出更多楼盘向大众销售吗？](http://www.play.hengshemaoyi.cn/xiju/2836720.htm)
+- [唱哭薛之谦的贵州小伙被签约](http://www.daogukj.com/0046089)
+- [自媒体称澳大利亚每年花费巨额从中国进口屎壳郎，这是真吗？中国的屎壳郎真的如此兢兢业业、不挑食吗？](http://www.play.hengshemaoyi.cn/kongbu/6160337.htm)
+- [做了一个错误的决定： 信了贵州辣卤不辣！](http://www.play.hengshemaoyi.cn/kongbu/7581667.htm)
+- [多所高校工资绕开银行卡意味着什么](http://www.movie.hkepx.cn/movie/1557680.htm)
+- [媒体呼吁「医疗真人秀叫停」，《offer 8》会被整改或停播吗？节目对医患信任的真实影响到底有多严重？](http://www.movie.hkepx.cn/movie/5183784.htm)
+- [杭州女孩东北旅游回来后吃啥都不香了](http://www.movie.hkepx.cn/xiju/8111897.htm)
+- [今年双十一 电视遥控器爆火](http://www.play.hengshemaoyi.cn/kongbu/4378701.htm)
+- [中国“智造家”加速出海](http://www.daogukj.com/7904792)
+- [总台确认收到皇马道歉函](http://www.movie.hkepx.cn/xiju/7283893.htm)
+- [为什么我感觉时间过得越来越快？](http://www.daogukj.com/4389315)
+- [万万没想到！下完雨的小塘藏着这么大的货](http://www.movie.hkepx.cn/xiju/0722929.htm)
+- [共产党员是最闪亮的名字](http://www.play.hengshemaoyi.cn/kongbu/4443491.htm)
+- [男子多次触摸女同事隐私部位被拘捕](http://www.daogukj.com/4354382)
+- [如果鸡能长到100千克重，那人是不是就有巨大的鸡翅可以吃了？](http://www.daogukj.com/4226089)
+- [“我会亲手阻止你！”](http://www.movie.hkepx.cn/xiju/3342028.htm)
+- [华为](http://www.daogukj.com/jkvkxuzz/)
 
 </details>
 
 ## 原始来源
 
-- [湖人不敌开拓者吞赛季首败](https://www.toutiao.com/trending/7701595757031198246/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%225%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227701595757031198246%22%2C%22hot_board_impr_id%22%3A%2220261028162349B02346100E23907BD961%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [外交部重视姆巴佩道歉或等于收到](https://s.weibo.com/weibo?q=%E5%A4%96%E4%BA%A4%E9%83%A8%E9%87%8D%E8%A7%86%E5%A7%86%E5%B7%B4%E4%BD%A9%E9%81%93%E6%AD%89%E6%88%96%E7%AD%89%E4%BA%8E%E6%94%B6%E5%88%B0)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 1a4d6cf502304aff75a2 -->
+<!-- content-fingerprint: 7cb9bc10964c3beb438c -->
