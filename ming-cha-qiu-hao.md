@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 科普书出现「双头虾」图片，出版社称正在下架召回，为何出现如此明显错误？科普类出版该限制 AI 配图吗？
+# 王子璇一直打断文吉儿
 
-> 来源：知乎热榜 · 排名：第 18 位 · 热度：186 万热度 · 分类：问答 · 更新：2026-10-29T13:40:02+08:00
+> 来源：微博热搜 · 排名：第 19 位 · 热度：230764 · 分类：综艺 · 更新：2026-10-29T19:47:24+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“科普书出现「双头虾」图片，出版社称正在下架召回，为何出现如此明显错误？科普类出版该限制 AI 配图吗？”位列第 18 位，公开热度指标为 186 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“王子璇一直打断文吉儿”位列第 19 位，公开热度指标为 230764，榜单分类为“综艺”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，有网友在社交平台指出，《南海海洋生物科普丛书》中有“双头虾”的错误图片，引发关注。 有读者在社交平台反映，其购入中国农业出版社出版发行的《南海海洋生物科普丛书》，丛书序言表示，本套丛书里绝大多数图片由AI绘图工具生成。但其发现丛书的绘图中出现了“双头虾”的错误图片，分别在第13册“斑节对虾”封面与内页。 读者质疑称，在以往的认知里，图文并茂的书需要大量实拍图或手绘图，AI的出现大大减少了工作量。“不是说不能用AI，但总要遵守一下基本的法则吧。这下好了，双头虾都出来了，快去申报养殖新品种吧。” 10月27日，中国农业出版社工作人员告诉南都N视频记者，
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`微博热搜` `实时热搜` `热点资讯` `综艺`
 
 ## 相关热点
 
-- [西安150元美式烤肉自助，整块肉抱着爽吃！超级过瘾！](jian-wei-zhi-zhu.md)
-- [“未来中国优秀超市不会是胖东来”](du-ju-hui-yan.md)
-- [葡萄牙队回应C罗获历史最佳金球奖](bie-ju-jiang-xin.md)
-- [郑丽文：台北选战是场不对称战争](qiao-duo-tian-gong.md)
+- [国防部回应美日夺岛军演](jian-wei-zhi-zhu.md)
+- [百家中资网贷出海印度亏损 70 亿退场，导致这一溃败的核心原因是什么？](du-ju-hui-yan.md)
+- [我是艺术家，我陪你拍这个](bie-ju-jiang-xin.md)
+- [姆巴佩翻车：你若伤害我 我定抵制你](qiao-duo-tian-gong.md)
 
 ## 站内推荐
 
-- [西班牙宣布全国哀悼3天](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [Hello Kitty深夜致歉](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [39岁中国籍老板在泰遭袭身亡](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [美媒称巴基斯坦已对中国台湾地区航空公司关闭领空，是全球首个采取该措施的国家，哪些信息值得关注？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [小天才手表封闭社交引争议，不买真会被孤立吗？如何看待这种现象？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [中国第一个「三机场」城市来了，上海为啥要建第三机场？为何落在南通？将带来哪些影响？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [如何评价AI短剧《大明,李景隆的别样人生》？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [乌干达吃掉38人的“食人魔”落网](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [最硬的经济指标 武汉合肥跑赢了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [二十届五中全会公报](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [为什么在00后眼里，90后就已经是“老登”了？](http://www.daogukj.com/4857502)
-- [青你1选手现状](http://www.daogukj.com/fxomsuem/)
-- [我国农产品全面提质路线图来了](http://www.play.hengshemaoyi.cn/xiju/4881423.htm)
-- [王者荣耀等游戏与三丽鸥联名](http://www.movie.hkepx.cn/xiju/2224998.htm)
-- [美国各界热议「要不要对中国车开放」，若放宽准入会对美本土汽车产业带来哪些冲击？](http://www.daogukj.com/xislksiq/)
-- [TheShy自认选亚恒傲慢](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
-- [宜家餐厅 消费入座](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
-- [⚡《新 三 国 FUNK》⚡](http://www.movie.hkepx.cn/xiju/3925704.htm)
-- [【小黄人与大怪兽】小黄人逐梦演艺圈！](http://www.daogukj.com/zjqbftsa/)
-- [厉娜怒吼许飞我所有的经济损失呢](http://www.daogukj.com/odtszjmj/)
-- [5万买的金镯未佩戴已亏1.3万](http://www.movie.hkepx.cn/movie/8285885.htm)
-- [39岁中国籍老板在泰遭袭身亡](http://www.movie.hkepx.cn/xiju/1770369.htm)
-- [西班牙宣布全国哀悼3天](http://www.daogukj.com/8527580)
-- [辽宁舰编队遭日方滋扰挑衅直面应对](http://www.daogukj.com/9299314)
-- [郑合惠子 跟我提结婚我肯定吓得腿软](http://www.daogukj.com/5812229)
-- [杀同学，杀朋友，杀网络喷子，英国未来女首相竟是个连环杀手？！《谜探路德维希》第二季 下](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
-- [贴脸特写，是每个野生动物摄影师的必备技能！](http://www.daogukj.com/5338633)
-- [GDP十强城市大洗牌](http://www.movie.hkepx.cn/xiju/7272064.htm)
-- [西安150元美式烤肉自助，整块肉抱着爽吃！超级过瘾！](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
-- [永远和你在一起](http://www.daogukj.com/3351222)
-- [华为制药军团不做药](http://www.play.hengshemaoyi.cn/xiju/0501282.htm)
-- [“高盐刺客”就在你的餐桌上](http://www.movie.hkepx.cn/movie/7142641.htm)
-- [美媒称巴基斯坦已对中国台湾地区航空公司关闭领空，是全球首个采取该措施的国家，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
-- [姆巴佩恐面临天文数字赔偿，分析称潜在商业损失至少1亿美元，这是怎么算出来的？他会自此失去中国市场吗？](http://www.movie.hkepx.cn/xiju/5072930.htm)
-- [皇马拒绝西甲对姆巴佩事件的帮助，有皇马高管甚至在看笑话，双方关系为何如此紧张？这场风波会加剧矛盾吗？](http://www.daogukj.com/mkxvsuhn/)
-- [你还会买三丽鸥吗](http://www.daogukj.com/9044973)
-- [乔布斯嘲讽的触屏笔记本苹果真出了](http://www.daogukj.com/6197852)
-- [姆巴佩的“天价”账单才刚刚开始](http://www.daogukj.com/ryrqoiii/)
-- [成都马拉松两名配速员赛中违规换装被取消成绩和禁赛，免费装备为何有如此吸引力让跑者「以身试法」？](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
-- [3人编造哄抢农作物谣言被处罚](http://www.play.hengshemaoyi.cn/kongbu/7063878.htm)
-- [已故演员高秀敏被印上祭祀用品](http://www.movie.hkepx.cn/movie/2552102.htm)
-- [探寻“中国之治”的成功密码](http://www.movie.hkepx.cn/xiju/2129564.htm)
-- [GDP十强城市出炉 又一轮大洗牌要来了](http://www.daogukj.com/1731517)
-- [当你穿进老钱班38](http://www.daogukj.com/0178251)
-- [男生最怕的事也莫过于此](http://www.movie.hkepx.cn/movie/2491274.htm)
-- [西班牙高铁事故已致68死，相撞时车速超100公里/时，系人为失误，暴露什么问题？防撞系统为啥没起作用？](http://www.daogukj.com/1710555)
-- [女子花5万买金镯未佩戴已亏1.3万](http://www.daogukj.com/iqnxgakx/)
-- [HelloKitty的道歉未同步海外账号](http://www.daogukj.com/evhpdqcv/)
-- [坚持党的领导 加强党的建设](http://www.movie.hkepx.cn/movie/9669872.htm)
-- [前三季度我国海洋生产总值增长4.9%](http://www.play.hengshemaoyi.cn/xiju/7739320.htm)
-- [新三国up锐评老三国25：夫人，你也不想让张家灭族吧？](http://www.movie.hkepx.cn/xiju/6624711.htm)
-- [男子造谣餐馆因顾客系外籍免单被拘](http://www.movie.hkepx.cn/movie/0041132.htm)
-- [郑丽文：台北选战是场不对称战争](http://www.movie.hkepx.cn/xiju/9486629.htm)
-- [喝可乐不打嗝小游戏~](http://www.movie.hkepx.cn/movie/9796335.htm)
-- [强子刚来啊，等你二十年了【AI MV大赛】](http://www.daogukj.com/0823826)
-- [别在家堆纸箱杂物了](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
-- [向“新”而行 以“质”争先](http://www.movie.hkepx.cn/movie/5397309.htm)
-- [武林外传续集：第八十五回 白展堂偷懒遭算计 穿越人两世解死局【[AI全民制作人】](http://www.daogukj.com/0899815)
-- [中国海军多艘舰艇挺进西太意味什么](http://www.play.hengshemaoyi.cn/xiju/2828553.htm)
-- [朱之文：黑粉不仅骂我还不放过我家人](http://www.daogukj.com/cachqmkl/)
+- [西藏唇腭裂男童多吉父母发声](http://www.daogukj.com/4857502)
+- [六险二金十七薪，公司就是我的家。](http://www.daogukj.com/fxomsuem/)
+- [多视角解读三季度经济数据](http://www.play.hengshemaoyi.cn/xiju/4881423.htm)
+- [兵部尚书冻死在御书房外会引发藩王造反？历史上真的发生过类似的事吗？](http://www.movie.hkepx.cn/xiju/2224998.htm)
+- [三丽鸥在日本官网用中日双语道歉，如何看待此回应？你还会为三丽鸥买单吗？](http://www.daogukj.com/xislksiq/)
+- [美军在日本进行自杀式无人机实弹演习](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
+- [大一新生将「大体老师」头骨当道具摆拍发朋友圈，如何看待此事？会带来哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
+- [我国超大规模市场向全球释放红利](http://www.movie.hkepx.cn/xiju/3925704.htm)
+- [红果 国内第四大App](http://www.daogukj.com/zjqbftsa/)
+- [【真实锐评】LPL四号种子IG晋级八强！打个欧美闹麻了 2级抓下闹麻了！](http://www.daogukj.com/odtszjmj/)
+- [十九世纪拥有两万英镑是什么概念?](http://www.movie.hkepx.cn/movie/8285885.htm)
+- [乌干达吃掉38人的“食人魔”落网](http://www.movie.hkepx.cn/xiju/1770369.htm)
+- [中国第一个「三机场」城市来了，上海为啥要建第三机场？为何落在南通？将带来哪些影响？](http://www.daogukj.com/8527580)
+- [《三鞭抽散厌学魂》](http://www.daogukj.com/9299314)
+- [三年之期已到，恭迎世一上归位！【第15集】](http://www.daogukj.com/5812229)
+- [姆巴佩或面临天文数字赔偿](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
+- [【暗区突围手游版本PV】破局，「战火重燃」今日上线！](http://www.daogukj.com/5338633)
+- [贴脸特写，是每个野生动物摄影师的必备技能！](http://www.movie.hkepx.cn/xiju/7272064.htm)
+- [国防部回应美日夺岛军演](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
+- [乌干达15年吃掉38人“食人魔”落网](http://www.daogukj.com/3351222)
+- [热烈欢迎张伟丽！原来格斗世界冠军的生活是这样的！！（当天伟丽签了好多名✍️](http://www.play.hengshemaoyi.cn/xiju/0501282.htm)
+- [树枝手搓的齐天大圣太震撼了](http://www.movie.hkepx.cn/movie/7142641.htm)
+- [最硬的经济指标 武汉合肥跑赢了](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
+- [《崩坏：星穹铁道》千星纪游PV：「有关星空的寓言集•其三」](http://www.movie.hkepx.cn/xiju/5072930.htm)
+- [共用针头学生检测结果无异常](http://www.daogukj.com/mkxvsuhn/)
+- [国防部评电视剧《交锋》](http://www.daogukj.com/9044973)
+- [西班牙高铁事故已致69死，相撞时车速超100公里/时，系人为失误，暴露什么问题？防撞系统为啥没起作用？](http://www.daogukj.com/6197852)
+- [孙颖莎等10人记大功](http://www.daogukj.com/ryrqoiii/)
+- [⚡《新 三 国 FUNK》⚡](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
+- [为什么男性会保留乳头？是不是基因偷懒不想另起炉灶和留条可能性后路？](http://www.play.hengshemaoyi.cn/kongbu/7063878.htm)
+- [华为制药军团表态，其公司定位是医药行业的AI赋能者，而不是跟大家抢着做药，意味着什么？背后有哪些考量？](http://www.movie.hkepx.cn/movie/2552102.htm)
+- [新型电网为高质量发展提供坚实支撑](http://www.movie.hkepx.cn/xiju/2129564.htm)
+- [中共中央30日上午举行新闻发布会](http://www.daogukj.com/1731517)
+- [国防部：赖清德阻挡不了祖国统一大势](http://www.daogukj.com/0178251)
+- [【2026全球总决赛】10月29日 LYON vs IG](http://www.movie.hkepx.cn/movie/2491274.htm)
+- [给阿嬷的情书为何口碑反转](http://www.daogukj.com/1710555)
+- [MONAL05发布会好多人啊](http://www.daogukj.com/iqnxgakx/)
+- [奶奶的皱纹里，藏着我一生的甜与暖](http://www.daogukj.com/evhpdqcv/)
+- [“三张桌子”看作风](http://www.movie.hkepx.cn/movie/9669872.htm)
+- [谁干的！手表能感知情绪？](http://www.play.hengshemaoyi.cn/xiju/7739320.htm)
+- [官方通报多名学生共用针头](http://www.movie.hkepx.cn/xiju/6624711.htm)
+- [“逮不住随便偷 逮住200元1棵”](http://www.movie.hkepx.cn/movie/0041132.htm)
+- [姆巴佩翻车：你若伤害我 我定抵制你](http://www.movie.hkepx.cn/xiju/9486629.htm)
+- [洛阳一卤蛋店爆火 一天卖3000多个](http://www.movie.hkepx.cn/movie/9796335.htm)
+- [39岁女高管隆胸因麻醉过敏死亡](http://www.daogukj.com/0823826)
+- [《小城良方》爆火背后](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
+- [让群众真切体会到清风正气在身边](http://www.movie.hkepx.cn/movie/5397309.htm)
+- [“理财产品要变相保本了”系误读](http://www.daogukj.com/0899815)
+- [理财产品要变相保本系误读政策](http://www.play.hengshemaoyi.cn/xiju/2828553.htm)
+- [业绩炸裂！联讯仪器Q3净利同比增3488%](http://www.daogukj.com/cachqmkl/)
 
 </details>
 
 ## 原始来源
 
-- [科普书出现「双头虾」图片，出版社称正在下架召回，为何出现如此明显错误？科普类出版该限制 AI 配图吗？](https://www.zhihu.com/question/2098771415411291576)
+- [王子璇一直打断文吉儿](https://s.weibo.com/weibo?q=%E7%8E%8B%E5%AD%90%E7%92%87%E4%B8%80%E7%9B%B4%E6%89%93%E6%96%AD%E6%96%87%E5%90%89%E5%84%BF)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: a419035ca98c9590efe0 -->
+<!-- content-fingerprint: 1ff93aeb58df175e9bac -->
