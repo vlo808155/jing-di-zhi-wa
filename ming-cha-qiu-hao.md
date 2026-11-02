@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 2名航天员登上月球难度有多大
+# 我国宣布派遣三名航天员登月，那么他们登上月球后应该说一句什么话才能在历史书上压倒阿姆斯特朗那句话呢？
 
-> 来源：今日头条热榜 · 排名：第 18 位 · 热度：1729646 · 分类：深度 · 更新：2026-11-02T06:27:31+08:00
+> 来源：知乎热榜 · 排名：第 18 位 · 热度：95 万热度 · 分类：问答 · 更新：2026-11-02T09:42:27+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“2名航天员登上月球难度有多大”位列第 18 位，公开热度指标为 1729646，榜单分类为“深度”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“我国宣布派遣三名航天员登月，那么他们登上月球后应该说一句什么话才能在历史书上压倒阿姆斯特朗那句话呢？”位列第 18 位，公开热度指标为 95 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：如题，阿姆斯特朗说过“这是我个人的一小步，却是全人类的一大步”感觉这句话特别经典又特别震撼，中国航天员应该说什么能压倒这句话呢
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `深度`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [法国爆发第三轮抗议活动，抗议人数从55万降至32万，是意味着这轮社会抗议正在降温吗？抗议还会持续多久？](jian-wei-zhi-zhu.md)
-- [【风笑试玩】啥都治诊所丨全科医生模拟器(Demo) 试玩](du-ju-hui-yan.md)
-- [周华健要当爷爷了](bie-ju-jiang-xin.md)
-- [鸟鸟我画地为牢了朋友](qiao-duo-tian-gong.md)
+- [第一次来中国旅游](jian-wei-zhi-zhu.md)
+- [林一看到穿婚纱的刘亦菲了](du-ju-hui-yan.md)
+- [DeepSeek亮出“超级智能体”架构](bie-ju-jiang-xin.md)
+- [鲁迅在《孔乙己》中写清末的普通打工人傍午就下班，下班后喝黄酒，吃盐煮笋、茴香豆是否符合历史？](qiao-duo-tian-gong.md)
 
 ## 站内推荐
 
-- [蒙淇淇追完肖战小城良方29集](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [刘冲可以放心睡觉了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [家长：接初中生放学就像特务接头](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [31省份居民消费榜：谁最能花钱](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [胡歌随身携带速效救心丸](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [曝厉娜许飞都选择不和好](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [一套房650万要缴450万的税](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [W盛典名场面：刘亦菲穿婚纱压轴](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [懂球帝就姆巴佩一事再发补充声明，称在官方恢复皇马转播与报道前将不再主动推送相关内容，哪些信息值得关注？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [韩网炸了！BLG淘汰HLE送全队十六强，韩国人怎么评价韩华突然回家？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [波兰驻华大使为何突然宣布辞职](http://www.daogukj.com/4857502)
-- [重庆坠亡幼童父亲：不希望家散了](http://www.daogukj.com/fxomsuem/)
+- [热播剧《小城良方》中男主用甲硝唑磨粉吸进鼻子治鼻炎被质疑，甲硝唑粉真的能治鼻炎吗？可能会有哪些风险？](http://www.daogukj.com/4857502)
+- [中国载人登月路线图首次详解](http://www.daogukj.com/fxomsuem/)
 - [从“看热闹”到“看门道”](http://www.play.hengshemaoyi.cn/xiju/4881423.htm)
-- [菲律宾前总统杜特尔特放弃出庭](http://www.movie.hkepx.cn/xiju/2224998.htm)
+- [曝白小纯青稚和好](http://www.movie.hkepx.cn/xiju/2224998.htm)
 - [永葆生机活力 走好新的赶考之路](http://www.daogukj.com/xislksiq/)
-- [吃火锅未点鸭血锅底现鸭血残渣](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
-- [沈阳保洁大叔和副市长同框看球](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
-- [怎么看百度搜索降价千次4.9元，这是针对 DeepSeek 搜索的千次 5 元吗？](http://www.movie.hkepx.cn/xiju/3925704.htm)
-- [怎么看 Anthropic IPO 前夕被黑石评为“垃圾级”？](http://www.daogukj.com/zjqbftsa/)
-- [保时捷女销冠超三成客户来自线上](http://www.daogukj.com/odtszjmj/)
-- [孙颖莎回应蒙彼利埃站夺冠](http://www.movie.hkepx.cn/movie/8285885.htm)
-- [家长：接初中生放学就像特务接头](http://www.movie.hkepx.cn/xiju/1770369.htm)
-- [蒙淇淇追完肖战小城良方29集](http://www.daogukj.com/8527580)
-- [画地为牢](http://www.daogukj.com/9299314)
-- [影视行业真的来春天了](http://www.daogukj.com/5812229)
-- [奥特曼称 OpenAI 内部新模型让他兴奋到两晚没睡，这意味着什么？](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
-- [巴菲特天天吃麦当劳还喝那么多可乐为何还那么长寿？](http://www.daogukj.com/5338633)
-- [刘亦菲婚纱造型好像新娘子](http://www.movie.hkepx.cn/xiju/7272064.htm)
-- [法国爆发第三轮抗议活动，抗议人数从55万降至32万，是意味着这轮社会抗议正在降温吗？抗议还会持续多久？](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
-- [卧槽！！BLG淘汰LCK银河战舰HLE送他们16强！S赛最爽对局有多爽！BLG回来了！【1酱赛评S16瑞士轮day7】](http://www.daogukj.com/3351222)
-- [林一看到穿婚纱的刘亦菲了](http://www.play.hengshemaoyi.cn/xiju/0501282.htm)
-- [【漫士】这可能是人类提出最深刻的数学/计算机问题](http://www.movie.hkepx.cn/movie/7142641.htm)
-- [31省份居民消费榜：谁最能花钱](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
+- [台媒劝少看红果短剧反被喷](http://www.play.hengshemaoyi.cn/xiju/6197430.htm)
+- [拐弯指路牌火了 网友建议全国推广](http://www.play.hengshemaoyi.cn/kongbu/7579186.htm)
+- [BLG终于晋级，HLE开启疯狂水世界，淘汰赛抽签锐评【火兰吐槽】](http://www.movie.hkepx.cn/xiju/3925704.htm)
+- [为何AI短剧好像放弃了清宫戏，而更倾向于唐/宋/架空朝代？跟观众偏好、技术、选题、价值观有啥关系吗？](http://www.daogukj.com/zjqbftsa/)
+- [林一跟刘亦菲打招呼后的反应](http://www.daogukj.com/odtszjmj/)
+- [罗技跟用户干上了](http://www.movie.hkepx.cn/movie/8285885.htm)
+- [W盛典名场面：刘亦菲穿婚纱压轴](http://www.movie.hkepx.cn/xiju/1770369.htm)
+- [曝厉娜许飞都选择不和好](http://www.daogukj.com/8527580)
+- [周深刘亦菲同框热聊](http://www.daogukj.com/9299314)
+- [孙颖莎回应夺冠](http://www.daogukj.com/5812229)
+- [男子不雅视频被群发 不堪受辱割腕](http://www.play.hengshemaoyi.cn/kongbu/7722959.htm)
+- [《影之刃零》能复刻《黑神话：悟空》的千万级销量神话吗？](http://www.daogukj.com/5338633)
+- [孙颖莎夺冠后比1庆祝](http://www.movie.hkepx.cn/xiju/7272064.htm)
+- [第一次来中国旅游](http://www.play.hengshemaoyi.cn/xiju/6013797.htm)
+- [你从未离去 x 平凡之路](http://www.daogukj.com/3351222)
+- [85花很刻意避免同台了](http://www.play.hengshemaoyi.cn/xiju/0501282.htm)
+- [246万买邮轮永居权2年后被要求离船](http://www.movie.hkepx.cn/movie/7142641.htm)
+- [懂球帝就姆巴佩一事再发补充声明，称在官方恢复皇马转播与报道前将不再主动推送相关内容，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/6184047.htm)
 - [如何看待鸿蒙智行五界2026年10月销量合计33537辆？五界是否能生存下去？](http://www.movie.hkepx.cn/xiju/5072930.htm)
-- [如何看待比亚迪前三季度赚了223亿](http://www.daogukj.com/mkxvsuhn/)
-- [246万买邮轮永居权2年后被要求离船](http://www.daogukj.com/9044973)
-- [邓紫棋官宣新小说](http://www.daogukj.com/6197852)
+- [【果然三角洲9】得众乐乐啊](http://www.daogukj.com/mkxvsuhn/)
+- [A股开盘：创业板指高开1.05%](http://www.daogukj.com/9044973)
+- [影视行业真的来春天了](http://www.daogukj.com/6197852)
 - [【独家】牧神记 第107集 上苍](http://www.daogukj.com/ryrqoiii/)
-- [保险公司追涨科技股换来3500亿浮亏](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
-- [【OC动画】馆长大人，请消消气！🌙酒魔女与她的贵客【魔女夜话小剧场】【手搓动画大赛】](http://www.play.hengshemaoyi.cn/kongbu/7063878.htm)
-- [吴磊婉拒蔡徐坤](http://www.movie.hkepx.cn/movie/2552102.htm)
-- [重大发现！故宫太和殿的天花板上竟藏了颗百年前的监控探头！](http://www.movie.hkepx.cn/xiju/2129564.htm)
-- [A股迎利好！金融监管部门将开座谈会](http://www.daogukj.com/1731517)
-- [现货黄金跌至一年低点，白银跌破 50 美元，贵金属这波大跌是什么原因？](http://www.daogukj.com/0178251)
-- [如何评价比亚迪 10 月新能源汽车销量 49.02 万辆，海外销量翻倍？横向对比这一销量属于什么水平？](http://www.movie.hkepx.cn/movie/2491274.htm)
-- [孙颖莎4-3力克王艺迪 晋级决赛](http://www.daogukj.com/1710555)
-- [大肥鱼适合做女朋友吗？（2）](http://www.daogukj.com/iqnxgakx/)
-- [刘亦菲刘些宁撞婚纱造型](http://www.daogukj.com/evhpdqcv/)
-- [选一条路，决定你接下来的旅途](http://www.movie.hkepx.cn/movie/9669872.htm)
-- [孙颖莎夺冠后比1庆祝](http://www.play.hengshemaoyi.cn/xiju/7739320.htm)
-- [41 岁 C 罗距职业生涯千球仅差 15 球，这一纪录对世界足坛意味着什么？](http://www.movie.hkepx.cn/xiju/6624711.htm)
-- [中国女生借卫生巾震撼外国网友](http://www.movie.hkepx.cn/movie/0041132.htm)
-- [鸟鸟我画地为牢了朋友](http://www.movie.hkepx.cn/xiju/9486629.htm)
-- [四川华蓥大摆荡致1名16岁游客死亡调查报告公布，2名责任人已移送司法机关处理，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/9796335.htm)
-- [如何评价 2026 年 10 月小米汽车交付量超过 50000 台？](http://www.daogukj.com/0823826)
-- [假如带着豆包和蓝色大肥鱼等一众AI穿越到2018年...[1-5合集]](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
-- [被一棵棵红军树背后的故事感动了](http://www.movie.hkepx.cn/movie/5397309.htm)
-- [鲁迅在《孔乙己》中写民国的普通打工人傍午就下班，下班后喝黄酒，吃盐煮笋、茴香豆是否符合历史？](http://www.daogukj.com/0899815)
-- [张禹珍蒙彼利埃站冠军](http://www.play.hengshemaoyi.cn/xiju/2828553.htm)
-- [女性在这两个年龄或会断崖式衰老](http://www.daogukj.com/cachqmkl/)
+- [孩子主动和我说，不想拿第一名，只想做中等舒服的人，我该怎么办？](http://www.play.hengshemaoyi.cn/kongbu/4650876.htm)
+- [乌鲁木齐辟谣“禁售马肉马肠制品”](http://www.play.hengshemaoyi.cn/kongbu/7063878.htm)
+- [美公务机坠毁致9死](http://www.movie.hkepx.cn/movie/2552102.htm)
+- [自建房厨卫一体 看房人直呼难接受](http://www.movie.hkepx.cn/xiju/2129564.htm)
+- [美飞机坠毁9人遇难 地面被撞出大坑](http://www.daogukj.com/1731517)
+- [女子买2套房打通后喜提环形跑道](http://www.daogukj.com/0178251)
+- [庆功宴上，领导表扬你一句后夹起一块鱼给你，说“鱼是好鱼，就是刺多”，你该如何高情商地回答？](http://www.movie.hkepx.cn/movie/2491274.htm)
+- [法定节假日增至 13 天并优化调休，将对公众生活与休假体验带来哪些改变？](http://www.daogukj.com/1710555)
+- [全球资产遭遇洗盘](http://www.daogukj.com/iqnxgakx/)
+- [优质蛋白食物第一名出炉](http://www.daogukj.com/evhpdqcv/)
+- [BLG八强结算珍贵录像《朝你韩华捏一把》](http://www.movie.hkepx.cn/movie/9669872.htm)
+- [伊朗已购买俄罗斯苏-35战斗机](http://www.play.hengshemaoyi.cn/xiju/7739320.htm)
+- [⚡️⚡️⚡️猫咖倒闭，救救我们⚡️⚡️⚡️](http://www.movie.hkepx.cn/xiju/6624711.htm)
+- [新疆禾木野生猴群下山抢手机？假的](http://www.movie.hkepx.cn/movie/0041132.htm)
+- [鲁迅在《孔乙己》中写清末的普通打工人傍午就下班，下班后喝黄酒，吃盐煮笋、茴香豆是否符合历史？](http://www.movie.hkepx.cn/xiju/9486629.htm)
+- [【一百日】第八日:未知通讯](http://www.movie.hkepx.cn/movie/9796335.htm)
+- [是我呀，银月](http://www.daogukj.com/0823826)
+- [休息日爬山5小时未回工作消息遭辞退](http://www.play.hengshemaoyi.cn/xiju/2096327.htm)
+- [今年乌镇峰会首次向社会开放预约](http://www.movie.hkepx.cn/movie/5397309.htm)
+- [她拽住了全城的人，可谁来拽住她？【反乌托邦】](http://www.daogukj.com/0899815)
+- [孙颖莎退赛法兰克福站](http://www.play.hengshemaoyi.cn/xiju/2828553.htm)
+- [刘建宏谈U17女足不敌巴西](http://www.daogukj.com/cachqmkl/)
 
 </details>
 
 ## 原始来源
 
-- [2名航天员登上月球难度有多大](https://www.toutiao.com/trending/7703163317421870602/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2213%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227703163317421870602%22%2C%22hot_board_impr_id%22%3A%2220261102062729610FE9532F6D72EBF4B6%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
+- [我国宣布派遣三名航天员登月，那么他们登上月球后应该说一句什么话才能在历史书上压倒阿姆斯特朗那句话呢？](https://www.zhihu.com/question/2100177964231149403)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ef260e802e65e4dd73c7 -->
+<!-- content-fingerprint: 6d1f3751ffc078a69eca -->
