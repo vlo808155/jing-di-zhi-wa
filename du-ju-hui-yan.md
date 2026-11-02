@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 林一看到穿婚纱的刘亦菲了
+# 创业五十天如何破产
 
-> 来源：微博热搜 · 排名：第 19 位 · 热度：291465 · 分类：艺人 · 更新：2026-11-02T09:42:27+08:00
+> 来源：哔哩哔哩热门 · 排名：第 18 位 · 热度：718963 · 分类：单机游戏 · 更新：2026-11-02T16:20:42+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“林一看到穿婚纱的刘亦菲了”位列第 19 位，公开热度指标为 291465，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“创业五十天如何破产”位列第 18 位，公开热度指标为 718963，榜单分类为“单机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：游戏：《深空当铺：可能是偷的》
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `艺人`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `单机游戏`
 
 ## 相关热点
 
-- [DeepSeek亮出“超级智能体”架构](bie-ju-jiang-xin.md)
-- [鲁迅在《孔乙己》中写清末的普通打工人傍午就下班，下班后喝黄酒，吃盐煮笋、茴香豆是否符合历史？](qiao-duo-tian-gong.md)
-- [【果然三角洲9】得众乐乐啊](gui-fu-shen-gong.md)
-- [女子买2套房打通后喜提环形跑道](jin-shang-tian-hua.md)
+- [四川凉山州木里县3.0级地震](bie-ju-jiang-xin.md)
+- [我画地为牢谢娜](qiao-duo-tian-gong.md)
+- [六大行均已重启大额存单发行](gui-fu-shen-gong.md)
+- [全球平板出货量同比下降 12.3%，平板还有必要每年发布新款吗？为啥平板越来越难卖了？](jin-shang-tian-hua.md)
 
 ## 站内推荐
 
-- [为何AI短剧好像放弃了清宫戏，而更倾向于唐/宋/架空朝代？跟观众偏好、技术、选题、价值观有啥关系吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [BLG终于晋级，HLE开启疯狂水世界，淘汰赛抽签锐评【火兰吐槽】](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [天 有 祀 时.exe【终末地/丹青渡】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [休息日爬山5小时未回工作消息遭辞退](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [迪丽热巴这套造型至今无人超越](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [庆功宴上，领导表扬你一句后夹起一块鱼给你，说“鱼是好鱼，就是刺多”，你该如何高情商地回答？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [她拽住了全城的人，可谁来拽住她？【反乌托邦】](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [老法师把自己当馒头蒸，结果蒸成了中微子](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [韩网炸了！BLG淘汰HLE送全队十六强，韩国人怎么评价韩华突然回家？Viper Gumayusi Bin 左手](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [这样建？几棵树苗能做什么？【Minecraft】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [吴磊婉拒蔡徐坤](http://www.daogukj.com/7203067)
-- [W盛典名场面：刘亦菲穿婚纱压轴](http://www.daogukj.com/gowgjlqg/)
-- [孩子主动和我说，不想拿第一名，只想做中等舒服的人，我该怎么办？](http://www.daogukj.com/7329084)
-- [全球资产遭遇洗盘](http://www.daogukj.com/tafakdgo/)
-- [孙颖莎夺WTT蒙彼利埃站冠军](http://www.play.hengshemaoyi.cn/kongbu/6822731.htm)
-- [迪丽热巴这套造型至今无人超越](http://www.movie.hkepx.cn/movie/9763774.htm)
-- [韩网炸了！BLG淘汰HLE送全队十六强，韩国人怎么评价韩华突然回家？](http://www.movie.hkepx.cn/movie/5499528.htm)
-- [孙颖莎夺冠后比1庆祝](http://www.movie.hkepx.cn/xiju/2091376.htm)
-- [美国一公务机俯冲爆炸9人全遇难](http://www.movie.hkepx.cn/movie/3384485.htm)
-- [美公务机坠机点距特朗普私宅仅几公里](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
-- [热播剧《小城良方》中男主用甲硝唑磨粉吸进鼻子治鼻炎被质疑，甲硝唑粉真的能治鼻炎吗？可能会有哪些风险？](http://www.daogukj.com/0541072)
-- [金价大跌白银价格腰斩](http://www.daogukj.com/jyvgfrcg/)
-- [她拽住了全城的人，可谁来拽住她？【反乌托邦】](http://www.daogukj.com/3891590)
-- [鲁迅在《孔乙己》中写清末的普通打工人傍午就下班，下班后喝黄酒，吃盐煮笋、茴香豆是否符合历史？](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
-- [A股开盘：创业板指高开1.05%](http://www.movie.hkepx.cn/xiju/8805715.htm)
-- [DeepSeek亮出“超级智能体”架构](http://www.daogukj.com/5398424)
-- [第一次来中国旅游](http://www.movie.hkepx.cn/xiju/6277332.htm)
-- [中国载人登月路线图首次详解](http://www.movie.hkepx.cn/xiju/7873556.htm)
-- [微信转账加一个动作](http://www.play.hengshemaoyi.cn/xiju/9370456.htm)
-- [评论员：中国要在黄岩岛关门了](http://www.daogukj.com/nzepuewx/)
-- [你从未离去 x 平凡之路](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
-- [闪迪消费存储出货量暴跌超过70%｜显卡日报11月2日](http://www.movie.hkepx.cn/movie/0752879.htm)
-- [【一百日】第八日:未知通讯](http://www.movie.hkepx.cn/xiju/3642771.htm)
-- [2026WTT蒙彼利埃冠军赛女单决赛，孙颖莎4-1战胜蒯曼，夺得女单冠军，如何评价本场表现？](http://www.daogukj.com/5617601)
-- [创业五十天如何破产](http://www.daogukj.com/8998145)
-- [影视行业真的来春天了](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
-- [BLG终于晋级，HLE开启疯狂水世界，淘汰赛抽签锐评【火兰吐槽】](http://www.movie.hkepx.cn/xiju/8984384.htm)
-- [港媒：沈伯洋“洋流”或激出反作用力](http://www.movie.hkepx.cn/xiju/1180114.htm)
-- [重大发现！故宫太和殿的天花板上竟藏了颗百年前的监控探头！](http://www.movie.hkepx.cn/movie/0847312.htm)
-- [胡歌自曝身边好友陆续因心梗离世](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
-- [刘建宏谈U17女足不敌巴西](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
-- [246万买邮轮永居权2年后被要求离船](http://www.movie.hkepx.cn/xiju/6763243.htm)
-- [如何看待鸿蒙智行五界2026年10月销量合计33537辆？五界是否能生存下去？](http://www.movie.hkepx.cn/xiju/9186695.htm)
-- [罗技跟用户干上了](http://www.daogukj.com/pxvooxke/)
-- [马天宇张萌 和好](http://www.movie.hkepx.cn/xiju/1116357.htm)
-- [⚡️⚡️⚡️猫咖倒闭，救救我们⚡️⚡️⚡️](http://www.movie.hkepx.cn/xiju/0923150.htm)
-- [休息日爬山5小时未回工作消息遭辞退](http://www.daogukj.com/wwpryopq/)
-- [伊朗已购买俄罗斯苏-35战斗机](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
-- [法定节假日增至 13 天并优化调休，将对公众生活与休假体验带来哪些改变？](http://www.movie.hkepx.cn/xiju/6581777.htm)
-- [电诈团伙已转移到非洲](http://www.daogukj.com/ydetypas/)
-- [孙颖莎退出法兰克福冠军赛](http://www.movie.hkepx.cn/xiju/1440565.htm)
-- [美公务机坠毁前女飞行员绝望尖叫](http://www.movie.hkepx.cn/movie/0748348.htm)
-- [芒果台今年已推出《我家那闺女》《后会友期》《中餐厅》《乘风》等大爆综艺，为啥芒果做综艺这么有「灵性」？](http://www.daogukj.com/7529047)
-- [中国“00后”球手爆冷淘汰特鲁姆普](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
-- [老法师把自己当馒头蒸，结果蒸成了中微子](http://www.movie.hkepx.cn/movie/9462286.htm)
-- [自建房厨卫一体 看房人直呼难接受](http://www.movie.hkepx.cn/xiju/6577988.htm)
-- [周深刘亦菲同框热聊](http://www.movie.hkepx.cn/movie/1711969.htm)
-- [乌鲁木齐辟谣“禁售马肉马肠制品”](http://www.movie.hkepx.cn/movie/1556531.htm)
-- [今年乌镇峰会首次向社会开放预约](http://www.play.hengshemaoyi.cn/kongbu/3467795.htm)
-- [林一跟刘亦菲打招呼后的反应](http://www.movie.hkepx.cn/movie/2027222.htm)
+- [揭秘王曼昱签约公司](http://www.daogukj.com/7203067)
+- [孙颖莎：这一站冠军意义非凡](http://www.daogukj.com/gowgjlqg/)
+- [如何看待南京一助教老师休息日爬山5小时未回工作消息遭辞退？「休息日定时查看3次工作号」的要求合法吗？](http://www.daogukj.com/7329084)
+- [吴彦祖咖啡店送饼干 观众：阿祖收手吧](http://www.daogukj.com/tafakdgo/)
+- [广州原书记郭永航被双开](http://www.play.hengshemaoyi.cn/kongbu/6822731.htm)
+- [这样建？几棵树苗能做什么？【Minecraft】](http://www.movie.hkepx.cn/movie/9763774.htm)
+- [证监会答复全国人大代表阎建国](http://www.movie.hkepx.cn/movie/5499528.htm)
+- [A股农历924重大利好来了](http://www.movie.hkepx.cn/xiju/2091376.htm)
+- [男子彩票中1113万过期2天兑奖被拒](http://www.movie.hkepx.cn/movie/3384485.htm)
+- [赵丽颖工作室否认博主回收闲置衣物](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
+- [能“横着走”的中国车在海外社媒走红](http://www.daogukj.com/0541072)
+- [你家可能囤着致癌日用品](http://www.daogukj.com/jyvgfrcg/)
+- [大肥鱼适合做女朋友吗？（2）](http://www.daogukj.com/3891590)
+- [我画地为牢谢娜](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
+- [2027是最舒服的一年](http://www.movie.hkepx.cn/xiju/8805715.htm)
+- [四川凉山州木里县3.0级地震](http://www.daogukj.com/5398424)
+- [美国一邮轮推出 246 万元起「终身旅居」套餐，2 年后因燃油成本乘客被赶下船，怎么看邮轮的毁约行为？](http://www.movie.hkepx.cn/xiju/6277332.htm)
+- [大额存单来了！六大行全部重启发行](http://www.movie.hkepx.cn/xiju/7873556.htm)
+- [微软大裁员后印度裔员工上班被挖](http://www.play.hengshemaoyi.cn/xiju/9370456.htm)
+- [巴菲特48年没喝过白开水](http://www.daogukj.com/nzepuewx/)
+- [《明日方舟》「卫戍协议：规程」宣传PV](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
+- [⚡️⚡️⚡️猫咖倒闭，救救我们⚡️⚡️⚡️](http://www.movie.hkepx.cn/movie/0752879.htm)
+- [【全网最全】DeepSeek Harness超详细教程！50分钟吃透DSH，让SuperAgent给你干活！](http://www.movie.hkepx.cn/xiju/3642771.htm)
+- [《影之刃零》为什么要做出打完boss直接进入下一章并会导致前面任务全部失败的设计？](http://www.daogukj.com/5617601)
+- [世界最最最烂活](http://www.daogukj.com/8998145)
+- [外交部：中方多位特使特代将赴中东](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
+- [她拽住了全城的人，可谁来拽住她？【反乌托邦】](http://www.movie.hkepx.cn/xiju/8984384.htm)
+- [Kimi 半年三次道歉](http://www.movie.hkepx.cn/xiju/1180114.htm)
+- [你爸回你消息了](http://www.movie.hkepx.cn/movie/0847312.htm)
+- [商场的人气回来了](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
+- [胡歌自曝已经戒烟很久](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
+- [【风笑试玩】啥都治诊所丨全科医生模拟器(Demo) 试玩](http://www.movie.hkepx.cn/xiju/6763243.htm)
+- [美国一公务机在居民区坠毁致9死，距特朗普的海湖庄园仅七八公里，具体情况如何？可能是什么原因？](http://www.movie.hkepx.cn/xiju/9186695.htm)
+- [才知道改名可以改姓](http://www.daogukj.com/pxvooxke/)
+- [被赞国泰民安脸 颁奖礼仪小姐回应](http://www.movie.hkepx.cn/xiju/1116357.htm)
+- [为什么在中国，很多人认为中国球员踢不好球是因为太有钱了？](http://www.movie.hkepx.cn/xiju/0923150.htm)
+- [韩网炸了！BLG淘汰HLE送全队十六强，韩国人怎么评价韩华突然回家？Viper Gumayusi Bin 左手](http://www.daogukj.com/wwpryopq/)
+- [牛弹琴：内塔尼亚胡很可能被赶下台](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
+- [砍完人就收进剑鞘，剑不会臭吗？](http://www.movie.hkepx.cn/xiju/6581777.htm)
+- [年轻女性纷纷涌入男装区](http://www.daogukj.com/ydetypas/)
+- [王曼昱签约蝴蝶](http://www.movie.hkepx.cn/xiju/1440565.htm)
+- [海事局连发航行警告 最长封航30天](http://www.movie.hkepx.cn/movie/0748348.htm)
+- [为什么英雄联盟解说在提 Kanavi 时感觉有很强情绪，这是什么原因？](http://www.daogukj.com/7529047)
+- [喜欢吃烤红薯的人天塌了 真的吗](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
+- [致敬传奇抗压王——塔露拉](http://www.movie.hkepx.cn/movie/9462286.htm)
+- [“我们赚的就是押金的钱”](http://www.movie.hkepx.cn/xiju/6577988.htm)
+- [王楚钦复出](http://www.movie.hkepx.cn/movie/1711969.htm)
+- [员工举报公司“制毒”系凭空编造](http://www.movie.hkepx.cn/movie/1556531.htm)
+- [2026年世界互联网大会乌镇峰会](http://www.play.hengshemaoyi.cn/kongbu/3467795.htm)
+- [曝时代峰峻高会客服骂人](http://www.movie.hkepx.cn/movie/2027222.htm)
 
 </details>
 
 ## 原始来源
 
-- [林一看到穿婚纱的刘亦菲了](https://s.weibo.com/weibo?q=%E6%9E%97%E4%B8%80%E7%9C%8B%E5%88%B0%E7%A9%BF%E5%A9%9A%E7%BA%B1%E7%9A%84%E5%88%98%E4%BA%A6%E8%8F%B2%E4%BA%86)
+- [创业五十天如何破产](https://b23.tv/BV1Yfxs6cESY)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: fc855edb7b4eaf7caf4f -->
+<!-- content-fingerprint: e738d3d9afc5d04334f9 -->
