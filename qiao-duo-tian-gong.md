@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 抖音副总裁李亮多次反驳秦朔「字节时间」相关文章，秦朔称已就相关言论提起名誉权诉讼，他能胜诉吗？
+# 气象局回应苹果天气APP预报极端天气
 
-> 来源：知乎热榜 · 排名：第 19 位 · 热度：137 万热度 · 分类：问答 · 更新：2026-11-04T09:35:12+08:00
+> 来源：微博热搜 · 排名：第 19 位 · 热度：312951 · 分类：民生新闻 · 更新：2026-11-04T15:58:07+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“抖音副总裁李亮多次反驳秦朔「字节时间」相关文章，秦朔称已就相关言论提起名誉权诉讼，他能胜诉吗？”位列第 19 位，公开热度指标为 137 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“气象局回应苹果天气APP预报极端天气”位列第 19 位，公开热度指标为 312951，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：11月2日消息，秦朔朋友圈发布声明。 秦朔表示，针对近期“抖音集团李亮”发布的侵害其本人名誉权的言论，已委托律师向人民法院提起诉讼，依法采取措施维护自身合法权益，并追究侵权方的法律责任。 此前，秦朔与抖音集团副总裁李亮围绕“中国互联网是否进入‘字节时间’”发生多轮争论。 10月26日，秦朔发文《可怕的红果与中国互联网的“字节时间”》，援引相关数据提出“字节时间”的说法。 随后李亮多次公开发文反驳，认为这一判断“不严谨”。李亮在文中提到，秦朔关于中国互联网到底存不存在“字节时间”的分析，里面存在基本常识性错误。 在李亮看来，互联网行业的特征就是优势产品短期
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`微博热搜` `实时热搜` `热点资讯` `民生新闻`
 
 ## 相关热点
 
-- [周 术 回 战 |魔法Zc目录](gui-fu-shen-gong.md)
-- [早晨vs晚上运动差别在哪](jin-shang-tian-hua.md)
-- [欧冠](hua-long-dian-jing.md)
-- [11月将有4次冷空气先后到访](miao-bi-sheng-hua.md)
+- [人到中年为何蹲不下去了](gui-fu-shen-gong.md)
+- [如何评价 369 在 S16 全球总决赛上的整体表现？](jin-shang-tian-hua.md)
+- [经常被问我的场景都是怎么弄的？今天直接带大家参观！](hua-long-dian-jing.md)
+- [去乌兰察布看机房真能月薪3万吗](miao-bi-sheng-hua.md)
 
 ## 站内推荐
 
-- [上汽奥迪“买一赠一”宣传已被立案](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [上班族每月花3600元住酒店代租房](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [脂肪肝是身体发出的预警信号](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [许飞经纪人 去找厉娜](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [如何看待2027年国考中多省七八成名额来自税务局？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [A股收盘：科创50指数大涨近10%](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [“未婚妻、病床都是假的 转账是真的”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [举报共治护企远航](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [马斯克4.74亿助选刷美国新纪录](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [肖战四部剧都上榜了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [第1期：南山雪地徒步，邂逅新疆冬日浪漫【此生要去的100个地方 第二季】](http://www.movie.hkepx.cn/movie/3926125.htm)
-- [46岁高圆圆红毛衣生图](http://www.daogukj.com/jbrqqhbh/)
-- [S16淘汰赛IG对战TES](http://www.daogukj.com/6283106)
-- [清华毕业生UCL留学疑遭电诈，账户陆续转出数十万元，邮箱最新留言「我人平安，被诈骗了」，如何看待此事？](http://www.play.hengshemaoyi.cn/xiju/3501535.htm)
-- [如何看待宇树机器人因过热退出登泰山大赛，被担架抬下山？人形机器人的发展目前还存在哪些技术瓶颈？](http://www.daogukj.com/tfcvjhpk/)
-- [【纪录片】蓝色星球 第三季 01 热带海域](http://www.daogukj.com/4841868)
-- [TES极限翻盘iG](http://www.play.hengshemaoyi.cn/kongbu/6429820.htm)
-- [2026世界市长对话宁波](http://www.daogukj.com/jehuxdgs/)
-- [亚洲首富又换人](http://www.movie.hkepx.cn/xiju/1384580.htm)
-- [S16](http://www.daogukj.com/qyeqjnqv/)
-- [两个集合间构成了诡异的映射](http://www.movie.hkepx.cn/movie/7212048.htm)
-- [屋里味太大](http://www.movie.hkepx.cn/xiju/5780029.htm)
-- [这轮AI行情给所有人上了一课](http://www.daogukj.com/efezhgld/)
-- [为什么垂直鼠标没有流行起来？](http://www.play.hengshemaoyi.cn/kongbu/8328027.htm)
-- [死磕电缆40年 这个县城干成了](http://www.movie.hkepx.cn/xiju/5360773.htm)
-- [人民币升破 6.65 后，央行出手上调外汇存准率，如何看待人民币汇率未来的走势以及政策预期？](http://www.movie.hkepx.cn/movie/9566975.htm)
-- [经常被问我的场景都是怎么弄的？今天直接带大家参观！](http://www.daogukj.com/8649041)
-- [菲律宾经济还能自救吗](http://www.daogukj.com/zvuykujr/)
-- [特朗普民调支持率曾一度跌至 31%，创下历史最低纪录，问题出在哪里？该如何「翻盘」？](http://www.daogukj.com/smataala/)
-- [十五年前，我做了 《去月球》](http://www.daogukj.com/mzqlfhhq/)
-- [网友自称是厉娜接私活告密当事人](http://www.play.hengshemaoyi.cn/kongbu/8184754.htm)
-- [周 术 回 战 |魔法Zc目录](http://www.movie.hkepx.cn/movie/8042143.htm)
-- [网络热传生物鉴定 第65期](http://www.play.hengshemaoyi.cn/xiju/7145463.htm)
-- [珠峰南坡海拔4410米酒店雪中被烧毁](http://www.play.hengshemaoyi.cn/kongbu/4548535.htm)
-- [易烊千玺和于适粉丝都发了澄清](http://www.daogukj.com/0313251)
-- [TES对战IG](http://www.play.hengshemaoyi.cn/kongbu/0820222.htm)
-- [女子凌晨被陌生人钻被窝贴脸窥探](http://www.daogukj.com/btolggbq/)
-- [早晨vs晚上运动差别在哪](http://www.play.hengshemaoyi.cn/xiju/2703241.htm)
-- [苹果天气bug：多地零下32℃](http://www.play.hengshemaoyi.cn/xiju/1475778.htm)
-- [一条没下巴的鱼杀穿奥陶纪？](http://www.play.hengshemaoyi.cn/xiju/4475779.htm)
-- [武汉一小区爆燃致 2 死 1 伤，调查、处置工作正在进行中，目前情况如何？](http://www.play.hengshemaoyi.cn/xiju/3969235.htm)
-- [为什么理工科行业没有类似《令人心动的offer》、《闪闪发光的你》这种职场综艺?](http://www.play.hengshemaoyi.cn/kongbu/1797022.htm)
-- [治网这件事需要你我共“举”](http://www.movie.hkepx.cn/xiju/9886322.htm)
-- [陈伟霆在新疆被雪困了11小时](http://www.play.hengshemaoyi.cn/xiju/1914744.htm)
-- [美国中期选举](http://www.movie.hkepx.cn/movie/2301491.htm)
-- [当你只能使用吃过的干员打方舟……](http://www.play.hengshemaoyi.cn/xiju/2353249.htm)
-- [特朗普称美国暂无立即打击伊朗计划](http://www.daogukj.com/fownzino/)
-- [杂交水稻专家邓国富被开除党籍](http://www.play.hengshemaoyi.cn/xiju/3652466.htm)
-- [如何看待2027年国考中多省七八成名额来自税务局？](http://www.daogukj.com/7447842)
-- [上汽奥迪“买一赠一”宣传已被立案](http://www.daogukj.com/kzpjmnze/)
-- [老胡上午加仓下午重跌](http://www.play.hengshemaoyi.cn/kongbu/4160936.htm)
-- [横店按摩师：来拍戏的明星基本都按过](http://www.daogukj.com/5391271)
-- [老中医去世后把100个药方刻在墓碑](http://www.play.hengshemaoyi.cn/xiju/1037193.htm)
-- [女子在大厅等人 监控被直播调侃身材](http://www.daogukj.com/4166842)
-- [曾经风靡全国的日系车问题出在哪](http://www.movie.hkepx.cn/xiju/6638941.htm)
-- [专家：谨防银行股成股市堰塞湖](http://www.play.hengshemaoyi.cn/kongbu/4151588.htm)
-- [iPhone天气下周五温差](http://www.daogukj.com/jguwcjlw/)
-- [6G来了 离我们还有多远](http://www.movie.hkepx.cn/xiju/6322184.htm)
-- [女生刷到另一个自己竟是双胞胎](http://www.play.hengshemaoyi.cn/xiju/2530472.htm)
-- [高颜值保洁大叔：年轻时相亲被嫌丑](http://www.daogukj.com/5202971)
+- [受网友诱骗跨省流浪一年，名下多了6家公司，欠了一屁股债，银行卡被封，全家低保也差点注销【出发去创作】](http://www.movie.hkepx.cn/movie/3926125.htm)
+- [谭松韵回应出道21年才36岁](http://www.daogukj.com/jbrqqhbh/)
+- [文吉儿真的是触碰艺人的大忌](http://www.daogukj.com/6283106)
+- [LPL赛区内战 IG战胜TES晋级四强【2026英雄联盟全球总决赛】](http://www.play.hengshemaoyi.cn/xiju/3501535.htm)
+- [抽象新闻：10月人类迷惑行为大赏（下）](http://www.daogukj.com/tfcvjhpk/)
+- [【只对你有感觉】|“【恋爱の小曲】”](http://www.daogukj.com/4841868)
+- [中方回应美国中期选举](http://www.play.hengshemaoyi.cn/kongbu/6429820.htm)
+- [保护企业网络名誉权的指南来了](http://www.daogukj.com/jehuxdgs/)
+- [网络热传生物鉴定 第65期](http://www.movie.hkepx.cn/xiju/1384580.htm)
+- [特朗普称对伊朗战争是选举失利原因](http://www.daogukj.com/qyeqjnqv/)
+- [锐评S16 IG战胜TES：Wei哥超神发挥游龙！IG挺进四强！](http://www.movie.hkepx.cn/movie/7212048.htm)
+- [胡歌自曝过了40岁身体开始走下坡路，已戒烟很久，出差会背AED，年龄真是分水岭吗？这些措施用处有多大？](http://www.movie.hkepx.cn/xiju/5780029.htm)
+- [王毅把话说到不可容忍 菲方听懂了吗](http://www.daogukj.com/efezhgld/)
+- [《异环》曳尔沐角色PV丨我们重归于好](http://www.play.hengshemaoyi.cn/kongbu/8328027.htm)
+- [新版 007 人选尘埃落定，Dua Lipa 老公卡勒姆·特纳将出演詹姆斯·邦德，如何评价这一选角？](http://www.movie.hkepx.cn/xiju/5360773.htm)
+- [如何看待 GPT-6 Astra 仅改动 0.016% 权重就让 Qwen3.5 数学能力涨 6 倍？](http://www.movie.hkepx.cn/movie/9566975.htm)
+- [男子戴一晚上外科手套 掌纹清晰可见](http://www.daogukj.com/8649041)
+- [“第一网红”野兽先生卖零食赚翻了](http://www.daogukj.com/zvuykujr/)
+- [高梓淇问女友对他妹妹是不是真心的](http://www.daogukj.com/smataala/)
+- [国台办回应台退役金门舰转交菲律宾](http://www.daogukj.com/mzqlfhhq/)
+- [后会友期曾邀约杨幂唐嫣被婉拒](http://www.play.hengshemaoyi.cn/kongbu/8184754.htm)
+- [人到中年为何蹲不下去了](http://www.movie.hkepx.cn/movie/8042143.htm)
+- [《明日方舟：终末地》干员叙事 [明河：归客]](http://www.play.hengshemaoyi.cn/xiju/7145463.htm)
+- [新华社评苹果天气bug：离大谱](http://www.play.hengshemaoyi.cn/kongbu/4548535.htm)
+- [坚果脂肪这么高为什么还推荐吃](http://www.daogukj.com/0313251)
+- [这5个辐射谣言千万别信](http://www.play.hengshemaoyi.cn/kongbu/0820222.htm)
+- [谁是半导体Q3净利润之王](http://www.daogukj.com/btolggbq/)
+- [如何评价 369 在 S16 全球总决赛上的整体表现？](http://www.play.hengshemaoyi.cn/xiju/2703241.htm)
+- [为什么垂直鼠标没有流行起来？](http://www.play.hengshemaoyi.cn/xiju/1475778.htm)
+- [网民编造“一家五口烧炭自杀”被罚](http://www.play.hengshemaoyi.cn/xiju/4475779.htm)
+- [广东发文将全面落实带薪年休假并增强执行刚性，释放了哪些信号？最终会全国推行吗？](http://www.play.hengshemaoyi.cn/xiju/3969235.htm)
+- [老楼加装电梯一楼要光五楼要命](http://www.play.hengshemaoyi.cn/kongbu/1797022.htm)
+- [黄金](http://www.movie.hkepx.cn/xiju/9886322.htm)
+- [369说被TheShy征服了](http://www.play.hengshemaoyi.cn/xiju/1914744.htm)
+- [伊朗议长：美选举结果表明对战争说不](http://www.movie.hkepx.cn/movie/2301491.htm)
+- [半导体板块集体爆发](http://www.play.hengshemaoyi.cn/xiju/2353249.htm)
+- [泸州花坛埋尸案将宣判 被害者独子发声](http://www.daogukj.com/fownzino/)
+- [开破车挑战纽北！证明中国人比德国人更会玩车](http://www.play.hengshemaoyi.cn/xiju/3652466.htm)
+- [肖战四部剧都上榜了](http://www.daogukj.com/7447842)
+- [A股收盘：科创50指数大涨近10%](http://www.daogukj.com/kzpjmnze/)
+- [如何看待华为云宣布下线盘古2.0 Flash、Pro模型服务？](http://www.play.hengshemaoyi.cn/kongbu/4160936.htm)
+- [香飘飘第三季度净利润下滑 88％，是冲泡奶茶不再受欢迎了吗？尝试布局杯装冲泡咖啡，能不能帮它打开局面？](http://www.daogukj.com/5391271)
+- [如何看待宇树机器人因过热退出登泰山大赛，被担架抬下山？人形机器人的发展目前还存在哪些技术瓶颈？](http://www.play.hengshemaoyi.cn/xiju/1037193.htm)
+- [中方就中俄美元首会晤保持着沟通](http://www.daogukj.com/4166842)
+- [王兴兴判断未来世界5种最核心资源](http://www.movie.hkepx.cn/xiju/6638941.htm)
+- [英国男子卡尔布什比徒步 28 年环游地球一圈回家，一路经历了哪些难以想象的挑战？这样的坚持意味着什么？](http://www.play.hengshemaoyi.cn/kongbu/4151588.htm)
+- [林一找到了发烧有去医院的证据](http://www.daogukj.com/jguwcjlw/)
+- [“China Haul”为何火遍海外](http://www.movie.hkepx.cn/xiju/6322184.htm)
+- [A股暴力反弹原因](http://www.play.hengshemaoyi.cn/xiju/2530472.htm)
+- [延安大学正调查副教授留绝笔信](http://www.daogukj.com/5202971)
 
 </details>
 
 ## 原始来源
 
-- [抖音副总裁李亮多次反驳秦朔「字节时间」相关文章，秦朔称已就相关言论提起名誉权诉讼，他能胜诉吗？](https://www.zhihu.com/question/2100639463642593262)
+- [气象局回应苹果天气APP预报极端天气](https://s.weibo.com/weibo?q=%E6%B0%94%E8%B1%A1%E5%B1%80%E5%9B%9E%E5%BA%94%E8%8B%B9%E6%9E%9C%E5%A4%A9%E6%B0%94APP%E9%A2%84%E6%8A%A5%E6%9E%81%E7%AB%AF%E5%A4%A9%E6%B0%94)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6e04a73029f49ea6d6e3 -->
+<!-- content-fingerprint: 5628d1a1e8ecd0737d64 -->

@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 死磕电缆40年 这个县城干成了
+# 新版 007 人选尘埃落定，Dua Lipa 老公卡勒姆·特纳将出演詹姆斯·邦德，如何评价这一选角？
 
-> 来源：百度热搜 · 排名：第 20 位 · 热度：5899594 · 更新：2026-11-04T09:35:12+08:00
+> 来源：知乎热榜 · 排名：第 20 位 · 热度：198 万热度 · 分类：问答 · 更新：2026-11-04T15:58:07+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“死磕电缆40年 这个县城干成了”位列第 20 位，公开热度指标为 5899594。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“新版 007 人选尘埃落定，Dua Lipa 老公卡勒姆·特纳将出演詹姆斯·邦德，如何评价这一选角？”位列第 20 位，公开热度指标为 198 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：目前，河北宁晋县用40多年的时间，通过共享制造模式重构电缆产业底层逻辑。此前，当地电缆企业面临低价内卷与融资难等困境。随后，政府牵头建全国首家电线电缆数字供应链平台易缆网，实现设备共享。如今，全县线缆产业营收达839.69亿，撑起全国近1/3中低压电缆市场。
+来源公开摘要显示：多家外媒报道，新一任 007 詹姆斯·邦德扮演者花落Dua Lipa 丈夫、演员Callum Turner卡勒姆·特纳。 卡勒姆·特纳 1990 年出生于英国伦敦，现年 36 岁，2026年4月与知名歌手Dua Lipa 完婚。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [清华父亲211妻子孩子没考上高中](you-sheng-you-se.md)
-- [儿子总发烧 拆卧室墙现大面积霉斑](yin-ren-ru-sheng.md)
-- [如何看待2027年国考中多省七八成名额来自税务局？](jing-di-zhi-wa.md)
-- [入职鹰角成为卫戍协议策划的一天](hai-kuo-tian-kong.md)
+- [IG晋级四强！IG 3-1 TES 赛后数据雷达图丨2026全球总决赛-淘汰赛](you-sheng-you-se.md)
+- [小伙称200多万买14套房 年收租21万](yin-ren-ru-sheng.md)
+- [肖战四部剧都上榜了](jing-di-zhi-wa.md)
+- [养羊理财年化12%公司涉嫌非吸被查](hai-kuo-tian-kong.md)
 
 ## 站内推荐
 
-- [美国中期选举](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [牛肉被猕猴桃腌制下锅碎成肉渣](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [丁俊晖决胜局逆转晋级国锦赛八强](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [屋里味太大](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [公司食堂吃早餐摔骨折 不予认定工伤](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [伊朗议长：美选举结果表明对战争说不](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [如何看待2026年美国中期选举特朗普两院尽丢？得州翻蓝又意味着什么？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [如何看待许飞在《后会友期》中对厉娜的一句剖白「我画地为牢，厉娜」爆火，成为全民玩梗的「画地为牢」文学？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [胡歌自曝过了40岁身体开始走下坡路，已戒烟很久，出差会背AED，年龄真是分水岭吗？这些措施用处有多大？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [如何看待 Nuguri 谈 Faker 为什么在全球总决赛阶段那么强「在韩国，他很可能平时没空训练」？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [特朗普民调支持率曾一度跌至 31%，创下历史最低纪录，问题出在哪里？该如何「翻盘」？](http://www.daogukj.com/8005923)
-- [失联清华毕业留学生已安全回家](http://www.play.hengshemaoyi.cn/xiju/7463191.htm)
-- [红果历史短剧有点出乎意料](http://www.movie.hkepx.cn/movie/4169739.htm)
-- [丁俊晖决胜局逆转晋级国锦赛八强](http://www.play.hengshemaoyi.cn/xiju/5874723.htm)
-- [陈伟霆在新疆被雪困了11小时](http://www.movie.hkepx.cn/movie/3447925.htm)
-- [车企“去宁化”真能实现吗](http://www.play.hengshemaoyi.cn/kongbu/4576162.htm)
-- [何炅 我画地为牢啊撒贝宁](http://www.play.hengshemaoyi.cn/xiju/9969388.htm)
-- [老中医去世后把100个药方刻在墓碑](http://www.play.hengshemaoyi.cn/kongbu/2274251.htm)
-- [经常被问我的场景都是怎么弄的？今天直接带大家参观！](http://www.movie.hkepx.cn/xiju/5546881.htm)
-- [6G来了 离我们还有多远](http://www.play.hengshemaoyi.cn/kongbu/8488935.htm)
-- [今天喝木薯桃胶炖奶](http://www.play.hengshemaoyi.cn/xiju/5663353.htm)
-- [S16](http://www.movie.hkepx.cn/xiju/5950485.htm)
-- [46岁高圆圆红毛衣生图](http://www.movie.hkepx.cn/movie/9193128.htm)
-- [《原神》角色预告-「米提亚：井井有条」](http://www.daogukj.com/atarmjde/)
-- [2026 年美国中期选举目前选情如何？共和党与民主党谁更占优势？](http://www.play.hengshemaoyi.cn/xiju/9145960.htm)
-- [上班族每月花3600元住酒店代租房](http://www.movie.hkepx.cn/xiju/2578023.htm)
-- [千年乌镇遇新变](http://www.daogukj.com/5709010)
-- [欧冠](http://www.daogukj.com/wpzjvegw/)
-- [延安大学副教授白保国去世，疑因未完成考核指标，如何理解他绝笔信中所述的问题？](http://www.play.hengshemaoyi.cn/xiju/4598532.htm)
-- [美媒体人称特朗普或用核武](http://www.play.hengshemaoyi.cn/kongbu/0125652.htm)
-- [女子在大厅等人 监控被直播调侃身材](http://www.movie.hkepx.cn/xiju/2411242.htm)
-- [暴雨暴雪来了：大范围雨雪将袭南方东北，华南云南立冬后真要降温](http://www.daogukj.com/6900199)
-- [苹果天气bug：多地零下32℃](http://www.movie.hkepx.cn/xiju/8302101.htm)
-- [这轮AI行情给所有人上了一课](http://www.daogukj.com/vrviqqsc/)
-- [“向公安局索赔14万亿美元”二审判了](http://www.daogukj.com/5803945)
-- [中国公务团组人员被瑞典警方拘押，中使馆再发提醒，具体情况如何？海外游玩需注意哪些标识？](http://www.daogukj.com/pggqhldb/)
-- [抖音副总裁恶语回应专家批评](http://www.play.hengshemaoyi.cn/xiju/9613239.htm)
-- [开破车挑战纽北！证明中国人比德国人更会玩车](http://www.movie.hkepx.cn/xiju/1355542.htm)
-- [清华毕业生UCL留学疑遭电诈，账户陆续转出数十万元，邮箱最新留言「我人平安，被诈骗了」，如何看待此事？](http://www.play.hengshemaoyi.cn/xiju/7010661.htm)
-- [思科计划 2 年内用 AI 重写 98%遗留代码，这一目标在工程上可行吗？](http://www.movie.hkepx.cn/xiju/1893259.htm)
-- [iPhone天气下周五温差](http://www.daogukj.com/3906187)
-- [网友自称是厉娜接私活告密当事人](http://www.daogukj.com/3891201)
-- [第1期：南山雪地徒步，邂逅新疆冬日浪漫【此生要去的100个地方 第二季】](http://www.movie.hkepx.cn/movie/0469338.htm)
-- [王玉雯方回应：接受任何署名方式](http://www.play.hengshemaoyi.cn/kongbu/9519674.htm)
-- [iPhone系统天气 下周五-32℃](http://www.daogukj.com/8314048)
-- [英国男子卡尔布什比徒步 28 年环游地球一圈回家，一路经历了哪些难以想象的挑战？这样的坚持意味着什么？](http://www.play.hengshemaoyi.cn/xiju/8783645.htm)
-- [亚洲首富又换人](http://www.play.hengshemaoyi.cn/kongbu/2446487.htm)
-- [易烊千玺和于适粉丝都发了澄清](http://www.movie.hkepx.cn/xiju/1583083.htm)
-- [早晨vs晚上运动差别在哪](http://www.movie.hkepx.cn/movie/7949727.htm)
-- [许飞经纪人 去找厉娜](http://www.movie.hkepx.cn/xiju/7893335.htm)
-- [两个集合间构成了诡异的映射](http://www.movie.hkepx.cn/movie/6332074.htm)
-- [女生刷到另一个自己竟是双胞胎](http://www.movie.hkepx.cn/xiju/9763550.htm)
-- [儿子总发烧 拆卧室墙现大面积霉斑](http://www.movie.hkepx.cn/movie/0911321.htm)
-- [如何看待2027年国考中多省七八成名额来自税务局？](http://www.movie.hkepx.cn/movie/1570496.htm)
-- [美国中期选举](http://www.movie.hkepx.cn/xiju/5460806.htm)
-- [TES极限翻盘iG](http://www.movie.hkepx.cn/xiju/3915542.htm)
-- [女子凌晨被陌生人钻被窝贴脸窥探](http://www.daogukj.com/obnsavya/)
-- [十五年前，我做了 《去月球》](http://www.daogukj.com/thtteqlc/)
-- [胡歌自曝过了40岁身体开始走下坡路，已戒烟很久，出差会背AED，年龄真是分水岭吗？这些措施用处有多大？](http://www.daogukj.com/6398059)
-- [当你只能使用吃过的干员打方舟……](http://www.daogukj.com/5238190)
+- [高梓淇问女友对他妹妹是不是真心的](http://www.daogukj.com/8005923)
+- [科创50大涨近10%](http://www.play.hengshemaoyi.cn/xiju/7463191.htm)
+- [亚洲大学排名揭晓](http://www.movie.hkepx.cn/movie/4169739.htm)
+- [如何看待许飞在《后会友期》中对厉娜的一句剖白「我画地为牢，厉娜」爆火，成为全民玩梗的「画地为牢」文学？](http://www.play.hengshemaoyi.cn/xiju/5874723.htm)
+- [369说被TheShy征服了](http://www.movie.hkepx.cn/movie/3447925.htm)
+- [黄浦江有人放生大批大闸蟹](http://www.play.hengshemaoyi.cn/kongbu/4576162.htm)
+- [王永礼被免去福建省副省长职务](http://www.play.hengshemaoyi.cn/xiju/9969388.htm)
+- [如何看待宇树机器人因过热退出登泰山大赛，被担架抬下山？人形机器人的发展目前还存在哪些技术瓶颈？](http://www.play.hengshemaoyi.cn/kongbu/2274251.htm)
+- [男子戴一晚上外科手套 掌纹清晰可见](http://www.movie.hkepx.cn/xiju/5546881.htm)
+- [“China Haul”为何火遍海外](http://www.play.hengshemaoyi.cn/kongbu/8488935.htm)
+- [魏大勋父亲公司成被执行人](http://www.play.hengshemaoyi.cn/xiju/5663353.htm)
+- [特朗普称对伊朗战争是选举失利原因](http://www.movie.hkepx.cn/xiju/5950485.htm)
+- [谭松韵回应出道21年才36岁](http://www.movie.hkepx.cn/movie/9193128.htm)
+- [挑战不让店员吃外卖第一期：滑蛋鸡腿肉盖饭！小美说还得是新鲜的香！#谢谢侬传承家宴](http://www.daogukj.com/atarmjde/)
+- [为什么古人说昆仑山为万山之祖，而当时昆仑山又不属于我们中原势力范围?](http://www.play.hengshemaoyi.cn/xiju/9145960.htm)
+- [“未婚妻、病床都是假的 转账是真的”](http://www.movie.hkepx.cn/xiju/2578023.htm)
+- [9图看中国互联网发展最新成就](http://www.daogukj.com/5709010)
+- [经常被问我的场景都是怎么弄的？今天直接带大家参观！](http://www.daogukj.com/wpzjvegw/)
+- [厉娜的工作联系方式变了](http://www.play.hengshemaoyi.cn/xiju/4598532.htm)
+- [苹果手机显示13日多地气温低至-30℃，这是怎么回事？是什么问题导致了这种bug？](http://www.play.hengshemaoyi.cn/kongbu/0125652.htm)
+- [中方就中俄美元首会晤保持着沟通](http://www.movie.hkepx.cn/xiju/2411242.htm)
+- [IG击败TES 时隔7年再进S赛四强](http://www.daogukj.com/6900199)
+- [为什么垂直鼠标没有流行起来？](http://www.movie.hkepx.cn/xiju/8302101.htm)
+- [王毅把话说到不可容忍 菲方听懂了吗](http://www.daogukj.com/vrviqqsc/)
+- [女童手表收到恐吓信息 当地警方介入](http://www.daogukj.com/5803945)
+- [2026年美国中期选举，美民主党称夺回参议院，特朗普被指全面惨败，如何理解当前的选情？未来要关注什么？](http://www.daogukj.com/pggqhldb/)
+- [总有世界，与你同频｜《弧光猎人》同频测试PV&国服全新PVP事件预告](http://www.play.hengshemaoyi.cn/xiju/9613239.htm)
+- [交警处理变道事故：直行为啥让你](http://www.movie.hkepx.cn/xiju/1355542.htm)
+- [LPL赛区内战 IG战胜TES晋级四强【2026英雄联盟全球总决赛】](http://www.play.hengshemaoyi.cn/xiju/7010661.htm)
+- [王安宇曾忘还迪丽热巴450元](http://www.movie.hkepx.cn/xiju/1893259.htm)
+- [林一找到了发烧有去医院的证据](http://www.daogukj.com/3906187)
+- [后会友期曾邀约杨幂唐嫣被婉拒](http://www.daogukj.com/3891201)
+- [受网友诱骗跨省流浪一年，名下多了6家公司，欠了一屁股债，银行卡被封，全家低保也差点注销【出发去创作】](http://www.movie.hkepx.cn/movie/0469338.htm)
+- [厉娜该清理朋友圈了](http://www.play.hengshemaoyi.cn/kongbu/9519674.htm)
+- [特朗普：祝贺民主党人](http://www.daogukj.com/8314048)
+- [S16 淘汰赛 iG 3:1 击败 TES 时隔七年重回四强，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/xiju/8783645.htm)
+- [网络热传生物鉴定 第65期](http://www.play.hengshemaoyi.cn/kongbu/2446487.htm)
+- [坚果脂肪这么高为什么还推荐吃](http://www.movie.hkepx.cn/xiju/1583083.htm)
+- [如何评价 369 在 S16 全球总决赛上的整体表现？](http://www.movie.hkepx.cn/movie/7949727.htm)
+- [马斯克4.74亿助选刷美国新纪录](http://www.movie.hkepx.cn/xiju/7893335.htm)
+- [锐评S16 IG战胜TES：Wei哥超神发挥游龙！IG挺进四强！](http://www.movie.hkepx.cn/movie/6332074.htm)
+- [A股暴力反弹原因](http://www.movie.hkepx.cn/xiju/9763550.htm)
+- [小伙称200多万买14套房 年收租21万](http://www.movie.hkepx.cn/movie/0911321.htm)
+- [肖战四部剧都上榜了](http://www.movie.hkepx.cn/movie/1570496.htm)
+- [伊朗议长：美选举结果表明对战争说不](http://www.movie.hkepx.cn/xiju/5460806.htm)
+- [中方回应美国中期选举](http://www.movie.hkepx.cn/xiju/3915542.htm)
+- [谁是半导体Q3净利润之王](http://www.daogukj.com/obnsavya/)
+- [国台办回应台退役金门舰转交菲律宾](http://www.daogukj.com/thtteqlc/)
+- [小猫以前的工作很辛苦吧](http://www.daogukj.com/6398059)
+- [半导体板块集体爆发](http://www.daogukj.com/5238190)
 
 </details>
 
 ## 原始来源
 
-- [死磕电缆40年 这个县城干成了](https://www.baidu.com/s?wd=%E6%AD%BB%E7%A3%95%E7%94%B5%E7%BC%8640%E5%B9%B4+%E8%BF%99%E4%B8%AA%E5%8E%BF%E5%9F%8E%E5%B9%B2%E6%88%90%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news)
+- [新版 007 人选尘埃落定，Dua Lipa 老公卡勒姆·特纳将出演詹姆斯·邦德，如何评价这一选角？](https://www.zhihu.com/question/2100899950850565274)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d50cb5f50810c67c901e -->
+<!-- content-fingerprint: 4f31350ac09128bc4ad5 -->
