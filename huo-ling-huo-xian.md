@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 如何看待广州一公司控告多名员工因降薪而工作懈怠，导致公司结业？
+# 全国首个冷门绝学学院成立，研究方向覆盖甲骨学、简帛学、西夏文、突厥文等，如何评价其研究方向和培养模式？
 
-> 来源：知乎热榜 · 排名：第 20 位 · 热度：152 万热度 · 分类：问答 · 更新：2026-11-08T16:44:11+08:00
+> 来源：知乎热榜 · 排名：第 21 位 · 热度：233 万热度 · 分类：问答 · 更新：2026-11-08T23:36:23+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何看待广州一公司控告多名员工因降薪而工作懈怠，导致公司结业？”位列第 20 位，公开热度指标为 152 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“全国首个冷门绝学学院成立，研究方向覆盖甲骨学、简帛学、西夏文、突厥文等，如何评价其研究方向和培养模式？”位列第 21 位，公开热度指标为 233 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：[图片]
+来源公开摘要显示：11月6日，全国高校首个冷门绝学学院在中国社会科学院大学揭牌成立，引来社会关注。 据报道，该学院聚焦古文字、中华典籍文献研究，覆盖甲骨学、简帛学、西夏文、突厥文等民族古文字方向，配套建设数智绝学实验室，推行“首席导师+跨学科副导师”双导师制、本硕博贯通培养、师徒传习模式。 同时，该校还牵头组建了全国冷门绝学联盟，联合80余家高校、科研院所与文博单位，推动资源共享、协同攻关、人才共育，合力破解冷门绝学人才断层、资源分散难题，推动冷门不冷、绝学不绝。开办冷门绝学学院，把“冷板凳”坐热乎
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [《完美婚礼》](you-sheng-you-se.md)
-- [卫生间渗水 维修人员灌了几十斤胶水](yin-ren-ru-sheng.md)
-- [曝12岁小糯米英国留学](jing-di-zhi-wa.md)
-- [雪后八达岭长城“长”满人](hai-kuo-tian-kong.md)
+- [你就不能一手抓保研，一手抓实习，一手抓竞赛，一手抓考公，一手抓考证，一手抓综测……](you-sheng-you-se.md)
+- [张艺谋：电影不再是精英艺术](yin-ren-ru-sheng.md)
+- [幼童烫伤死亡父母不该被跳过](jing-di-zhi-wa.md)
+- [媒体评11元买房：踩踏鹤岗城市形象](hai-kuo-tian-kong.md)
 
 ## 站内推荐
 
-- [大连雪大到转播镜头找不到球](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [中国短剧霸榜全球，百强榜拿下82席，下载收入包揽前三，美国付费，东南亚、拉美冲量，还有多久红利期？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [《红楼梦》里，假如大观园拆了，把里面的人都放出来各自谋生，你觉得谁讨生活的能力更强？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [灯塔水母真能长生不老吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [如何评价波兰发生恐怖袭击致 6 死 16 伤，枪手被「极右翼意识形态」蛊惑，并「持极端民族主义观点」？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [中超第 30 轮，大连英博 3-1 天津津门虎，完成史诗大逆转夺冠，如何评价本场比赛？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [如何看待广州一公司控告多名员工因降薪而工作懈怠，导致公司结业？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [人类饲养指南](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [多地追缴社保和公积金不设时效限制](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [怎么看待男子在出租公寓内坠亡，二房东被判担责40%赔偿76万余元?法律责任是如何划分的？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [金晨从上海搬家到三亚](http://www.daogukj.com/8005923)
-- [秦皇岛居民称20年没见过这么大雪](http://www.play.hengshemaoyi.cn/xiju/7463191.htm)
-- [人死前百分百想妈妈](http://www.movie.hkepx.cn/movie/4169739.htm)
-- [《红楼梦》里，假如大观园拆了，把里面的人都放出来各自谋生，你觉得谁讨生活的能力更强？](http://www.play.hengshemaoyi.cn/xiju/5874723.htm)
-- [山东泰山vs成都蓉城](http://www.movie.hkepx.cn/movie/3447925.htm)
-- [男子公寓坠亡 房东被判赔76万元](http://www.play.hengshemaoyi.cn/kongbu/4576162.htm)
-- [11元拍下鹤岗60多平房子买家发声](http://www.play.hengshemaoyi.cn/xiju/9969388.htm)
-- [54 岁大哥自学AI短剧登顶红果榜，团队成员一年还清债务，普通人真能靠AI翻身吗？有啥值得借鉴的思路？](http://www.play.hengshemaoyi.cn/kongbu/2274251.htm)
-- [40岁男子用36分钟聊爱情爆火](http://www.movie.hkepx.cn/xiju/5546881.htm)
-- [新老朋友集中亮相进博会](http://www.play.hengshemaoyi.cn/kongbu/8488935.htm)
-- [人类饲养指南](http://www.play.hengshemaoyi.cn/xiju/5663353.htm)
-- [成都球迷](http://www.movie.hkepx.cn/xiju/5950485.htm)
-- [比亚迪腾势N8首批实车到店](http://www.movie.hkepx.cn/movie/9193128.htm)
-- [一条很长很长很长很长的人......](http://www.daogukj.com/atarmjde/)
-- [据传 ChatGPT 开始大规模封号，是真的吗？原因可能是什么？](http://www.play.hengshemaoyi.cn/xiju/9145960.htm)
-- [吴磊求拥抱被拒 大姐：不知道是明星](http://www.movie.hkepx.cn/xiju/2578023.htm)
-- [驰而不息正风肃纪](http://www.daogukj.com/5709010)
-- [火柴人 VS 动画师 第十四集 黑暗时代（The Dark Age）](http://www.daogukj.com/wpzjvegw/)
-- [芒果买了三人行复播](http://www.play.hengshemaoyi.cn/xiju/4598532.htm)
-- [沙特首都遇袭石油公司大楼受损](http://www.play.hengshemaoyi.cn/kongbu/0125652.htm)
-- [13岁女孩每天跳绳1000下半月板受损](http://www.movie.hkepx.cn/xiju/2411242.htm)
-- [网友偶遇杨超越拍摄跑800米](http://www.daogukj.com/6900199)
-- [玩单机游戏也存在有天赋这个说法吗？](http://www.movie.hkepx.cn/xiju/8302101.htm)
-- [中超争冠生变：英博领先蓉城落后](http://www.daogukj.com/vrviqqsc/)
-- [希拉里称不担心特朗普赦免马斯克](http://www.daogukj.com/5803945)
-- [优酷被指在剧中插入占1/3屏幕，持续10秒的巨大广告，其回应可快进或自行关闭，你怎么看这种弹幕广告？](http://www.daogukj.com/pggqhldb/)
-- [【战双帕弥什】预告PV | 命运的果实](http://www.play.hengshemaoyi.cn/xiju/9613239.htm)
-- [男子被裁后成功追缴社保17万](http://www.movie.hkepx.cn/xiju/1355542.htm)
-- [东风-61 已列装到火箭军，这意味着什么？](http://www.play.hengshemaoyi.cn/xiju/7010661.htm)
-- [杨瀚森NBA生涯首次两双](http://www.movie.hkepx.cn/xiju/1893259.htm)
-- [小糯米才12岁](http://www.daogukj.com/3906187)
-- [后会友期 权利的角度](http://www.daogukj.com/3891201)
-- [⚡弟子扫荡异界诡校⚡](http://www.movie.hkepx.cn/movie/0469338.htm)
-- [许飞对詹青云还是太包庇了](http://www.play.hengshemaoyi.cn/kongbu/9519674.htm)
-- [多地延迟到校取消早读 家长发声](http://www.daogukj.com/8314048)
-- [S16 半决赛 GEN 3:0 淘汰 iG 晋级决赛，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/xiju/8783645.htm)
+- [女子打轻薄针后脸垮得像老人](http://www.daogukj.com/8005923)
+- [大连主帅被泼啤酒滑倒光速变脸](http://www.play.hengshemaoyi.cn/xiju/7463191.htm)
+- [外媒热议蓉城丢冠：世纪崩盘](http://www.movie.hkepx.cn/movie/4169739.htm)
+- [人类饲养指南](http://www.play.hengshemaoyi.cn/xiju/5874723.htm)
+- [疑似秦始皇儿子遗骸遭肢解](http://www.movie.hkepx.cn/movie/3447925.htm)
+- [你擦亮眼睛，看看是谁在闹](http://www.play.hengshemaoyi.cn/kongbu/4576162.htm)
+- [秦皇岛居民称20年没见过这么大雪](http://www.play.hengshemaoyi.cn/xiju/9969388.htm)
+- [你如何看待人民日报客户端刊发的评论《一有分歧就举报，老师还怎么教孩子？》？](http://www.play.hengshemaoyi.cn/kongbu/2274251.htm)
+- [陈妍希 还是当年那个沈佳宜](http://www.movie.hkepx.cn/xiju/5546881.htm)
+- [好记者讲好故事首次进校园](http://www.play.hengshemaoyi.cn/kongbu/8488935.htm)
+- [20公斤陨石砸进石家庄农田](http://www.play.hengshemaoyi.cn/xiju/5663353.htm)
+- [山姆多款始祖鸟加拿大鹅被抢空](http://www.movie.hkepx.cn/xiju/5950485.htm)
+- [《相 忘 江 湖！》](http://www.movie.hkepx.cn/movie/9193128.htm)
+- [蔡少芬一家五口在香港住83平的房子](http://www.daogukj.com/atarmjde/)
+- [秦皇岛暴雪160斤男子被吹出电音](http://www.play.hengshemaoyi.cn/xiju/9145960.htm)
+- [无锡女厕惊现站立式小便厕位](http://www.movie.hkepx.cn/xiju/2578023.htm)
+- [最后一位开国将军王扶之逝世，享年 104 岁，如何评价他的贡献？](http://www.daogukj.com/5709010)
+- [⚡弟子扫荡异界诡校⚡](http://www.daogukj.com/wpzjvegw/)
+- [【2026全球总决赛】11月8日 IG vs GEN](http://www.play.hengshemaoyi.cn/xiju/4598532.htm)
+- [哪些名字能拯救牛这个姓氏？](http://www.play.hengshemaoyi.cn/kongbu/0125652.htm)
+- [蓉城球迷到球队下榻酒店喊主帅下课](http://www.movie.hkepx.cn/xiju/2411242.htm)
+- [演员阿颜扁桃体切除术后不幸离世](http://www.daogukj.com/6900199)
+- [卡夫卡为什么要在临死前让好友把他未发表的作品全部销毁？](http://www.movie.hkepx.cn/xiju/8302101.htm)
+- [中超第 30 轮，成都蓉城 2-3 山东鲁能，煮熟的冠军长翅膀飞了，如何评价本场比赛？](http://www.daogukj.com/vrviqqsc/)
+- [曝迪丽热巴没买房常年住酒店](http://www.daogukj.com/5803945)
+- [54 岁大哥自学AI短剧登顶红果榜，团队成员一年还清债务，普通人真能靠AI翻身吗？有啥值得借鉴的思路？](http://www.daogukj.com/pggqhldb/)
+- [小糯米才12岁](http://www.play.hengshemaoyi.cn/xiju/9613239.htm)
+- [王大雷：年少说过的话兄弟帮我完成了](http://www.movie.hkepx.cn/xiju/1355542.htm)
+- [《灭霸全家福》灭霸的爸爸是灭建国，被艾特的都是扎啤！](http://www.play.hengshemaoyi.cn/xiju/7010661.htm)
+- [成都主帅：暂不考虑辞职](http://www.movie.hkepx.cn/xiju/1893259.htm)
+- [比亚迪超豪华行政旗舰仰望「鼎曜」全球首秀，这款车的市场竞争力如何？](http://www.daogukj.com/3906187)
+- [太原一建筑发生火灾致5人死亡](http://www.daogukj.com/3891201)
+- [女子查到男友父亲有案底后崩溃](http://www.movie.hkepx.cn/movie/0469338.htm)
+- [史诗级逆转！英博夺队史中超首冠](http://www.play.hengshemaoyi.cn/kongbu/9519674.htm)
+- [大连英博夺得中超冠军](http://www.daogukj.com/8314048)
+- [【时间啊，向前！】TL-EX-1至TL-EX-8突袭 摆完挂机 简单好抄](http://www.play.hengshemaoyi.cn/xiju/8783645.htm)
 - [到底摔了几个](http://www.play.hengshemaoyi.cn/kongbu/2446487.htm)
-- [大连球迷风雪中为大连队加油](http://www.movie.hkepx.cn/xiju/1583083.htm)
-- [网友问今何在能否与江南一起上《后会友期》遭其无情拒绝并表示「江南是谁」，江南和今何在到底有啥爱恨情仇？](http://www.movie.hkepx.cn/movie/7949727.htm)
-- [沈腾为了收视率不择手段了](http://www.movie.hkepx.cn/xiju/7893335.htm)
-- [居里家族400年传奇：原来智商真的会遗传？](http://www.movie.hkepx.cn/movie/6332074.htm)
-- [中超](http://www.movie.hkepx.cn/xiju/9763550.htm)
-- [卫生间渗水 维修人员灌了几十斤胶水](http://www.movie.hkepx.cn/movie/0911321.htm)
-- [曝12岁小糯米英国留学](http://www.movie.hkepx.cn/movie/1570496.htm)
-- [大连雪大到转播镜头找不到球](http://www.movie.hkepx.cn/xiju/5460806.htm)
-- [大三男生做AI漫剧营收超300万](http://www.movie.hkepx.cn/xiju/3915542.htm)
-- [九寨沟怎么就变成了“肘寨沟”](http://www.daogukj.com/obnsavya/)
-- [最后一位开国将军王扶之逝世](http://www.daogukj.com/thtteqlc/)
-- [S赛怀旧金曲《BLG带带我》](http://www.daogukj.com/6398059)
-- [手机里的隐私可能正在被“直播”](http://www.daogukj.com/5238190)
+- [C罗的口碑为什么塌了](http://www.movie.hkepx.cn/xiju/1583083.htm)
+- [《红楼梦》里，假如大观园拆了，把里面的人都放出来各自谋生，你觉得谁讨生活的能力更强？](http://www.movie.hkepx.cn/movie/7949727.htm)
+- [张艺谋直言AI的技术飞跃带来平视感，「电影不再是精英的艺术，普通人都是导演、编剧」，怎么看待这一观点？](http://www.movie.hkepx.cn/xiju/7893335.htm)
+- [文吉儿微信名](http://www.movie.hkepx.cn/movie/6332074.htm)
+- [疑似秦始皇儿子头骨面容复原图](http://www.movie.hkepx.cn/xiju/9763550.htm)
+- [张艺谋：电影不再是精英艺术](http://www.movie.hkepx.cn/movie/0911321.htm)
+- [幼童烫伤死亡父母不该被跳过](http://www.movie.hkepx.cn/movie/1570496.htm)
+- [中超第 30 轮，大连英博 3-1 天津津门虎，完成史诗大逆转夺冠，如何评价本场比赛？](http://www.movie.hkepx.cn/xiju/5460806.htm)
+- [优质蛋白食物第一名出炉](http://www.movie.hkepx.cn/xiju/3915542.htm)
+- [越南消费为什么这么猛](http://www.daogukj.com/obnsavya/)
+- [澳企一年炼出62吨重稀土意味着什么](http://www.daogukj.com/thtteqlc/)
+- [《崩坏：星穹铁道》星神★阿哈角色PV——「让骰子飞」](http://www.daogukj.com/6398059)
+- [72岁赵雅芝原相机状态](http://www.daogukj.com/5238190)
 
 </details>
 
 ## 原始来源
 
-- [如何看待广州一公司控告多名员工因降薪而工作懈怠，导致公司结业？](https://www.zhihu.com/question/2101996437701768493)
+- [全国首个冷门绝学学院成立，研究方向覆盖甲骨学、简帛学、西夏文、突厥文等，如何评价其研究方向和培养模式？](https://www.zhihu.com/question/2102501275430543649)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4d6e0cd0818fb4650e64 -->
+<!-- content-fingerprint: 814ef54715c1031117e7 -->
