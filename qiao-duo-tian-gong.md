@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 为什么腾讯一直坚持买ds的token免费发给用户也不愿意自己部署ds？
+# 韦世豪 成都蓉城
 
-> 来源：知乎热榜 · 排名：第 19 位 · 热度：65 万热度 · 分类：问答 · 更新：2026-11-09T07:24:52+08:00
+> 来源：微博热搜 · 排名：第 19 位 · 热度：387837 · 分类：体育 · 更新：2026-11-09T10:51:42+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“为什么腾讯一直坚持买ds的token免费发给用户也不愿意自己部署ds？”位列第 19 位，公开热度指标为 65 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“韦世豪 成都蓉城”位列第 19 位，公开热度指标为 387837，榜单分类为“体育”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：自己部署ds成本应该更低吧
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`微博热搜` `实时热搜` `热点资讯` `体育`
 
 ## 相关热点
 
-- [居里家族400年传奇：原来智商真的会遗传？](gui-fu-shen-gong.md)
-- [张艺谋：电影不再是精英艺术](jin-shang-tian-hua.md)
-- [F1](hua-long-dian-jing.md)
-- [全国消防日 向消防员致敬](miao-bi-sheng-hua.md)
+- [中国空间站刷新人类最低温纪录](gui-fu-shen-gong.md)
+- [大三男生宿舍手搓 AI 漫剧不到一年营收超 300 万，这是怎么做到的？实际赚了多少？普通人能效仿吗？](jin-shang-tian-hua.md)
+- [《小小滔搏两个人》369回国珍贵录像](hua-long-dian-jing.md)
+- [中国战队首次在世界赛BO5战胜T1](miao-bi-sheng-hua.md)
 
 ## 站内推荐
 
-- [大连文体旅：对山东老铁免费100天](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [大连外援走出“六亲不认”的步伐](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [老人数量第一次比孩子多](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [据传 ChatGPT 开始大规模封号，是真的吗？原因可能是什么？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [2岁幼童被开水烫伤后去世，无偿照看者遭索赔116万、最终赔偿15万元，为何这也要担责？法律上如何分析？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [BLG战胜T1 挺进S16决赛](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [央视曝光后 江西赣州连夜成立调查组](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [20公斤陨石砸进石家庄农田](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [黄仁勋41年爱妻人设崩塌](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [67岁阿姨因颜值恋上78岁大爷](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [发生日快乐才知老同学已离世](http://www.movie.hkepx.cn/movie/3926125.htm)
-- [这游戏是很多人的一辈子](http://www.daogukj.com/jbrqqhbh/)
-- [哪些名字能拯救牛这个姓氏？](http://www.daogukj.com/6283106)
-- [2627赛季英超联赛英超第10轮曼联 4:4 阿斯顿维拉，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/xiju/3501535.htm)
-- [54 岁大哥自学AI短剧登顶红果榜，团队成员一年还清债务，普通人真能靠AI翻身吗？有啥值得借鉴的思路？](http://www.daogukj.com/tfcvjhpk/)
+- [“这是给孩子的，不是给你的”](http://www.movie.hkepx.cn/movie/3926125.htm)
+- [热巴住酒店15年的真实原因](http://www.daogukj.com/jbrqqhbh/)
+- [徐艺洋这身材穿个麻袋都好看](http://www.daogukj.com/6283106)
+- [韦世豪停赛缺席中超最后4轮，成都蓉城4连败最终丢冠，有因果关系吗？他的停赛影响有多大？](http://www.play.hengshemaoyi.cn/xiju/3501535.htm)
+- [把娃户口挪去东北（比如鹤岗），读高中和高考，是否可行？ 哪个城市比较建议？](http://www.daogukj.com/tfcvjhpk/)
 - [【独家】牧神记 第108集 相逢何必曾相识](http://www.daogukj.com/4841868)
-- [早田希娜法兰克福站冠军](http://www.play.hengshemaoyi.cn/kongbu/6429820.htm)
-- [中国消费图景向新向优](http://www.daogukj.com/jehuxdgs/)
-- [曼联4比4阿斯顿维拉](http://www.movie.hkepx.cn/xiju/1384580.htm)
-- [S16半决赛：BLG对阵T1](http://www.daogukj.com/qyeqjnqv/)
-- [徐艺洋这身材穿个麻袋都好看](http://www.movie.hkepx.cn/movie/7212048.htm)
-- [毛晓彤暗黑风造型被说有违和感](http://www.movie.hkepx.cn/xiju/5780029.htm)
-- [6层居民楼5户反映噪音扰民 民警蹲守](http://www.daogukj.com/efezhgld/)
-- [曝《后会友期》中文吉儿选择下车翻篇求和，王子璇坚决不下车，如何看待两人的选择？](http://www.play.hengshemaoyi.cn/kongbu/8328027.htm)
-- [男子留宿酒店大堂3天 民警暖心救助](http://www.movie.hkepx.cn/xiju/5360773.htm)
-- [S赛怀旧金曲《BLG带带我》](http://www.movie.hkepx.cn/movie/9566975.htm)
-- [《灭霸全家福》灭霸的爸爸是灭建国，被艾特的都是扎啤！](http://www.daogukj.com/8649041)
-- [金晨透露已举家搬迁至三亚](http://www.daogukj.com/zvuykujr/)
-- [妻子在家私装监控拍下丈夫出轨被认定非法证据，从法律角度该如何解读？](http://www.daogukj.com/smataala/)
-- [影之刃零：斗地主Mod 和任意BOSS打牌](http://www.daogukj.com/mzqlfhhq/)
-- [疑似秦始皇儿子遗骸遭肢解](http://www.play.hengshemaoyi.cn/kongbu/8184754.htm)
-- [居里家族400年传奇：原来智商真的会遗传？](http://www.movie.hkepx.cn/movie/8042143.htm)
+- [Faker太夸张了](http://www.play.hengshemaoyi.cn/kongbu/6429820.htm)
+- [透过关键词解码进博会](http://www.daogukj.com/jehuxdgs/)
+- [米哈游你是真想再赢啊！因缘精灵幸福pv逐帧拆解](http://www.movie.hkepx.cn/xiju/1384580.htm)
+- [战胜T1 就在今天](http://www.daogukj.com/qyeqjnqv/)
+- [因试用期 6 个月没转正，离职人员篡改后台数据致企业数百万损失，有哪些警示？职场遇这种情况该怎么处理？](http://www.movie.hkepx.cn/movie/7212048.htm)
+- [为什么小米、华为、理想、小鹏、蔚来等新能源车企虽然有竞争，却都不约而同要放弃和宁德时代的单一合作？](http://www.movie.hkepx.cn/xiju/5780029.htm)
+- [大连主帅被泼啤酒滑倒光速变脸](http://www.daogukj.com/efezhgld/)
+- [曹操和刘备死后，孙权便是天下第一雄主，而且正值壮年，为什么不能一统天下？](http://www.play.hengshemaoyi.cn/kongbu/8328027.htm)
+- [网站统计《影之刃零》完美通关仅 31.5 小时，玩家质疑不可能，这个数据合理吗？](http://www.movie.hkepx.cn/xiju/5360773.htm)
+- [练普拉提就能掰正骨盆？医生辟谣](http://www.movie.hkepx.cn/movie/9566975.htm)
+- [影之刃零：斗地主Mod 和任意BOSS打牌](http://www.daogukj.com/8649041)
+- [破坏秦始皇陵最高可罚千万](http://www.daogukj.com/zvuykujr/)
+- [里夫斯43分湖人胜活塞](http://www.daogukj.com/smataala/)
+- [疑似秦始皇儿子头骨面容复原图公布](http://www.daogukj.com/mzqlfhhq/)
+- [BLG成首支S赛BO5战胜T1的LPL战队](http://www.play.hengshemaoyi.cn/kongbu/8184754.htm)
+- [中国空间站刷新人类最低温纪录](http://www.movie.hkepx.cn/movie/8042143.htm)
 - [【神人短剧】🔥最新力作🔥农村大席之抽象盛宴，联动mj宇宙【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/7145463.htm)
-- [《持械入宋》背后的6人“草台班子”](http://www.play.hengshemaoyi.cn/kongbu/4548535.htm)
-- [演员阿颜扁桃体切除术后不幸离世](http://www.daogukj.com/0313251)
-- [怎么看待男子在出租公寓内坠亡，二房东被判担责40%赔偿76万余元?法律责任是如何划分的？](http://www.play.hengshemaoyi.cn/kongbu/0820222.htm)
-- [许飞 我作茧自缚](http://www.daogukj.com/btolggbq/)
-- [张艺谋：电影不再是精英艺术](http://www.play.hengshemaoyi.cn/xiju/2703241.htm)
-- [秦皇岛居民称20年没见过这么大雪](http://www.play.hengshemaoyi.cn/xiju/1475778.htm)
-- [南京辟谣“31岁医生被刺身亡”](http://www.play.hengshemaoyi.cn/xiju/4475779.htm)
-- [越南有潜力成为下一个崛起大国吗？](http://www.play.hengshemaoyi.cn/xiju/3969235.htm)
-- [日本统治韩国40年，为什么却没能同化韩国？](http://www.play.hengshemaoyi.cn/kongbu/1797022.htm)
-- [金子涵被骗](http://www.movie.hkepx.cn/xiju/9886322.htm)
-- [陈妍希 还是当年那个沈佳宜](http://www.play.hengshemaoyi.cn/xiju/1914744.htm)
-- [大连主帅被泼啤酒滑倒光速变脸](http://www.movie.hkepx.cn/movie/2301491.htm)
-- [欢迎来到实力至上主义校园](http://www.play.hengshemaoyi.cn/xiju/2353249.htm)
-- [火柴人 VS 动画师 第十四集 黑暗时代（The Dark Age）](http://www.daogukj.com/fownzino/)
-- [大连景区对山东人免费](http://www.play.hengshemaoyi.cn/xiju/3652466.htm)
-- [2岁幼童被开水烫伤后去世，无偿照看者遭索赔116万、最终赔偿15万元，为何这也要担责？法律上如何分析？](http://www.daogukj.com/7447842)
-- [大连文体旅：对山东老铁免费100天](http://www.daogukj.com/kzpjmnze/)
-- [王一博2天获2次亚军](http://www.play.hengshemaoyi.cn/kongbu/4160936.htm)
-- [气温骤降 买冬装看完这篇再下单](http://www.daogukj.com/5391271)
-- [内塔尼亚胡还能当多久总理](http://www.play.hengshemaoyi.cn/xiju/1037193.htm)
-- [史诗级逆转！英博夺队史中超首冠](http://www.daogukj.com/4166842)
-- [医生提醒：三类人群要慎食羊肉](http://www.movie.hkepx.cn/xiju/6638941.htm)
-- [立冬后建议改一下睡觉时间](http://www.play.hengshemaoyi.cn/kongbu/4151588.htm)
-- [中国短剧霸榜全球，百强榜拿下82席，下载收入包揽前三，美国付费，东南亚、拉美冲量，还有多久红利期？](http://www.daogukj.com/jguwcjlw/)
-- [红色新闻人的浴血征程](http://www.movie.hkepx.cn/xiju/6322184.htm)
-- [黄仁勋承认出轨](http://www.play.hengshemaoyi.cn/xiju/2530472.htm)
-- [蓉城主帅：我非常失望非常绝望](http://www.daogukj.com/5202971)
+- [最强厄尔尼诺来了 这个冬天怎么过](http://www.play.hengshemaoyi.cn/kongbu/4548535.htm)
+- [特朗普：“铁门”特遣行动正全面展开](http://www.daogukj.com/0313251)
+- [金子涵前几天露宿街头](http://www.play.hengshemaoyi.cn/kongbu/0820222.htm)
+- [多兰 LPL的好兄弟](http://www.daogukj.com/btolggbq/)
+- [大三男生宿舍手搓 AI 漫剧不到一年营收超 300 万，这是怎么做到的？实际赚了多少？普通人能效仿吗？](http://www.play.hengshemaoyi.cn/xiju/2703241.htm)
+- [帅化民：台军兵推像在做梦](http://www.play.hengshemaoyi.cn/xiju/1475778.htm)
+- [你擦亮眼睛，看看是谁在闹](http://www.play.hengshemaoyi.cn/xiju/4475779.htm)
+- [实验猴涨至26万一只，部分养殖企业已无猴可售，会对医药行业产生哪些影响？涨价热潮可能还会持续多久？](http://www.play.hengshemaoyi.cn/xiju/3969235.htm)
+- [Faker笑着向粉丝告别](http://www.play.hengshemaoyi.cn/kongbu/1797022.htm)
+- [南京辟谣“31岁医生被刺身亡”](http://www.movie.hkepx.cn/xiju/9886322.htm)
+- [疑秦始皇儿子头骨面容复原图公布](http://www.play.hengshemaoyi.cn/xiju/1914744.htm)
+- [胖东来：哪怕赔付到破产也要坚守原则](http://www.movie.hkepx.cn/movie/2301491.htm)
+- [《完美婚礼》](http://www.play.hengshemaoyi.cn/xiju/2353249.htm)
+- [内塔尼亚胡还能当多久总理](http://www.daogukj.com/fownzino/)
+- [S赛怀旧金曲《BLG带带我》](http://www.play.hengshemaoyi.cn/xiju/3652466.htm)
+- [67岁阿姨因颜值恋上78岁大爷](http://www.daogukj.com/7447842)
+- [BLG战胜T1 挺进S16决赛](http://www.daogukj.com/kzpjmnze/)
+- [人类是不是无法想象出来从来没见过的东西？](http://www.play.hengshemaoyi.cn/kongbu/4160936.htm)
+- [如何评价 the shy 选手赛后采访表示“希望 chovy 选手夺冠”？](http://www.daogukj.com/5391271)
+- [央视曝光桂林扶梯只建不养](http://www.play.hengshemaoyi.cn/xiju/1037193.htm)
+- [【最新】波兰枪击案致6死15伤，男子持步枪疯狂扫射广场人群！EP426](http://www.daogukj.com/4166842)
+- [多地向市民免费赠花](http://www.movie.hkepx.cn/xiju/6638941.htm)
+- [大连GDP完成“逆袭之战”](http://www.play.hengshemaoyi.cn/kongbu/4151588.htm)
+- [“从此11月8日忆山东兄弟”](http://www.daogukj.com/jguwcjlw/)
+- [“把想法带到中国就能实现”](http://www.movie.hkepx.cn/xiju/6322184.htm)
+- [BLG战胜T1](http://www.play.hengshemaoyi.cn/xiju/2530472.htm)
+- [气温骤降 买冬装看完这篇再下单](http://www.daogukj.com/5202971)
 
 </details>
 
 ## 原始来源
 
-- [为什么腾讯一直坚持买ds的token免费发给用户也不愿意自己部署ds？](https://www.zhihu.com/question/2101848429152429625)
+- [韦世豪 成都蓉城](https://s.weibo.com/weibo?q=%E9%9F%A6%E4%B8%96%E8%B1%AA%20%E6%88%90%E9%83%BD%E8%93%89%E5%9F%8E)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 707f0b3620ea99cc6b2e -->
+<!-- content-fingerprint: 5cd57a76eadf08b89436 -->

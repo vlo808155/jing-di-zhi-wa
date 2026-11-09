@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 妻子在家私装监控拍下丈夫出轨被认定非法证据，从法律角度该如何解读？
+# 里夫斯43分湖人胜活塞
 
-> 来源：知乎热榜 · 排名：第 18 位 · 热度：67 万热度 · 分类：问答 · 更新：2026-11-09T07:24:52+08:00
+> 来源：微博热搜 · 排名：第 18 位 · 热度：388308 · 分类：体育 · 更新：2026-11-09T10:51:42+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“妻子在家私装监控拍下丈夫出轨被认定非法证据，从法律角度该如何解读？”位列第 18 位，公开热度指标为 67 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“里夫斯43分湖人胜活塞”位列第 18 位，公开热度指标为 388308，榜单分类为“体育”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：“我在自己家装监控，为什么违法？” 陈婷（化名）称，她在家中安装了监控，拍下丈夫出轨的画面。 2025年8月，她将丈夫刘海（化名）诉至法院，请求离婚，分割财产。法庭上，她称丈夫在家的三个月里，有陌生女性80多次上门，部分女子与他发生不正当关系。她提交监控视频，怀疑对方嫖娼。 对此，一审法院认为，两人虽系夫妻，但刘海亦享有隐私权。陈婷私自隐匿安装摄像头，具有严重的不法、背俗性，故对该证据不予采用。 陈婷表示，警方已介入调查，但暂时没有处置结果，“他们说，已经抓到几个人了，正在研判案件是否过追溯时限的问题。” 律师表示，取证手段违法，法院有权排除相关证据。陈
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`微博热搜` `实时热搜` `热点资讯` `体育`
 
 ## 相关热点
 
-- [影之刃零：斗地主Mod 和任意BOSS打牌](ming-cha-qiu-hao.md)
-- [大连主帅被浇啤酒闪躲时摔倒](jian-wei-zhi-zhu.md)
-- [曼联4比4阿斯顿维拉](du-ju-hui-yan.md)
-- [蓉城主帅：我非常失望非常绝望](bie-ju-jiang-xin.md)
+- [疑似秦始皇儿子头骨面容复原图公布](ming-cha-qiu-hao.md)
+- [亚咲花发声质疑「动画歌手」市场需求，这一职业为何会逐渐被边缘化？](jian-wei-zhi-zhu.md)
+- [米哈游你是真想再赢啊！因缘精灵幸福pv逐帧拆解](du-ju-hui-yan.md)
+- [气温骤降 买冬装看完这篇再下单](bie-ju-jiang-xin.md)
 
 ## 站内推荐
 
-- [《持械入宋》背后的6人“草台班子”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [S16半决赛：BLG对阵T1](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [中国短剧霸榜全球，百强榜拿下82席，下载收入包揽前三，美国付费，东南亚、拉美冲量，还有多久红利期？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [如何评价波兰发生恐怖袭击致 6 死 16 伤，枪手被「极右翼意识形态」蛊惑，并「持极端民族主义观点」？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [日本统治韩国40年，为什么却没能同化韩国？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [最强厄尔尼诺来了 这个冬天怎么过](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [战胜T1 就在今天](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [“从此11月8日忆山东兄弟”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [ON萨勒芬妮大招控到T1四人](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [Faker笑着向粉丝告别](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [BLG对战T1](http://www.play.hengshemaoyi.cn/kongbu/7686149.htm)
-- [内塔尼亚胡还能当多久总理](http://www.movie.hkepx.cn/movie/4579405.htm)
-- [大连外援走出“六亲不认”的步伐](http://www.movie.hkepx.cn/xiju/3169477.htm)
-- [居里家族400年传奇：原来智商真的会遗传？](http://www.movie.hkepx.cn/xiju/8635128.htm)
+- [Faker告别S16](http://www.play.hengshemaoyi.cn/kongbu/7686149.htm)
+- [央视曝光桂林扶梯只建不养](http://www.movie.hkepx.cn/movie/4579405.htm)
+- [央视曝光后 江西赣州连夜成立调查组](http://www.movie.hkepx.cn/xiju/3169477.htm)
+- [中国空间站刷新人类最低温纪录](http://www.movie.hkepx.cn/xiju/8635128.htm)
 - [“今日我虽死，却还是！！！”](http://www.play.hengshemaoyi.cn/kongbu/9338626.htm)
-- [蓉城主帅：我非常失望非常绝望](http://www.play.hengshemaoyi.cn/kongbu/1542166.htm)
-- [曝迪丽热巴没买房常年住酒店](http://www.daogukj.com/0287665)
-- [怎么看待男子在出租公寓内坠亡，二房东被判担责40%赔偿76万余元?法律责任是如何划分的？](http://www.movie.hkepx.cn/movie/7272745.htm)
-- [大连文体旅：对山东老铁免费100天](http://www.play.hengshemaoyi.cn/xiju/6780679.htm)
-- [【最新】波兰枪击案致6死15伤，男子持步枪疯狂扫射广场人群！EP426](http://www.daogukj.com/4477330)
-- [曼联4比4阿斯顿维拉](http://www.daogukj.com/0861506)
-- [⚡弟子扫荡异界诡校⚡](http://www.daogukj.com/9767084)
-- [从进博会看先进制造业汇聚创新动能](http://www.movie.hkepx.cn/movie/5257500.htm)
-- [你擦亮眼睛，看看是谁在闹](http://www.daogukj.com/gykfwffn/)
-- [发生日快乐才知老同学已离世](http://www.play.hengshemaoyi.cn/xiju/5052420.htm)
-- [立冬后建议改一下睡觉时间](http://www.daogukj.com/xdtbrdmh/)
-- [金晨透露已举家搬迁至三亚](http://www.daogukj.com/0346242)
-- [《持械入宋》背后的6人“草台班子”](http://www.movie.hkepx.cn/xiju/3607769.htm)
-- [比亚迪超豪华行政旗舰仰望「鼎曜」全球首秀，这款车的市场竞争力如何？](http://www.play.hengshemaoyi.cn/kongbu/0133104.htm)
+- [气温骤降 买冬装看完这篇再下单](http://www.play.hengshemaoyi.cn/kongbu/1542166.htm)
+- [《崩坏：星穹铁道》星神★阿哈角色PV——「让骰子飞」](http://www.daogukj.com/0287665)
+- [金子涵前几天露宿街头](http://www.movie.hkepx.cn/movie/7272745.htm)
+- [BLG战胜T1 挺进S16决赛](http://www.play.hengshemaoyi.cn/xiju/6780679.htm)
+- [里夫斯砍43分 湖人力克活塞5连胜](http://www.daogukj.com/4477330)
+- [米哈游你是真想再赢啊！因缘精灵幸福pv逐帧拆解](http://www.daogukj.com/0861506)
+- [江西赣州成立调查组核查公共设施问题](http://www.daogukj.com/9767084)
+- [进博会上的“运动经济”观察](http://www.movie.hkepx.cn/movie/5257500.htm)
+- [欢迎来到实力至上主义校园](http://www.daogukj.com/gykfwffn/)
+- [“这是给孩子的，不是给你的”](http://www.play.hengshemaoyi.cn/xiju/5052420.htm)
+- [大连GDP完成“逆袭之战”](http://www.daogukj.com/xdtbrdmh/)
+- [破坏秦始皇陵最高可罚千万](http://www.daogukj.com/0346242)
+- [最强厄尔尼诺来了 这个冬天怎么过](http://www.movie.hkepx.cn/xiju/3607769.htm)
+- [汝南那么好听，为什么要改成驻马店？](http://www.play.hengshemaoyi.cn/kongbu/0133104.htm)
 - [【神人短剧】🔥最新力作🔥农村大席之抽象盛宴，联动mj宇宙【AI全民制作人】](http://www.movie.hkepx.cn/xiju/7939480.htm)
-- [2627赛季英超联赛英超第10轮曼联 4:4 阿斯顿维拉，如何评价这场比赛？](http://www.movie.hkepx.cn/xiju/0345684.htm)
-- [据传 ChatGPT 开始大规模封号，是真的吗？原因可能是什么？](http://www.movie.hkepx.cn/xiju/4105891.htm)
-- [54 岁大哥自学AI短剧登顶红果榜，团队成员一年还清债务，普通人真能靠AI翻身吗？有啥值得借鉴的思路？](http://www.movie.hkepx.cn/xiju/7210722.htm)
-- [成都蓉城丢冠震惊中外](http://www.movie.hkepx.cn/movie/8592737.htm)
-- [如何看待广州一公司控告多名员工因降薪而工作懈怠，导致公司结业？](http://www.play.hengshemaoyi.cn/xiju/5306630.htm)
-- [陈妍希 还是当年那个沈佳宜](http://www.daogukj.com/1659974)
-- [女子查到男友父亲有案底后崩溃](http://www.movie.hkepx.cn/movie/0941539.htm)
-- [影之刃零：斗地主Mod 和任意BOSS打牌](http://www.movie.hkepx.cn/movie/2635515.htm)
-- [S16半决赛：BLG对阵T1](http://www.movie.hkepx.cn/xiju/6515808.htm)
-- [全国消防日 向消防员致敬](http://www.play.hengshemaoyi.cn/xiju/8816869.htm)
-- [优质蛋白食物第一名出炉](http://www.daogukj.com/dvtugytg/)
-- [哪些名字能拯救牛这个姓氏？](http://www.movie.hkepx.cn/xiju/6349162.htm)
-- [红色新闻人的浴血征程](http://www.daogukj.com/uiagrfmg/)
-- [徐艺洋这身材穿个麻袋都好看](http://www.movie.hkepx.cn/xiju/5108394.htm)
-- [火柴人 VS 动画师 第十四集 黑暗时代（The Dark Age）](http://www.play.hengshemaoyi.cn/kongbu/2476719.htm)
-- [S赛怀旧金曲《BLG带带我》](http://www.play.hengshemaoyi.cn/kongbu/6062295.htm)
-- [日本统治韩国40年，为什么却没能同化韩国？](http://www.play.hengshemaoyi.cn/xiju/4493695.htm)
-- [“这是给孩子的，不是给你的”](http://www.daogukj.com/tnrfqrke/)
-- [男子留宿酒店大堂3天 民警暖心救助](http://www.movie.hkepx.cn/xiju/4346084.htm)
-- [这游戏是很多人的一辈子](http://www.movie.hkepx.cn/movie/7332141.htm)
-- [Bin哥大龙战神](http://www.daogukj.com/qwdjcwxs/)
-- [澳企一年炼出62吨重稀土意味着什么](http://www.daogukj.com/uqrxqnjs/)
-- [致命香蕉：一根香蕉，究竟能闯出多大的祸？](http://www.play.hengshemaoyi.cn/xiju/9086559.htm)
-- [张艺谋：电影不再是精英艺术](http://www.play.hengshemaoyi.cn/xiju/0582780.htm)
-- [女子在“女用站立式小便厕位”前愣住](http://www.movie.hkepx.cn/xiju/5890662.htm)
-- [BLG一比零T1](http://www.movie.hkepx.cn/movie/9155162.htm)
-- [医生提醒：三类人群要慎食羊肉](http://www.movie.hkepx.cn/movie/7891312.htm)
-- [外卖大战一年，美团、阿里、京东三家亏掉上千亿，怎么看这一结果？未来的外卖市场可能是什么走向？](http://www.play.hengshemaoyi.cn/xiju/9382187.htm)
-- [如何评价波兰发生恐怖袭击致 6 死 16 伤，枪手被「极右翼意识形态」蛊惑，并「持极端民族主义观点」？](http://www.play.hengshemaoyi.cn/xiju/1231015.htm)
-- [欢迎来到实力至上主义校园](http://www.daogukj.com/fpcntxir/)
+- [韦世豪停赛缺席中超最后4轮，成都蓉城4连败最终丢冠，有因果关系吗？他的停赛影响有多大？](http://www.movie.hkepx.cn/xiju/0345684.htm)
+- [黄仁勋41年爱妻人设崩塌](http://www.movie.hkepx.cn/xiju/4105891.htm)
+- [把娃户口挪去东北（比如鹤岗），读高中和高考，是否可行？ 哪个城市比较建议？](http://www.movie.hkepx.cn/xiju/7210722.htm)
+- [是孩子不感恩，还是我们太敏感了，让孩子用他的零花钱给我买奶茶，他不要，他要我给他买东西却理所当然？](http://www.movie.hkepx.cn/movie/8592737.htm)
+- [大连多个景区对山东游客免费100天](http://www.play.hengshemaoyi.cn/xiju/5306630.htm)
+- [疑秦始皇儿子头骨面容复原图公布](http://www.daogukj.com/1659974)
+- [幼师毕业的 21 岁女生转行当环卫工称「待遇好」，折射出年轻人怎样的就业观变化？](http://www.movie.hkepx.cn/movie/0941539.htm)
+- [疑似秦始皇儿子头骨面容复原图公布](http://www.movie.hkepx.cn/movie/2635515.htm)
+- [战胜T1 就在今天](http://www.movie.hkepx.cn/xiju/6515808.htm)
+- [中国战队首次在世界赛BO5战胜T1](http://www.play.hengshemaoyi.cn/xiju/8816869.htm)
+- [张本智和法兰克福冠军赛男单夺冠](http://www.daogukj.com/dvtugytg/)
+- [徐艺洋这身材穿个麻袋都好看](http://www.movie.hkepx.cn/xiju/6349162.htm)
+- [“把想法带到中国就能实现”](http://www.daogukj.com/uiagrfmg/)
+- [因试用期 6 个月没转正，离职人员篡改后台数据致企业数百万损失，有哪些警示？职场遇这种情况该怎么处理？](http://www.movie.hkepx.cn/xiju/5108394.htm)
+- [内塔尼亚胡还能当多久总理](http://www.play.hengshemaoyi.cn/kongbu/2476719.htm)
+- [练普拉提就能掰正骨盆？医生辟谣](http://www.play.hengshemaoyi.cn/kongbu/6062295.htm)
+- [Faker笑着向粉丝告别](http://www.play.hengshemaoyi.cn/xiju/4493695.htm)
+- [载入史册！BLG 3-1 T1 赛后数据雷达图丨2026全球总决赛-半决赛](http://www.daogukj.com/tnrfqrke/)
+- [网站统计《影之刃零》完美通关仅 31.5 小时，玩家质疑不可能，这个数据合理吗？](http://www.movie.hkepx.cn/xiju/4346084.htm)
+- [热巴住酒店15年的真实原因](http://www.movie.hkepx.cn/movie/7332141.htm)
+- [人类饲养指南](http://www.daogukj.com/qwdjcwxs/)
+- [内塔尼亚胡时代即将谢幕了吗](http://www.daogukj.com/uqrxqnjs/)
+- [秦皇岛居民称20年没见过这么大雪](http://www.play.hengshemaoyi.cn/xiju/9086559.htm)
+- [大三男生宿舍手搓 AI 漫剧不到一年营收超 300 万，这是怎么做到的？实际赚了多少？普通人能效仿吗？](http://www.play.hengshemaoyi.cn/xiju/0582780.htm)
+- [35岁喜剧演员手术中不幸去世](http://www.movie.hkepx.cn/xiju/5890662.htm)
+- [生蚝肚子里这坨黄绿色的是啥？能吃吗？【主播说三农】](http://www.movie.hkepx.cn/movie/9155162.htm)
+- [多地向市民免费赠花](http://www.movie.hkepx.cn/movie/7891312.htm)
+- [原来厉娜说了这个许飞才15年没有理她](http://www.play.hengshemaoyi.cn/xiju/9382187.htm)
+- [ON萨勒芬妮大招控到T1四人](http://www.play.hengshemaoyi.cn/xiju/1231015.htm)
+- [《完美婚礼》](http://www.daogukj.com/fpcntxir/)
 
 </details>
 
 ## 原始来源
 
-- [妻子在家私装监控拍下丈夫出轨被认定非法证据，从法律角度该如何解读？](https://www.zhihu.com/question/2094635438808081085)
+- [里夫斯43分湖人胜活塞](https://s.weibo.com/weibo?q=%E9%87%8C%E5%A4%AB%E6%96%AF43%E5%88%86%E6%B9%96%E4%BA%BA%E8%83%9C%E6%B4%BB%E5%A1%9E)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 66a016bbf4c57d8f95c3 -->
+<!-- content-fingerprint: 9954a19a3f8b0684b1da -->
