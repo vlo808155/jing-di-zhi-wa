@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 《绝区零》赛维里安EP | Gambit
+# 感觉还是时常对孩子有亏欠？感觉给孩子托举的还是不够多，怎么办？
 
-> 来源：哔哩哔哩热门 · 排名：第 19 位 · 热度：349454 · 分类：手机游戏 · 更新：2026-11-09T18:43:57+08:00
+> 来源：知乎热榜 · 排名：第 19 位 · 热度：98 万热度 · 分类：问答 · 更新：2026-11-10T05:06:42+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“《绝区零》赛维里安EP | Gambit”位列第 19 位，公开热度指标为 349454，榜单分类为“手机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“感觉还是时常对孩子有亏欠？感觉给孩子托举的还是不够多，怎么办？”位列第 19 位，公开热度指标为 98 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：对手还未落子 胜负已定在我方 我仍循自己的信念向前 ▼ 制作名单 制作人：周斌 作曲：周斌 编曲：周斌 作词：Mishon 演唱：Mishon 混音：周斌 母带：周斌 —— 欢迎来到罗斯凯利法！—— ▼《绝区零》3.3版本「重返天空的旅程」现已上线！ 限定S级代理人「菲欧妮」&「维琳娜」现已加入调频&复刻。 版本期间，参与活动可免费领取妄想天使时装！ bilibili安卓端下载地址：https://www.biligame.com/detail/?id=108434 bilibiliPC端下载地址：
+来源公开摘要显示：四线小城市，本人也自知没有那个能力在大城市立足，在小城市就是旱涝保收，给孩子的肯定没有大城市的多，但总体还可以
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `手机游戏`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [罗德里格斯将访华](miao-bi-sheng-hua.md)
-- [王楚钦感谢教练组](sheng-dong-huo-po.md)
-- [国际乒联世界排名：日乒包揽男单前二](xu-xu-ru-sheng.md)
-- [BLG 连斩 LCK 三队晋级总决赛，他们能在决赛上击败 GEN，一穿四夺冠吗？](huo-ling-huo-xian.md)
+- [当杀手和律师都以为对方是同行](miao-bi-sheng-hua.md)
+- [巴拉圭前总统豪宅疑藏秘密金库](sheng-dong-huo-po.md)
+- [黄仁勋出事看似是八卦其实是生意](xu-xu-ru-sheng.md)
+- [攻击-11无人机：歼20的黄金搭档](huo-ling-huo-xian.md)
 
 ## 站内推荐
 
-- [S16 半决赛 BLG 3:1 淘汰卫冕冠军 T1，终结 T1 四连冠可能性，如何评价这场比赛？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [「世另我」左右手首次在全球总决赛顶峰相见，你看好谁最终夺得 S16 总决赛冠军？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [【神人短剧】🔥最新力作🔥农村大席之抽象盛宴，联动mj宇宙【AI全民制作人】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [谁一周后的播放量高，谁就是流量王！！！【流量王番外篇蓝队】](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [BO5战胜Faker！ BLG战胜T1挺进决赛！BLG决赛加油！【2026英雄联盟全球总决赛】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [疑似秦始皇儿子头骨面容被复原，男子死时约30岁，头骨右颞骨中嵌有一枚青铜箭头，哪些细节值得关注？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [马斯克爆料称「软银正在违约燃气轮机订单」，是真的吗？这一爆料对市场的影响有多大？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [2026中超终于落下大幕，大连加冕，成都蓉城以一种几乎无法复刻的方式丢掉了冠军，为啥大家都觉得挺好？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [广东妈妈认为“山东饭”能长高，坚持为6岁儿子做疙瘩汤、煎饼等，一月后长高1.3厘米，山东饭这么神奇吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [957 直播中爆料「小道消息 Zeus 将回归 T1」2027 年的 T1 会卷土重来吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [青稚疑似删的是CD录音](http://www.movie.hkepx.cn/movie/8910900.htm)
-- [选举大败特朗普和马斯克这下惨了](http://www.play.hengshemaoyi.cn/kongbu/1452959.htm)
-- [“顺其自然”捐1907万 身份无人知晓](http://www.movie.hkepx.cn/movie/4326545.htm)
-- [自媒体曝胖东来爆火的卡蓓诺洗发水疑为非日本制造，胖东来否认产地造假并将启动维权，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/1643509.htm)
-- [【神人短剧】🔥最新力作🔥农村大席之抽象盛宴，联动mj宇宙【AI全民制作人】](http://www.daogukj.com/3734905)
-- [马斯克爆料称「软银正在违约燃气轮机订单」，是真的吗？这一爆料对市场的影响有多大？](http://www.play.hengshemaoyi.cn/kongbu/4707077.htm)
-- [英伟达大劫案细节披露](http://www.play.hengshemaoyi.cn/xiju/9679366.htm)
-- [曝黄乐与朋友打赌能请来黄仁勋](http://www.movie.hkepx.cn/movie/8897904.htm)
-- [张朝阳说从来不看AI漫剧，AI让内容产生一种塑料感，像化肥催熟的西红柿没有味，你同意吗？](http://www.play.hengshemaoyi.cn/xiju/8041326.htm)
-- [太原火灾致14死负责人被控制](http://www.daogukj.com/8279615)
-- [王楚钦发文反思总结](http://www.movie.hkepx.cn/xiju/6205852.htm)
-- [马天宇厉娜评论区互怼](http://www.movie.hkepx.cn/xiju/0712642.htm)
-- [解放军三航母何时迎来“编队同框”](http://www.movie.hkepx.cn/xiju/6035249.htm)
-- [攻击-11实弹发射首发命中](http://www.daogukj.com/4744923)
-- [BO5战胜Faker！ BLG战胜T1挺进决赛！BLG决赛加油！【2026英雄联盟全球总决赛】](http://www.movie.hkepx.cn/movie/5089029.htm)
-- [天猫好六夜彩排根本藏不住事](http://www.movie.hkepx.cn/movie/2615772.htm)
-- [英伟达美股夜盘跌超 3%，其后续股价走势会如何？](http://www.play.hengshemaoyi.cn/kongbu/7334127.htm)
-- [无锡出现女用站立式小便厕位，以导流机制实现站立排尿，从生理上该机制科学吗？社会面有推广的可能吗？](http://www.daogukj.com/ptpekaap/)
-- [让女性站立小便就是真的女性友好吗](http://www.daogukj.com/7356664)
-- [罗德里格斯将访华](http://www.daogukj.com/ayichqdz/)
-- [主持人实测滴滴抽成](http://www.movie.hkepx.cn/xiju/2706147.htm)
-- [大连几乎所有饭店宣布夺冠就免单](http://www.play.hengshemaoyi.cn/xiju/6688215.htm)
-- [张雪机车米兰展车零件被偷光](http://www.daogukj.com/cndcdbte/)
-- [W盛典红毯](http://www.daogukj.com/3515388)
-- [如何评价 Faker 在 S16 全球总决赛上的表现？](http://www.movie.hkepx.cn/movie/2280366.htm)
-- [我的世界粒子——建筑](http://www.movie.hkepx.cn/xiju/9102843.htm)
-- [无锡出现女用站立式小便厕位](http://www.movie.hkepx.cn/xiju/6537051.htm)
-- [全身麻醉醒来像「跳过了」几个小时，睡眠为什么没有这种感觉？](http://www.daogukj.com/vzsgeebf/)
-- [微信状态发「画地为牢」被公司辞退，理由是「工作不积极」，社交吐槽能成为公司解除劳动关系的理由吗？](http://www.play.hengshemaoyi.cn/kongbu/3922698.htm)
-- [“99人的群里 98个都是托”](http://www.play.hengshemaoyi.cn/kongbu/6040149.htm)
-- [【A2O】A2O SOUL 'Dancing in the Dark' Official Music Video](http://www.daogukj.com/4077362)
-- [中方回应黄仁勋婚外情事件](http://www.movie.hkepx.cn/movie/8186635.htm)
-- [生蚝肚子里这坨黄绿色的是啥？能吃吗？【主播说三农】](http://www.daogukj.com/hrahgoeh/)
-- [哈尔滨烤地瓜“原价1688补贴完8元”](http://www.movie.hkepx.cn/xiju/7623213.htm)
-- [iG投资人爆料爱笑聊天截图](http://www.play.hengshemaoyi.cn/kongbu/4814140.htm)
-- [黄渤自曝今年几乎没戏拍，如何看待实力派演员陷入空窗期？](http://www.daogukj.com/3537481)
-- [黄仁勋出轨对象公司曾采购300亿芯片](http://www.play.hengshemaoyi.cn/kongbu/7154027.htm)
-- [特朗普：如果没我以色列早就不复存在](http://www.play.hengshemaoyi.cn/xiju/0242395.htm)
-- [S16 半决赛 BLG 3:1 淘汰卫冕冠军 T1，终结 T1 四连冠可能性，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/xiju/7718342.htm)
-- [匿名爱心人士“顺其自然”再捐111万](http://www.play.hengshemaoyi.cn/kongbu/7089205.htm)
-- [日本地铁太压抑了](http://www.play.hengshemaoyi.cn/xiju/7227900.htm)
-- [中方回应特朗普政府请求中国帮助](http://www.daogukj.com/9191044)
-- [如何看待蔡少芬一家五口在中国香港住83平米房子却说是「豪宅」，很知足？](http://www.daogukj.com/6256754)
-- [夫妇为赖4万借款杀人埋尸](http://www.play.hengshemaoyi.cn/kongbu/3838323.htm)
-- [杨幂一下穿了两套祖海高定](http://www.movie.hkepx.cn/movie/3822357.htm)
-- [菲外交部就涉华言论敲打防长](http://www.movie.hkepx.cn/movie/9519234.htm)
-- [奶茶越做越厚了](http://www.play.hengshemaoyi.cn/xiju/4782804.htm)
-- [5吨的大象都会被吃，骆驼却几乎无天敌，为啥没有食肉动物吃它呢？](http://www.daogukj.com/urxbddis/)
-- [上海微电子新一代光刻机模型亮相，该成果实现量产还需要攻克哪些核心难点？](http://www.movie.hkepx.cn/xiju/7315864.htm)
-- [为什么小电驴也卖不动了](http://www.play.hengshemaoyi.cn/xiju/8904435.htm)
+- [W盛典晚宴座位](http://www.movie.hkepx.cn/movie/8910900.htm)
+- [《绝区零》赛维里安EP | Gambit](http://www.play.hengshemaoyi.cn/kongbu/1452959.htm)
+- [东北糖葫芦已进化到“巨无霸”版本](http://www.movie.hkepx.cn/movie/4326545.htm)
+- [哈工大硕士毕业后创业失败，如今在街头卖气球，被人质疑「浪费资源」，如何评价他的选择？真的是浪费资源吗？](http://www.movie.hkepx.cn/movie/1643509.htm)
+- [2026中超终于落下大幕，大连加冕，成都蓉城以一种几乎无法复刻的方式丢掉了冠军，为啥大家都觉得挺好？](http://www.daogukj.com/3734905)
+- [哈尔滨烤地瓜原价1688到手8元](http://www.play.hengshemaoyi.cn/kongbu/4707077.htm)
+- [楚钧：Nice！这样我才能看到左右手大战！](http://www.play.hengshemaoyi.cn/xiju/9679366.htm)
+- [环卫工电子工牌惹争议](http://www.movie.hkepx.cn/movie/8897904.htm)
+- [中央网信办整治科普健康类网络谣言](http://www.play.hengshemaoyi.cn/xiju/8041326.htm)
+- [油价预计将大幅下调](http://www.daogukj.com/8279615)
+- [白小纯 王子璇](http://www.movie.hkepx.cn/xiju/6205852.htm)
+- [石家庄天降陨石最大单体35公斤](http://www.movie.hkepx.cn/xiju/0712642.htm)
+- [郑钦文是W盛典发的首条单人](http://www.movie.hkepx.cn/xiju/6035249.htm)
+- [王子璇方否认与白小纯恋情](http://www.daogukj.com/4744923)
+- [957 直播中爆料「小道消息 Zeus 将回归 T1」2027 年的 T1 会卷土重来吗？](http://www.movie.hkepx.cn/movie/5089029.htm)
+- [官方回应招医生月薪最高2499元](http://www.movie.hkepx.cn/movie/2615772.htm)
+- [胖东来：哪怕赔付到破产也要坚守原则](http://www.play.hengshemaoyi.cn/kongbu/7334127.htm)
+- [中方回应外媒涉60万枚英伟达芯片报道](http://www.daogukj.com/ptpekaap/)
+- [美股三大股指高开 英伟达逆势下跌7%](http://www.daogukj.com/7356664)
+- [当杀手和律师都以为对方是同行](http://www.daogukj.com/ayichqdz/)
+- [Bin：世一上只是玩梗，我认为T1比GEN更强！](http://www.movie.hkepx.cn/xiju/2706147.htm)
+- [当我把九个ai请来玩贪官造桥....｜AI 算法对抗大赛 第 9 集 · 造桥](http://www.play.hengshemaoyi.cn/xiju/6688215.htm)
+- [AMD涨超8%](http://www.daogukj.com/cndcdbte/)
+- [老人将6亿遗产留给再婚妻子](http://www.daogukj.com/3515388)
+- [投入几个亿开五星级酒店的人，这辈子能把钱赚回来吗？](http://www.movie.hkepx.cn/movie/2280366.htm)
+- [自媒体曝胖东来爆火的卡蓓诺洗发水疑为非日本制造，胖东来否认产地造假并将启动维权，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/9102843.htm)
+- [猪肉又便宜了](http://www.movie.hkepx.cn/xiju/6537051.htm)
+- [菲外交部就涉华言论敲打防长](http://www.daogukj.com/vzsgeebf/)
+- [胖东来发布系统化问题处理标准，称赔到破产也要坚守原则，落地难点在哪？](http://www.play.hengshemaoyi.cn/kongbu/3922698.htm)
+- [花坛白骨涉案人28年间频繁出国](http://www.play.hengshemaoyi.cn/kongbu/6040149.htm)
+- [On萨勒芬妮大招测试：如果猴子不放分身，能改变时间线吗？](http://www.daogukj.com/4077362)
+- [BO5战胜Faker！ BLG战胜T1挺进决赛！BLG决赛加油！【2026英雄联盟全球总决赛】](http://www.movie.hkepx.cn/movie/8186635.htm)
+- [把娃户口挪去东北（比如鹤岗），读高中和高考，是否可行？ 哪个城市比较建议？](http://www.daogukj.com/hrahgoeh/)
+- [生蚝肚子里这坨黄绿色的是啥？能吃吗？【主播说三农】](http://www.movie.hkepx.cn/xiju/7623213.htm)
+- [白小纯在发现有人没上车的30秒](http://www.play.hengshemaoyi.cn/kongbu/4814140.htm)
+- [演员王雷跪地庆祝大连英博夺冠](http://www.daogukj.com/3537481)
+- [王健林亲自披挂上阵接下烫手山芋](http://www.play.hengshemaoyi.cn/kongbu/7154027.htm)
+- [猪油被称“心血管杀手”冤不冤](http://www.play.hengshemaoyi.cn/xiju/0242395.htm)
+- [疑似秦始皇儿子头骨面容被复原，男子死时约30岁，头骨右颞骨中嵌有一枚青铜箭头，哪些细节值得关注？](http://www.play.hengshemaoyi.cn/xiju/7718342.htm)
+- [白敬亭井柏然宋威龙王嘉尔张凌赫同框](http://www.play.hengshemaoyi.cn/kongbu/7089205.htm)
+- [疑似自费高定艺人回复网友](http://www.play.hengshemaoyi.cn/xiju/7227900.htm)
+- [老人6亿遗产留再婚妻子 原配子女起诉](http://www.daogukj.com/9191044)
+- [为什么 Doran 仍然是那个 Doran，S16 全球总决赛 T1 带不动他了？](http://www.daogukj.com/6256754)
+- [一批违法违规涉军自媒体被通报](http://www.play.hengshemaoyi.cn/kongbu/3838323.htm)
+- [这些水果适合冬天热着吃](http://www.movie.hkepx.cn/movie/3822357.htm)
+- [大型SUV第一名是小米澎程N90](http://www.movie.hkepx.cn/movie/9519234.htm)
+- [就是等到你来捡咯](http://www.play.hengshemaoyi.cn/xiju/4782804.htm)
+- [代号「玄龙」的攻击-11 隐身无人机公开亮相，这一无人机有哪些细节值得关注？将如何影响未来空战？](http://www.daogukj.com/urxbddis/)
+- [你有没有单独花超100元吃一顿饭](http://www.movie.hkepx.cn/xiju/7315864.htm)
+- [耗时5个月，5万元成本，我用AI拍了一部68分钟的原创中国科幻长片《南天门计划：灰蚀危机》【ai全民制作人】](http://www.play.hengshemaoyi.cn/xiju/8904435.htm)
 
 </details>
 
 ## 原始来源
 
-- [《绝区零》赛维里安EP | Gambit](https://b23.tv/BV1xiWW6uESZ)
+- [感觉还是时常对孩子有亏欠？感觉给孩子托举的还是不够多，怎么办？](https://www.zhihu.com/question/2044482302038759160)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: a7b185d5b2ff2b9e4da7 -->
+<!-- content-fingerprint: bb5e8013b55907e9c38f -->
