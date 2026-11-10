@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 《绝区零》赛维里安EP | Gambit
+# 发改委：照顾老人孩子压力实实在在
 
-> 来源：哔哩哔哩热门 · 排名：第 18 位 · 热度：928047 · 分类：手机游戏 · 更新：2026-11-10T11:29:40+08:00
+> 来源：百度热搜 · 排名：第 17 位 · 热度：6179670 · 更新：2026-11-10T19:41:30+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“《绝区零》赛维里安EP | Gambit”位列第 18 位，公开热度指标为 928047，榜单分类为“手机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“发改委：照顾老人孩子压力实实在在”位列第 17 位，公开热度指标为 6179670。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：对手还未落子 胜负已定在我方 我仍循自己的信念向前 ▼ 制作名单 制作人：周斌 作曲：周斌 编曲：周斌 作词：Mishon 演唱：Mishon 混音：周斌 母带：周斌 —— 欢迎来到罗斯凯利法！—— ▼《绝区零》3.3版本「重返天空的旅程」现已上线！ 限定S级代理人「菲欧妮」&「维琳娜」现已加入调频&复刻。 版本期间，参与活动可免费领取妄想天使时装！ bilibili安卓端下载地址：https://www.biligame.com/detail/?id=108434 bilibiliPC端下载地址：
+来源公开摘要显示：“对很多家庭来说，一边要照顾老人、一边要照料孩子，压力实实在在。”11月10日，国家发展改革委在发布会上介绍解决“养老愁、托育难”举措。近期国家发展改革委联合相关部门印发《“一老一小”服务体系建设实施方案》提出13条任务，下一步将重点推进机构改造、托育全覆盖及社区居家服务。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `手机游戏`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [2/3国人没吃够大豆](ming-cha-qiu-hao.md)
-- [女子独自露营遭陌生男子骚扰](jian-wei-zhi-zhu.md)
-- [菲外交部就涉华言论敲打防长](du-ju-hui-yan.md)
-- [S16 半决赛 BLG 击败 T1 代表 LPL 赛区历史首次击败 T1 战队，对此你有什么想说的？](bie-ju-jiang-xin.md)
+- [何老师内娱人脉王](ming-cha-qiu-hao.md)
+- [脑卒中症状短暂缓解不等于危险过去](jian-wei-zhi-zhu.md)
+- [特朗普称似乎没必要再对伊朗采取军事行动，国际油价早盘一度跌超5%，中东局势真的进入阶段性降温了吗？](du-ju-hui-yan.md)
+- [豪门赘婿的万元周末：不想赢，你跑什么赛车？！](bie-ju-jiang-xin.md)
 
 ## 站内推荐
 
-- [胖东来“日本产洗发水”疑云](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [学生帮环卫工母亲扫街坚持5年](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [美股三大指数均涨超 2%，科技股飙升，英伟达逆市跌 4.2%，如何解读？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [锐评BLG打破T1对LPL的十三年来的百胜率神话！击碎梦魇！找回自己！这期不串直接夸！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [国 运 神 人 大 赛](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [理想汽车已向警方报案](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [厦门文旅疑泄露金鸡奖颁奖结果后秒删](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [“双11”第一批被骗的人来了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [幼童挂在高楼窗外 目击者：看得腿发软](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [吴克群：不能在把老婆惹哭后才抱她](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [等风热吻你全阵容官宣](http://www.play.hengshemaoyi.cn/kongbu/7686149.htm)
-- [新三国up锐评老三国27：我死罪虽免，亦当割发代首！](http://www.movie.hkepx.cn/movie/4579405.htm)
-- [张艺谋《英雄》纪录被《哥斯拉》新片打破](http://www.movie.hkepx.cn/xiju/3169477.htm)
-- [一碗免费面把隔壁小店逼到想搬家](http://www.movie.hkepx.cn/xiju/8635128.htm)
-- [【2026全球总决赛】11月9日 BLG vs T1](http://www.play.hengshemaoyi.cn/kongbu/9338626.htm)
-- [S16 半决赛 BLG 击败 T1 代表 LPL 赛区历史首次击败 T1 战队，对此你有什么想说的？](http://www.play.hengshemaoyi.cn/kongbu/1542166.htm)
-- [一碗免费面咋把隔壁小店逼到想搬家](http://www.daogukj.com/0287665)
-- [你我一起，改变世界.](http://www.movie.hkepx.cn/movie/7272745.htm)
-- [合肥地震](http://www.play.hengshemaoyi.cn/xiju/6780679.htm)
-- [小伙车祸后笑着比耶 医生立刻警觉](http://www.daogukj.com/4477330)
-- [菲外交部就涉华言论敲打防长](http://www.daogukj.com/0861506)
-- [饥一顿饱一顿会降低免疫力](http://www.daogukj.com/9767084)
-- [共绘“健康中国”美好生活图景](http://www.movie.hkepx.cn/movie/5257500.htm)
-- [王楚钦孙颖莎参赛混团世界杯](http://www.daogukj.com/gykfwffn/)
-- [许飞：我作茧自缚](http://www.play.hengshemaoyi.cn/xiju/5052420.htm)
-- [《虚环》PV03｜致过去与未来的歌](http://www.daogukj.com/xdtbrdmh/)
-- [考研最后的冲刺阶段，做哪些事可以离「上岸」更近一步？](http://www.daogukj.com/0346242)
-- [胖东来“日本产洗发水”疑云](http://www.movie.hkepx.cn/xiju/3607769.htm)
-- [如何看待蓉城博主发文「请成都纪委介入调查成都蓉城可能存在的违法违纪行为」？](http://www.play.hengshemaoyi.cn/kongbu/0133104.htm)
-- [上帝之光：当人类第一次拥有操纵大脑的能力](http://www.movie.hkepx.cn/xiju/7939480.htm)
-- [女子设置失误，5年给邻居充了近6000元话费，发觉后要求返还被拒，法院判定应全部返还，如何看待此事？](http://www.movie.hkepx.cn/xiju/0345684.htm)
-- [韩网气疯了！BLG你要干什么！韩国人怎么评价BLG战胜T1 创造新的历史？英雄联盟 电子竞技 s16 多兰 bin](http://www.movie.hkepx.cn/xiju/4105891.htm)
-- [王楚钦孙颖莎将参赛混团世界杯](http://www.movie.hkepx.cn/xiju/7210722.htm)
-- [倪妮左拥刘诗诗右抱杨幂](http://www.movie.hkepx.cn/movie/8592737.htm)
-- [【暗区突围手游】 全民防火，突围有我！](http://www.play.hengshemaoyi.cn/xiju/5306630.htm)
-- [血糖刺客被很多人当饭吃](http://www.daogukj.com/1659974)
-- [问界M9断轴罗生门](http://www.movie.hkepx.cn/movie/0941539.htm)
-- [2/3国人没吃够大豆](http://www.movie.hkepx.cn/movie/2635515.htm)
-- [学生帮环卫工母亲扫街坚持5年](http://www.movie.hkepx.cn/xiju/6515808.htm)
-- [据说可以从孩子的脸上知道“一个家庭过得怎样”是真的吗？](http://www.play.hengshemaoyi.cn/xiju/8816869.htm)
-- [冷空气已致广东降温超10℃](http://www.daogukj.com/dvtugytg/)
-- [选举大败特朗普和马斯克这下惨了](http://www.movie.hkepx.cn/xiju/6349162.htm)
-- [进博会“一米展台”洽谈热切](http://www.daogukj.com/uiagrfmg/)
-- [特朗普称没必要再对伊朗采取军事行动](http://www.movie.hkepx.cn/xiju/5108394.htm)
-- [德系三巨头的“中国提款机”彻底熄火](http://www.play.hengshemaoyi.cn/kongbu/2476719.htm)
-- [男子因亲人去世失联 家属：人不在了](http://www.play.hengshemaoyi.cn/kongbu/6062295.htm)
-- [国 运 神 人 大 赛](http://www.play.hengshemaoyi.cn/xiju/4493695.htm)
-- [泸州花坛藏尸案一审宣判](http://www.daogukj.com/tnrfqrke/)
-- [嫁金钗这一段是穿帮了吗](http://www.movie.hkepx.cn/xiju/4346084.htm)
-- [就是等到你来捡咯](http://www.movie.hkepx.cn/movie/7332141.htm)
-- [中方驳斥黄仁勋出轨女子为中国工作](http://www.daogukj.com/qwdjcwxs/)
-- [伊朗向特朗普发48小时最后通牒，要么接受德黑兰提出的最新方案，要么面临军事冲突升级，特朗普会如何选择？](http://www.daogukj.com/uqrxqnjs/)
-- [鹤岗精品住宅均价超4800元每平方米](http://www.play.hengshemaoyi.cn/xiju/9086559.htm)
-- [白敬亭果然看上井柏然的衣服了](http://www.play.hengshemaoyi.cn/xiju/0582780.htm)
-- [白小纯说去韩国打了水光针](http://www.movie.hkepx.cn/xiju/5890662.htm)
-- [晨起后有这4个习惯的人更长寿](http://www.movie.hkepx.cn/movie/9155162.htm)
-- [山姆多款始祖鸟加拿大鹅被抢空，有商品比官方便宜近5000元，为什么能卖这么便宜？背后是怎样的商业策略？](http://www.movie.hkepx.cn/movie/7891312.htm)
-- [【爱你】王力宏&王心凌「最好的地方Ⅱ」官摄 | 限定 “双王组合”首次同台，甜度加倍！](http://www.play.hengshemaoyi.cn/xiju/9382187.htm)
-- [锐评BLG打破T1对LPL的十三年来的百胜率神话！击碎梦魇！找回自己！这期不串直接夸！](http://www.play.hengshemaoyi.cn/xiju/1231015.htm)
-- [花坛藏尸案一人死刑一人死缓](http://www.daogukj.com/fpcntxir/)
+- [花坛藏尸案丈夫同意杀人原因曝光](http://www.play.hengshemaoyi.cn/kongbu/7686149.htm)
+- [寒潮过后大回暖](http://www.movie.hkepx.cn/movie/4579405.htm)
+- [法拍房3次成交被赖账 37.6万打水漂](http://www.movie.hkepx.cn/xiju/3169477.htm)
+- [满月宝宝眼内异物10天竟是月嫂美睫](http://www.movie.hkepx.cn/xiju/8635128.htm)
+- [如何盗走《蒙娜丽莎》？【硬核狠人92】](http://www.play.hengshemaoyi.cn/kongbu/9338626.htm)
+- [豪门赘婿的万元周末：不想赢，你跑什么赛车？！](http://www.play.hengshemaoyi.cn/kongbu/1542166.htm)
+- [《虚环》PV03｜致过去与未来的歌](http://www.daogukj.com/0287665)
+- [低智商很明显输给高情商](http://www.movie.hkepx.cn/movie/7272745.htm)
+- [700电话号码来了](http://www.play.hengshemaoyi.cn/xiju/6780679.htm)
+- [EDG官宣Smoggy离队](http://www.daogukj.com/4477330)
+- [特朗普称似乎没必要再对伊朗采取军事行动，国际油价早盘一度跌超5%，中东局势真的进入阶段性降温了吗？](http://www.daogukj.com/0861506)
+- [花坛藏尸案凶手整容前后对比照曝光](http://www.daogukj.com/9767084)
+- [消费新场景活力迸发](http://www.movie.hkepx.cn/movie/5257500.htm)
+- [特厨探店|探店这么多年，没想到还是会震惊！](http://www.daogukj.com/gykfwffn/)
+- [鸿蒙智行的10月乘联会零售量已出，为什么相差的有点大？](http://www.play.hengshemaoyi.cn/xiju/5052420.htm)
+- [专家：A股已具备筑底反弹的条件](http://www.daogukj.com/xdtbrdmh/)
+- [上帝之光：当人类第一次拥有操纵大脑的能力](http://www.daogukj.com/0346242)
+- [理想汽车已向警方报案](http://www.movie.hkepx.cn/xiju/3607769.htm)
+- [《求是》发文「当前我国经济运行中供强需弱矛盾的症结所在」，释放了哪些信号？](http://www.play.hengshemaoyi.cn/kongbu/0133104.htm)
+- [《阴阳师》笼梦祸津神CG丨祸至无日（CV：中野彩麻）](http://www.movie.hkepx.cn/xiju/7939480.htm)
+- [「免打孔0脱落」的单杠突然脱落，致 10 岁儿童开放性面部损伤，这种单杠为什么会突然脱落？](http://www.movie.hkepx.cn/xiju/0345684.htm)
+- [大连22岁失联男子遗体已找到](http://www.movie.hkepx.cn/xiju/4105891.htm)
+- [动物都知道躲避天敌，而为什么几千年了，昆虫还是不知道躲着人类？](http://www.movie.hkepx.cn/xiju/7210722.htm)
+- [媒体人谈猪价创10年新低](http://www.movie.hkepx.cn/movie/8592737.htm)
+- [不少地方可在乡镇卫生院拍片做心电图](http://www.play.hengshemaoyi.cn/xiju/5306630.htm)
+- [女子称90分钟被星巴克提醒下单5次](http://www.daogukj.com/1659974)
+- [失业缓冲期首次出现在国家政策内，以应对人工智能带来的冲击，怎么看待这一政策？能够有效落实、缓解焦虑吗？](http://www.movie.hkepx.cn/movie/0941539.htm)
+- [何老师内娱人脉王](http://www.movie.hkepx.cn/movie/2635515.htm)
+- [厦门文旅疑泄露金鸡奖颁奖结果后秒删](http://www.movie.hkepx.cn/xiju/6515808.htm)
+- [《鸣潮》共鸣者「莉莉」PV | 忘记恐惧](http://www.play.hengshemaoyi.cn/xiju/8816869.htm)
+- [冯巩金鸡红毯一路挥手互动](http://www.daogukj.com/dvtugytg/)
+- [早睡一小时比跑步30分钟更减肥吗](http://www.movie.hkepx.cn/xiju/6349162.htm)
+- [从“四叶草”出发 下一站APEC](http://www.daogukj.com/uiagrfmg/)
+- [如何评价华为2026年11月发布的鸿蒙折叠电脑 MateBook Fold S，背面的小屏有什么用?](http://www.movie.hkepx.cn/xiju/5108394.htm)
+- [天猫双十一送黄金门票](http://www.play.hengshemaoyi.cn/kongbu/2476719.htm)
+- [重庆江北机场辟谣男孩裤脚卷入扶梯](http://www.play.hengshemaoyi.cn/kongbu/6062295.htm)
+- [吴克群：不能在把老婆惹哭后才抱她](http://www.play.hengshemaoyi.cn/xiju/4493695.htm)
+- [（内含新忍设定）末日规则怪谈？误入诡异校园的烧脑推理！](http://www.daogukj.com/tnrfqrke/)
+- [胖东来“日本产洗发水”疑云](http://www.movie.hkepx.cn/xiju/4346084.htm)
+- [王子璇一个手表能买了白小纯](http://www.movie.hkepx.cn/movie/7332141.htm)
+- [性格过于强势的人会怎样？](http://www.daogukj.com/qwdjcwxs/)
+- [这是我等待了一生的巨浪](http://www.daogukj.com/uqrxqnjs/)
+- [绝味找了厉娜 周黑鸭找了许飞](http://www.play.hengshemaoyi.cn/xiju/9086559.htm)
+- [俄军轰炸机为何集体部署远东](http://www.play.hengshemaoyi.cn/xiju/0582780.htm)
+- [刘昊然：在金鸡奖能干的活全干完了](http://www.movie.hkepx.cn/xiju/5890662.htm)
+- [中国短剧占据日本 90%以上市场份额，日本本土为何难以大规模自产短剧？](http://www.movie.hkepx.cn/movie/9155162.htm)
+- [央视披露“花坛藏尸案”细节](http://www.movie.hkepx.cn/movie/7891312.htm)
+- [女子住酒店发现被子上有干结粪便](http://www.play.hengshemaoyi.cn/xiju/9382187.htm)
+- [幼童挂在高楼窗外 目击者：看得腿发软](http://www.play.hengshemaoyi.cn/xiju/1231015.htm)
+- [《人皇步》](http://www.daogukj.com/fpcntxir/)
 
 </details>
 
 ## 原始来源
 
-- [《绝区零》赛维里安EP | Gambit](https://b23.tv/BV1xiWW6uESZ)
+- [发改委：照顾老人孩子压力实实在在](https://www.baidu.com/s?wd=%E5%8F%91%E6%94%B9%E5%A7%94%EF%BC%9A%E7%85%A7%E9%A1%BE%E8%80%81%E4%BA%BA%E5%AD%A9%E5%AD%90%E5%8E%8B%E5%8A%9B%E5%AE%9E%E5%AE%9E%E5%9C%A8%E5%9C%A8&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d9bb106f02fac63e00ca -->
+<!-- content-fingerprint: 79225fccb2b84bf61821 -->
