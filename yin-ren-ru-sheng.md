@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# THANK YOU Smoggy
+# 青稚 白小纯
 
-> 来源：哔哩哔哩热门 · 排名：第 21 位 · 热度：841949 · 分类：电子竞技 · 更新：2026-11-11T07:50:29+08:00
+> 来源：微博热搜 · 排名：第 22 位 · 热度：262915 · 分类：综艺 · 更新：2026-11-11T12:00:14+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“THANK YOU Smoggy”位列第 21 位，公开热度指标为 841949，榜单分类为“电子竞技”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“青稚 白小纯”位列第 22 位，公开热度指标为 262915，榜单分类为“综艺”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：天赋从来不是你的终点，而是起点， 在不断的自我革新中，你把天赋打磨成了足以扭转胜负的实力。 相聚有时，分别亦有时，未来我们会朝着不同方向继续前进； 他日再相逢，愿你依然闪耀如初。 THANK YOU Smoggy！
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `电子竞技`
+`微博热搜` `实时热搜` `热点资讯` `综艺`
 
 ## 相关热点
 
-- [鲸鱼APP疑暴雷 警方已立案](jing-di-zhi-wa.md)
-- [曝平头哥估值200亿至300亿美元](hai-kuo-tian-kong.md)
-- [吴京穿着那件熟悉的西装亮相金鸡奖](gao-zhan-yuan-zhu.md)
-- [主持人实测滴滴21单平均抽成13.22%，为何司机普遍感觉抽成超过20%？抽走的钱最终流向了哪里？](xiong-you-cheng-zhu.md)
+- [布朗无视塔图姆打招呼](jing-di-zhi-wa.md)
+- [5元换电池能解决的燃气灶问题要260元，记者暗访5位上门维修师傅仅2人说实话，为什么上门维修总有套路？](hai-kuo-tian-kong.md)
+- [《人皇步》](gao-zhan-yuan-zhu.md)
+- [罗大佑怒批赖清德：不要脸到家了](xiong-you-cheng-zhu.md)
 
 ## 站内推荐
 
-- [京彩拍档CityPair](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
-- [36岁女子赴泰失联现已回国](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
-- [湖南株洲一物流仓库突发大火不实](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- [动态视频｜打败许昕，获得iPhone Duo！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [传奇历史人物志——麦克斯韦](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [黄仁勋：我想挑战一下我的软肋](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
+- [RTX5080价格](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
+- [拼多多新规「商家若违背上门承诺将未履约每单赔付十元」，为什么要将责任转给商家？落地最大的难点是什么？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
+- [顺直大改造S2EP1—长发男与短发女的恨海情天](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [地震瞬间3只小猫惊成6个灯泡](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [梁家辉金鸡影帝](http://www.daogukj.com/vrzctubb/)
-- [白小纯对着摄像头撒谎](http://www.daogukj.com/6886560)
-- [梁家辉拒绝工作人员帮拿金鸡奖杯](http://www.movie.hkepx.cn/movie/9717106.htm)
-- [主持人实测滴滴21单平均抽成13.22%，为何司机普遍感觉抽成超过20%？抽走的钱最终流向了哪里？](http://www.play.hengshemaoyi.cn/xiju/5241849.htm)
-- [梁家辉集齐三金影帝大满贯](http://www.daogukj.com/0392707)
-- [羊城晚报评王楚钦反思长文](http://www.play.hengshemaoyi.cn/kongbu/2803464.htm)
-- [女子月薪两万，公司按最低基数交社保，一算账「养老金每月少 2000 元」 ，还会影响哪些待遇？](http://www.movie.hkepx.cn/xiju/1334432.htm)
-- [人民空军成立77周年](http://www.play.hengshemaoyi.cn/kongbu/2200403.htm)
-- [中方对美关税调整，两月内继续暂停实施 24% 的加征关税税率，保留 10% 的加征关税税率，如何解读？](http://www.play.hengshemaoyi.cn/kongbu/7911895.htm)
-- [曝平头哥估值200亿至300亿美元](http://www.movie.hkepx.cn/movie/9434304.htm)
-- [拼多多送货上门新规11月13日生效](http://www.daogukj.com/9720422)
-- [养了大肥鱼以后，家里的米就没够吃过](http://www.daogukj.com/5290019)
-- [【纪录片】蓝色星球 第三季 02 辽阔远洋](http://www.movie.hkepx.cn/movie/2595562.htm)
-- [如何评价学院命名冗余的现象？比如“数学学院”“化学学院”，以前都是简单的“数学院”“化学院”？](http://www.movie.hkepx.cn/movie/1663396.htm)
-- [推迟到校 孩子的20分钟该归谁](http://www.daogukj.com/xmeoocun/)
-- [高叶金鸡影后](http://www.daogukj.com/srvnzwkb/)
-- [金鸡奖获奖名单](http://www.daogukj.com/9309214)
-- [男子靠「鸭形拳」获武术比赛冠军遭调侃动作像舞蹈，这类象形拳实战效果如何？](http://www.play.hengshemaoyi.cn/kongbu/8088630.htm)
-- [一车主自助洗车7小时38分洗到凌晨](http://www.play.hengshemaoyi.cn/xiju/2775140.htm)
-- [售价 2499 元平衡指环号称戴上就「推不倒」遭质疑，企业称将请院士级科学家说明，这背后有科学依据吗？](http://www.play.hengshemaoyi.cn/kongbu/3428499.htm)
-- [英伟达两天蒸发2.85万亿元](http://www.daogukj.com/3278515)
-- [《人皇步》](http://www.movie.hkepx.cn/xiju/0756083.htm)
-- [梁家辉 三金大满贯](http://www.daogukj.com/yszfskeo/)
-- [七巨头260亿美元“押注”Anthropic](http://www.daogukj.com/exnmuhvg/)
-- [为什么没有多少人用五笔了？](http://www.play.hengshemaoyi.cn/kongbu/0838017.htm)
-- [梁家辉幽默回应独自坐高铁](http://www.movie.hkepx.cn/xiju/4430016.htm)
-- [当队友拿不同击杀数时我的态度](http://www.play.hengshemaoyi.cn/xiju/8509628.htm)
-- [许飞把和何炅的合照放C位](http://www.daogukj.com/4084559)
-- [【手残联萌】12周年特别节目](http://www.play.hengshemaoyi.cn/kongbu/7290776.htm)
-- [吴京穿着那件熟悉的西装亮相金鸡奖](http://www.movie.hkepx.cn/xiju/8703656.htm)
-- [5个上门维修师傅2个说了实话](http://www.daogukj.com/xgwhpfta/)
-- [花坛藏尸案动手行凶者为何死缓](http://www.play.hengshemaoyi.cn/kongbu/5234043.htm)
-- [鲸鱼APP疑暴雷 警方已立案](http://www.play.hengshemaoyi.cn/xiju/0981929.htm)
-- [⚡️黄仁勋 | Trouble Maker × 回家的诱惑⚡️英伟达年会现场双黄演绎崩老头【AI MV大赛】](http://www.daogukj.com/8836439)
-- [黄仁勋呐，出轨我们也认。](http://www.daogukj.com/syjkuwqb/)
-- [动态视频｜打败许昕，获得iPhone Duo！](http://www.play.hengshemaoyi.cn/kongbu/5357592.htm)
-- [一碗免费面咋把隔壁小店逼到想搬家](http://www.daogukj.com/5545136)
-- [梁家辉：不坐高铁准备走路回去](http://www.daogukj.com/myafughb/)
-- [男子与第三者发生关系后猝死](http://www.daogukj.com/drenvtnu/)
-- [【1酱赛评四强篇·上】BLG突破LPL对S赛T1不胜历史！几代人的夙愿！14年的等待！终于在S赛战胜T1！爽爽爽爽爽！！！！](http://www.movie.hkepx.cn/movie/8190790.htm)
-- [梁家辉举奖杯高喊咱们开工了](http://www.daogukj.com/uthpzicf/)
-- [女子称住酒店发现被子上有干结粪便](http://www.play.hengshemaoyi.cn/kongbu/9527939.htm)
-- [扬州地震](http://www.daogukj.com/2678664)
-- [特厨探店|探店这么多年，没想到还是会震惊！](http://www.daogukj.com/qevzlmky/)
-- [金鸡最佳导演 爆冷](http://www.play.hengshemaoyi.cn/kongbu/2252968.htm)
-- [长征故事蕴含的制胜之道](http://www.movie.hkepx.cn/movie/6923701.htm)
-- [拉宏徒步 小尼父母家真实到没剧本](http://www.daogukj.com/2329215)
-- [潮汕狮头鹅头为什么售价上千？](http://www.movie.hkepx.cn/movie/1652771.htm)
-- [女子补缴社保个人承担不到10万](http://www.play.hengshemaoyi.cn/xiju/2768861.htm)
-- [如何盗走《蒙娜丽莎》？【硬核狠人92】](http://www.daogukj.com/8449888)
+- [央视曝光：“取消外卖”短视频系摆拍](http://www.daogukj.com/vrzctubb/)
+- [司美格鲁肽等减肥神药或致永久失明](http://www.daogukj.com/6886560)
+- [天猫双11](http://www.movie.hkepx.cn/movie/9717106.htm)
+- [罗大佑怒批赖清德：不要脸到家了](http://www.play.hengshemaoyi.cn/xiju/5241849.htm)
+- [怎么看路透社表示 Anthropic IPO 估值下调到1万亿美元，目标募集 643.5 亿美元？](http://www.daogukj.com/0392707)
+- [许飞 厉娜](http://www.play.hengshemaoyi.cn/kongbu/2803464.htm)
+- [BLG进决赛引来半个娱乐圈](http://www.movie.hkepx.cn/xiju/1334432.htm)
+- [人民日报评画地为牢出圈](http://www.play.hengshemaoyi.cn/kongbu/2200403.htm)
+- [78分钟硬科幻AI电影《孤鲸》，华语科幻星云奖最佳短篇小说改编](http://www.play.hengshemaoyi.cn/kongbu/7911895.htm)
+- [5元换电池能解决的燃气灶问题要260元，记者暗访5位上门维修师傅仅2人说实话，为什么上门维修总有套路？](http://www.movie.hkepx.cn/movie/9434304.htm)
+- [扬州地震](http://www.daogukj.com/9720422)
+- [⚡️黄仁勋 | Trouble Maker × 回家的诱惑⚡️英伟达年会现场双黄演绎崩老头【AI MV大赛】](http://www.daogukj.com/5290019)
+- [一名校毕业生为泄私愤向境外机构匿名举报，诬陷同事是「间谍」，会造成多大不良影响？诬告人将付出什么代价？](http://www.movie.hkepx.cn/movie/2595562.htm)
+- [金鸡最佳导演爆冷](http://www.movie.hkepx.cn/movie/1663396.htm)
+- [幼儿园、小学、初中学龄人口已经达峰，对教育行业意味着什么？哪些新变化值得关注？](http://www.daogukj.com/xmeoocun/)
+- [罗永浩直播现场手搓vibecoding](http://www.daogukj.com/srvnzwkb/)
+- [黄仁勋呐，出轨我们也认。](http://www.daogukj.com/9309214)
+- [《鸣潮》共鸣者「莉莉」PV | 忘记恐惧](http://www.play.hengshemaoyi.cn/kongbu/8088630.htm)
+- [“嘉豪”希望改名：被嘲笑晚上睡不着](http://www.play.hengshemaoyi.cn/xiju/2775140.htm)
+- [【1酱赛评四强篇·上】BLG突破LPL对S赛T1不胜历史！几代人的夙愿！14年的等待！终于在S赛战胜T1！爽爽爽爽爽！！！！](http://www.play.hengshemaoyi.cn/kongbu/3428499.htm)
+- [【纪录片】蓝色星球 第三季 02 辽阔远洋](http://www.daogukj.com/3278515)
+- [三国营中逢诡计 马谡险入诈骗局](http://www.movie.hkepx.cn/xiju/0756083.htm)
+- [山姆现20元一包泡面，含肉量60克以上，只能下锅煮不能开水泡，被吐槽太贵不方便，你怎么看？觉得值吗？](http://www.daogukj.com/yszfskeo/)
+- [羊城晚报评王楚钦反思长文](http://www.daogukj.com/exnmuhvg/)
+- [如何评价学院命名冗余的现象？比如“数学学院”“化学学院”，以前都是简单的“数学院”“化学院”？](http://www.play.hengshemaoyi.cn/kongbu/0838017.htm)
+- [网友谈扬州地震：躺床上直接被摇醒](http://www.movie.hkepx.cn/xiju/4430016.htm)
+- [鲸鱼APP无法提现警方已立案](http://www.play.hengshemaoyi.cn/xiju/8509628.htm)
+- [立陶宛要求所谓“台湾代表处”改名](http://www.daogukj.com/4084559)
+- [冬天洗澡 早上洗还是晚上洗](http://www.play.hengshemaoyi.cn/kongbu/7290776.htm)
+- [《人皇步》](http://www.movie.hkepx.cn/xiju/8703656.htm)
+- [养了大肥鱼以后，家里的米就没够吃过](http://www.daogukj.com/xgwhpfta/)
+- [39岁经纪人疑因新冠去世](http://www.play.hengshemaoyi.cn/kongbu/5234043.htm)
+- [布朗无视塔图姆打招呼](http://www.play.hengshemaoyi.cn/xiju/0981929.htm)
+- [罗大佑炮轰赖清德：不要脸到家了](http://www.daogukj.com/8836439)
+- [又一地实现初中毕业生全员读高中](http://www.daogukj.com/syjkuwqb/)
+- [顺直大改造S2EP1—长发男与短发女的恨海情天](http://www.play.hengshemaoyi.cn/kongbu/5357592.htm)
+- [传奇历史人物志——麦克斯韦](http://www.daogukj.com/5545136)
+- [孙中山后人：统一是孙中山一生的信念](http://www.daogukj.com/myafughb/)
+- [梁家辉拒绝工作人员帮拿金鸡奖杯](http://www.daogukj.com/drenvtnu/)
+- [S16 半决赛 Doran 选出 VN 对线 Bin 的鳄鱼发挥失常，这手选人有哪些不合理之处？](http://www.movie.hkepx.cn/movie/8190790.htm)
+- [张卫健和周星驰的差距在哪儿？](http://www.daogukj.com/uthpzicf/)
+- [动态视频｜打败许昕，获得iPhone Duo！](http://www.play.hengshemaoyi.cn/kongbu/9527939.htm)
+- [张雪改口 不捐给韩红基金会了](http://www.daogukj.com/2678664)
+- [华为官宣杨幂折叠电脑先锋大使](http://www.daogukj.com/qevzlmky/)
+- [法国普通消费者为何爱买中国车](http://www.play.hengshemaoyi.cn/kongbu/2252968.htm)
+- [“效率提升百倍” 新型基础设施来了](http://www.movie.hkepx.cn/movie/6923701.htm)
+- [是不是体型越小的动物越不可能摔死？](http://www.daogukj.com/2329215)
+- [财神窦占龙 第15集 寻参【8月国创】](http://www.movie.hkepx.cn/movie/1652771.htm)
+- [Claude Fable 5.2、GPT-6 Astra 的发展，会对具身智能产生哪些实际影响？](http://www.play.hengshemaoyi.cn/xiju/2768861.htm)
+- [山东回礼大连](http://www.daogukj.com/8449888)
 
 </details>
 
 ## 原始来源
 
-- [THANK YOU Smoggy](https://b23.tv/BV1v8WT6uEJH)
+- [青稚 白小纯](https://s.weibo.com/weibo?q=%E9%9D%92%E7%A8%9A%20%E7%99%BD%E5%B0%8F%E7%BA%AF)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4ba976dbfdc163e1fded -->
+<!-- content-fingerprint: 32a110d768207d9affb0 -->
