@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 港媒曝霍启山娜然婚礼请柬
+# 网红「疯狂小马哥」离世，家人称是「打 PK」被要求喝20瓶酒中途猝死，连麦者与平台应承担责任吗？
 
-> 来源：今日头条热榜 · 排名：第 17 位 · 热度：1969954 · 分类：热门事件 · 更新：2026-11-12T09:13:27+08:00
+> 来源：知乎热榜 · 排名：第 17 位 · 热度：166 万热度 · 分类：问答 · 更新：2026-11-12T16:22:24+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“港媒曝霍启山娜然婚礼请柬”位列第 17 位，公开热度指标为 1969954，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“网红「疯狂小马哥」离世，家人称是「打 PK」被要求喝20瓶酒中途猝死，连麦者与平台应承担责任吗？”位列第 17 位，公开热度指标为 166 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：11月11日，家属在社交网络表示，网络博主“疯狂小马哥”已于近日离世。此前，该博主曾更新“掏蚁窝”“摘马蜂窝”等视频。 博主妹妹称，网传哥哥被红火蚁蜇伤致死不实，事发时哥哥正与其他博主直播连线“打PK”，被对方要求喝20瓶酒，喝到中途猝死，计划在处理完后事再追究对方与平台责任。 博主妹妹表示，事发前母亲不知道哥哥在做危险直播。@新京报 记者从毕节织金县牛场镇政府获悉，确有此事，公安机关已介入处理。 健康提示： 据人民日报报道，《自然·健康》期刊的一项研究指出，饮酒没有“安全量”。美国华盛顿大学等研究人员整合60余年843项研究数据，系统分析酒精与20种健
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [为什么一个企业的利润率0%，仍然可以赚钱？](xiong-you-cheng-zhu.md)
-- [【货币战争攻略】大洗牌后游戏节奏完全不同的货币战争S2究竟应该怎么玩？全网最详细最细节的货币战争S2运营教程与角色解析！看完直接领先同龄人一个大段](yun-chou-wei-wo.md)
-- [张雪摩托与电动车相撞 自己跑近1公里](shen-mou-yuan-lv.md)
-- [台当局要求陆客删中国台湾字样被批](ming-cha-qiu-hao.md)
+- [谁点名要看我cos德穆兰的？英语总监莅临还不快来迎接！](xiong-you-cheng-zhu.md)
+- [50多岁教师因学生顶嘴崩溃大哭](yun-chou-wei-wo.md)
+- [15岁等等写什么是孝](shen-mou-yuan-lv.md)
+- [A股结构性修复给出了什么信号](ming-cha-qiu-hao.md)
 
 ## 站内推荐
 
-- [为世界经济注入更多确定性和正能量](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [国产超豪华的路是不是走偏了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [警惕“车辆召回”虚假信息](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [男子结婚25年没让妻子上过一天班](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [名记：奥沙利文在75三杰中最先衰落](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [进博会，把全球南方好物送到中国](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
+- [女子产后患病遭丈夫拒门外带女婴流浪](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [如何看待马志明收郭德纲为义子？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [如何评价特朗普离任时给拜登的信？「与他在现实中的言论截然不同」指的是什么？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [通过低频脉冲刺激神经的「脉冲训练服」是什么原理？普通人能用来无痛锻炼吗？真能「坐着躺着就能长肌肉」吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [【BilibiliToy】这个是一个普普通通的人机验证，真的](http://www.movie.hkepx.cn/movie/7491355.htm)
-- [77万亿存款到期会流向哪里](http://www.movie.hkepx.cn/movie/6352008.htm)
-- [TLC闪存现货价大幅下跌：创今年最大单周跌幅｜显卡日报11月12日](http://www.play.hengshemaoyi.cn/kongbu/7644353.htm)
-- [奔驰要变了：100%为中国](http://www.daogukj.com/ywhitats/)
-- [今年双11货架电商怎么就又行了](http://www.movie.hkepx.cn/movie/3484420.htm)
-- [俄罗斯驻美国大使达尔奇耶夫去世](http://www.movie.hkepx.cn/movie/9834457.htm)
-- [了凡四训我们都知道，有没有人怀疑，了凡四训里的故事是假的？是劝人向善的鸡汤？](http://www.daogukj.com/7853746)
-- [如何评价楚超决赛颁奖典礼，轮到宜昌队领奖时湖北卫视切断直播信号一事？](http://www.daogukj.com/fwtacuny/)
-- [霍启山娜然 结婚](http://www.play.hengshemaoyi.cn/kongbu/1303344.htm)
-- [沙僧在《西游记》中，除了挑担子外，出场的时候很少，为什么吴承恩在写《西游记》时不把他删掉？](http://www.movie.hkepx.cn/movie/9793548.htm)
-- [高叶谈AI对演员职业的冲击](http://www.movie.hkepx.cn/xiju/5225700.htm)
-- [财神窦占龙 第15集 寻参【8月国创】](http://www.play.hengshemaoyi.cn/xiju/1079547.htm)
-- [女孩没带课本被老师打到抽搐倒地](http://www.daogukj.com/cppelcpa/)
-- [山姆399元充绒量300克羽绒服断货](http://www.play.hengshemaoyi.cn/xiju/9936698.htm)
-- [夜市摊主撞脸于适走红](http://www.play.hengshemaoyi.cn/xiju/3875070.htm)
-- [洒水车为何循环播放这首歌](http://www.play.hengshemaoyi.cn/xiju/9037846.htm)
-- [Anthropic披露AI仅用3天适配AMD芯片](http://www.play.hengshemaoyi.cn/xiju/5500139.htm)
-- [如果刚在图书馆一个空位子上坐下，有人过来说这是对方的位子，只是有事离开，要不要把位子还回去？](http://www.movie.hkepx.cn/movie/3660898.htm)
-- [警惕车辆召回谣言 已有人受骗](http://www.play.hengshemaoyi.cn/xiju/4097066.htm)
-- [谁点名要看我cos德穆兰的？英语总监莅临还不快来迎接！](http://www.daogukj.com/3797954)
-- [赵丽颖起诉红果短剧](http://www.movie.hkepx.cn/movie/1081634.htm)
-- [孙中山先生唯一存世的讲话留声](http://www.play.hengshemaoyi.cn/kongbu/6230935.htm)
-- [班主任在家长会上递辞呈边说边哽咽](http://www.movie.hkepx.cn/xiju/6125548.htm)
-- [如何看待马志明收郭德纲为义子？](http://www.play.hengshemaoyi.cn/xiju/0444256.htm)
-- [油价](http://www.play.hengshemaoyi.cn/kongbu/3739402.htm)
-- [如何评价羊城晚报对王楚钦反思文的评论「反思写得再好，也不能替你在赛场上多拿一分」？](http://www.daogukj.com/4846112)
-- [曝熊大被写死了](http://www.play.hengshemaoyi.cn/kongbu/6216021.htm)
-- [这都能还原！！？【MC阿哈篇】](http://www.play.hengshemaoyi.cn/xiju/2439055.htm)
-- [安德列娃连下11局胜萨巴伦卡](http://www.movie.hkepx.cn/xiju/9305926.htm)
-- [男子做木蜗牛走红 网友纷纷下单](http://www.daogukj.com/3174256)
-- [媒体评比亚迪大唐部分车辆轮辋装反](http://www.movie.hkepx.cn/xiju/7583013.htm)
-- [《再 试 一 次！》](http://www.daogukj.com/8189876)
-- [如何看待董宇辉回应旗下蛋糕保质期 9 个月，称-18度冷冻保质期变长是常识？这是「科技与狠活」吗？](http://www.movie.hkepx.cn/xiju/6446029.htm)
-- [女子西西弗买200元书坐咖啡区被拒](http://www.movie.hkepx.cn/movie/5734451.htm)
-- [名记：奥沙利文在75三杰中最先衰落](http://www.movie.hkepx.cn/movie/8002281.htm)
-- [台当局要求陆客删中国台湾字样被批](http://www.daogukj.com/7860194)
-- [BLG打赢GenG的概率有多大？](http://www.movie.hkepx.cn/movie/8408075.htm)
-- [大美高迪离婚](http://www.play.hengshemaoyi.cn/xiju/8943117.htm)
-- [日本药妆连锁品牌松本清称未销售过卡蓓诺洗发水，胖东来此前称未发现国内生产冒充进口情况，到底是怎么回事？](http://www.play.hengshemaoyi.cn/xiju/6486531.htm)
-- [12306回应外籍游客探出高铁车厢吸烟](http://www.play.hengshemaoyi.cn/kongbu/5235529.htm)
-- [罗大佑炮轰赖清德：不要脸到家了](http://www.movie.hkepx.cn/movie/0595206.htm)
-- [新疆塔克拉玛干沙漠边水稻迎丰收](http://www.movie.hkepx.cn/movie/8425375.htm)
-- [辽阔的土地生不出狭隘的爱](http://www.daogukj.com/4621288)
-- [比亚迪大唐轮毂错装，生产环节为何会出现这样的问题？官方称不影响安全，这样的处理方案能解决车主顾虑吗？](http://www.movie.hkepx.cn/movie/1333265.htm)
-- [马志明正式收郭德纲为义子](http://www.daogukj.com/4564701)
-- [18岁少女检出18种HPV亚型阳性](http://www.daogukj.com/zedewqov/)
-- [《我的傲娇星神不可能这么可爱》](http://www.daogukj.com/flvtssow/)
-- [家族后人回应台湾孩子不认识孙中山](http://www.movie.hkepx.cn/movie/2764293.htm)
-- [【货币战争攻略】大洗牌后游戏节奏完全不同的货币战争S2究竟应该怎么玩？全网最详细最细节的货币战争S2运营教程与角色解析！看完直接领先同龄人一个大段](http://www.movie.hkepx.cn/xiju/9847609.htm)
-- [男子结婚25年没让妻子上过一天班](http://www.play.hengshemaoyi.cn/kongbu/4804429.htm)
+- [5个县域人均消费支出超一线城市](http://www.movie.hkepx.cn/movie/7491355.htm)
+- [台陆军前总司令：台湾人就是中国人](http://www.movie.hkepx.cn/movie/6352008.htm)
+- [中美就300亿对等降税保持密切沟通](http://www.play.hengshemaoyi.cn/kongbu/7644353.htm)
+- [鱼换万物-烧烤](http://www.daogukj.com/ywhitats/)
+- [上海英语执法交警的手套两周换一副](http://www.movie.hkepx.cn/movie/3484420.htm)
+- [张雪：“读书无用论”很low](http://www.movie.hkepx.cn/movie/9834457.htm)
+- [《再 试 一 次！》](http://www.daogukj.com/7853746)
+- [高三生在拼豆店干坐1小时，留下5元钱、道歉纸条和父母电话，为什么能引发热议？给孩子教育留下怎样的启发？](http://www.daogukj.com/fwtacuny/)
+- [大美高迪离婚](http://www.play.hengshemaoyi.cn/kongbu/1303344.htm)
+- [《反方向の忠》](http://www.movie.hkepx.cn/movie/9793548.htm)
+- [为什么一个企业的利润率0%，仍然可以赚钱？](http://www.movie.hkepx.cn/xiju/5225700.htm)
+- [【纪录片】人生一串 第四季 02 心惊肉跳](http://www.play.hengshemaoyi.cn/xiju/1079547.htm)
+- [如何看待12306回应外籍游客探出高铁车厢吸烟，称「个人素质行为」无法阻止？高铁站吸烟为何难以管理？](http://www.daogukj.com/cppelcpa/)
+- [德芙广告宣扬错误婚恋观被罚80万元](http://www.play.hengshemaoyi.cn/xiju/9936698.htm)
+- [百度世界2026](http://www.play.hengshemaoyi.cn/xiju/3875070.htm)
+- [决不能让一个梗毁掉一个孩子](http://www.play.hengshemaoyi.cn/xiju/9037846.htm)
+- [中方奉劝七国集团管好自己的事情](http://www.play.hengshemaoyi.cn/xiju/5500139.htm)
+- [搬家公司9公里收费13900元，不给钱就扣货威胁，能怎么规避这种「套路搬」团伙？遇到这种情况该怎么办？](http://www.movie.hkepx.cn/movie/3660898.htm)
+- [大美喊话高迪](http://www.play.hengshemaoyi.cn/xiju/4097066.htm)
+- [多位明星遭AI短剧换脸后维权](http://www.daogukj.com/3797954)
+- [郭德纲在天津举办收徒仪式](http://www.movie.hkepx.cn/movie/1081634.htm)
+- [腾讯裁员50%？知情人士回应](http://www.play.hengshemaoyi.cn/kongbu/6230935.htm)
+- [范弗里特：火箭的风格仍在建设中](http://www.movie.hkepx.cn/xiju/6125548.htm)
+- [文明重启：耗时3年，我终于做出了我的第一件铁器](http://www.play.hengshemaoyi.cn/xiju/0444256.htm)
+- [红楼梦AI剧侵害17位演员肖像权](http://www.play.hengshemaoyi.cn/kongbu/3739402.htm)
+- [《原神》过场动画-「岩与契约」](http://www.daogukj.com/4846112)
+- [山姆399元羽绒服打脸谁](http://www.play.hengshemaoyi.cn/kongbu/6216021.htm)
+- [今晚调油价 加满一箱油将少花25.5元](http://www.play.hengshemaoyi.cn/xiju/2439055.htm)
+- [男子结婚25年没让妻子上过一天班](http://www.movie.hkepx.cn/xiju/9305926.htm)
+- [腾讯辟谣裁员50%](http://www.daogukj.com/3174256)
+- [山姆399元羽绒服断货供应商回应](http://www.movie.hkepx.cn/xiju/7583013.htm)
+- [《洛克王国：世界》全新活动预告「阿布重逢记」](http://www.daogukj.com/8189876)
+- [韩国有可能再恢复使用汉字吗？](http://www.movie.hkepx.cn/xiju/6446029.htm)
+- [泽连斯基：领土问题需领导人层面讨论](http://www.movie.hkepx.cn/movie/5734451.htm)
+- [通过低频脉冲刺激神经的「脉冲训练服」是什么原理？普通人能用来无痛锻炼吗？真能「坐着躺着就能长肌肉」吗？](http://www.movie.hkepx.cn/movie/8002281.htm)
+- [A股结构性修复给出了什么信号](http://www.daogukj.com/7860194)
+- [小学生忘带课本遭老师用四十厘米戒尺持续殴打至抽搐倒地，官方已介入，具体情况如何？老师可能承担什么责任？](http://www.movie.hkepx.cn/movie/8408075.htm)
+- [“喝大水”越多越健康？谣言](http://www.play.hengshemaoyi.cn/xiju/8943117.htm)
+- [奔驰 CEO 称「在中国，车要大，非常大，大得惊人」，实际情况是这样吗？为什么国内外会存在这样的区别？](http://www.play.hengshemaoyi.cn/xiju/6486531.htm)
+- [解放军对台“无声军演”？没啥好猜的](http://www.play.hengshemaoyi.cn/kongbu/5235529.htm)
+- [如何看待第44届金摇杆奖年度终极游戏被《生化危机9：安魂曲》拿下，《影之刃零》遗憾屈居第二？](http://www.movie.hkepx.cn/movie/0595206.htm)
+- [你做过哪些不算「标准答案」，却「更接近自己」的选择？](http://www.movie.hkepx.cn/movie/8425375.htm)
+- [德系车三巨头到底是怎么了](http://www.daogukj.com/4621288)
+- [【带着AI穿越2018】#6 蓝色大肥鱼单刀赴会阿美莉卡](http://www.movie.hkepx.cn/movie/1333265.htm)
+- [斯马特被驱逐出场](http://www.daogukj.com/4564701)
+- [《GTA6》官方确认主机版目标帧率只有30帧，你怎么看？](http://www.daogukj.com/zedewqov/)
+- [2627赛季NBA常规赛勇士 108:115 火箭，库里伤退，斯马特挥拳被驱逐，如何评价这场比赛？](http://www.daogukj.com/flvtssow/)
+- [德芙广告宣扬错误婚恋观 被罚80万](http://www.movie.hkepx.cn/movie/2764293.htm)
+- [50多岁教师因学生顶嘴崩溃大哭](http://www.movie.hkepx.cn/xiju/9847609.htm)
+- [如何评价特朗普离任时给拜登的信？「与他在现实中的言论截然不同」指的是什么？](http://www.play.hengshemaoyi.cn/kongbu/4804429.htm)
 
 </details>
 
 ## 原始来源
 
-- [港媒曝霍启山娜然婚礼请柬](https://www.toutiao.com/trending/7706824016128098825/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2215%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227706824016128098825%22%2C%22hot_board_impr_id%22%3A%22202611120913250CBFF3DC4EDD7F561F19%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
+- [网红「疯狂小马哥」离世，家人称是「打 PK」被要求喝20瓶酒中途猝死，连麦者与平台应承担责任吗？](https://www.zhihu.com/question/2103943866126525715)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: cf8b9312370f9e72b419 -->
+<!-- content-fingerprint: c81b8b96d82df32c6bbf -->
