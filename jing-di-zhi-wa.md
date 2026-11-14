@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 欧航空安全组织成员国停飞赴美航班
+# 英伟达架构有多逆天
 
-> 来源：微博热搜 · 排名：第 17 位 · 热度：270795 · 分类：国际时政 · 更新：2026-11-14T11:21:53+08:00
+> 来源：微博热搜 · 排名：第 17 位 · 热度：289239 · 分类：数码 · 更新：2026-11-14T18:44:10+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“欧航空安全组织成员国停飞赴美航班”位列第 17 位，公开热度指标为 270795，榜单分类为“国际时政”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“英伟达架构有多逆天”位列第 17 位，公开热度指标为 289239，榜单分类为“数码”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `国际时政`
+`微博热搜` `实时热搜` `热点资讯` `数码`
 
 ## 相关热点
 
-- [警惕4类血糖杀手](hai-kuo-tian-kong.md)
-- [林黛玉吃五香大头菜是败笔吗？](gao-zhan-yuan-zhu.md)
-- [75年后，他终于带上牺牲的战友去北京看天安门了](xiong-you-cheng-zhu.md)
-- [销量飙涨150%！华强北爆款上新了](yun-chou-wei-wo.md)
+- [女子称因拒绝给HR带咖啡被取消面试](hai-kuo-tian-kong.md)
+- [林黛玉为什么说自己无房无地一无所有，是因为太谦虚吗？](gao-zhan-yuan-zhu.md)
+- [假⚡️面⚡️难⚡️藏⚡️泪](xiong-you-cheng-zhu.md)
+- [男子勒死妻子后自杀 此前曾砍伤妻子](yun-chou-wei-wo.md)
 
 ## 站内推荐
 
-- [一组数据读懂APEC“中国年”新机遇](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [全美航班停飞 上上次是9·11](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [产妇求剖腹产遭拒孩子脑瘫丈夫发声](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [2026KPL年总首发名单](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [黄仁勋辞职或影响史上最大IPO](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [APEC深圳会议各项筹备工作已就绪](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [原价129万一支的天价药进医保了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [MCN摆拍骑手悲惨遭遇实为卖翡翠](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [白小纯太敢说了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [大美高迪事件怀疑不等于公开指控](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [AI短剧《梦回红楼》被指侵害17位演员肖像，还魔改出林黛玉掌掴薛宝钗等情节，制作方要承担哪些法律责任？](http://www.play.hengshemaoyi.cn/xiju/2682331.htm)
-- [特惠车、一口价 逼“疯”网约车司机](http://www.movie.hkepx.cn/movie/3552953.htm)
-- [中国总理时隔7年访问 泰总理接机](http://www.movie.hkepx.cn/xiju/5501331.htm)
-- [于东来称胖东来将就洗发水争议出调研报告，消费者该关注哪些信息？](http://www.daogukj.com/5865714)
-- [SpaceX 星舰第 15 次试飞发射升空，助推器回收失败改为海上溅落，目前进展如何？](http://www.movie.hkepx.cn/xiju/6974026.htm)
-- [景林资产第三季建仓英伟达](http://www.movie.hkepx.cn/movie/6932309.htm)
-- [杭州老板帮老外脱毛 年收入超7亿](http://www.play.hengshemaoyi.cn/xiju/6279680.htm)
-- [产妇求剖腹产遭拒孩子脑瘫丈夫发声](http://www.movie.hkepx.cn/movie/2684858.htm)
-- [美交通部长：停飞源于系统老化](http://www.daogukj.com/4259523)
-- [王晶回应《麻将女王》票房4455元](http://www.daogukj.com/qgjsruwo/)
-- [为什么楚国被攻下首都和陪都后还能存活五十余年？](http://www.play.hengshemaoyi.cn/kongbu/0099761.htm)
-- [全校仅50多岁教师一人自愿当班主任](http://www.play.hengshemaoyi.cn/kongbu/2800065.htm)
-- [今天是杨开慧烈士牺牲96周年](http://www.movie.hkepx.cn/xiju/7938027.htm)
-- [你们外卖还有陪聊服务吗？](http://www.daogukj.com/yxmhbgmj/)
-- [如何评价清华大学 2026 年本科生特等奖学金的 15 名候选人？](http://www.daogukj.com/ysjajnjj/)
-- [黄仁勋辞职或影响史上最大IPO](http://www.daogukj.com/4118538)
-- [纯稚](http://www.play.hengshemaoyi.cn/kongbu/8139573.htm)
-- [阿里巴巴公告拟分拆平头哥赴港独立上市，已于9月11日秘密递交上市申请，怎样解读这一动作？上市前景如何？](http://www.daogukj.com/bgjdqoal/)
-- [有用版新僵尸：慈祥二爷](http://www.play.hengshemaoyi.cn/kongbu/1399796.htm)
+- [德古拉活了几百年 头一回遇上情敌](http://www.play.hengshemaoyi.cn/xiju/2682331.htm)
+- [业内：山姆399元羽绒服是钩子商品](http://www.movie.hkepx.cn/movie/3552953.htm)
+- [奚梦瑶家里的盘子用的都是爱马仕的](http://www.movie.hkepx.cn/xiju/5501331.htm)
+- [俄军防空击落3架友军直升机？大V解读](http://www.daogukj.com/5865714)
+- [乌鲁木齐禁售马肉马肠制品？假的](http://www.movie.hkepx.cn/xiju/6974026.htm)
+- [俄媒：乌企图全方位袭击俄罗斯](http://www.movie.hkepx.cn/movie/6932309.htm)
+- [多地中小学宣布调整作息](http://www.play.hengshemaoyi.cn/xiju/6279680.htm)
+- [MCN摆拍骑手悲惨遭遇实为卖翡翠](http://www.movie.hkepx.cn/movie/2684858.htm)
+- [全美航班停飞亲历者：未获补偿](http://www.daogukj.com/4259523)
+- [曝爱奇艺尖叫之夜压轴](http://www.daogukj.com/qgjsruwo/)
+- [在这里，万亿吨水被强行灌进火山……【地理志】](http://www.play.hengshemaoyi.cn/kongbu/0099761.htm)
+- [真的建议大家上班带点零食](http://www.play.hengshemaoyi.cn/kongbu/2800065.htm)
+- [吴清称A股市情在全球独一无二](http://www.movie.hkepx.cn/xiju/7938027.htm)
+- [2026S16 半决赛 Faker 输给 BLG，为何依然获得 LPL 普遍尊重？](http://www.daogukj.com/yxmhbgmj/)
+- [马化腾曾坦言腾讯AI「上了船才发现船漏水」，如今又把员工分成陆军和海军，这释放了什么信号？](http://www.daogukj.com/ysjajnjj/)
+- [大美高迪事件怀疑不等于公开指控](http://www.daogukj.com/4118538)
+- [遭丈夫勒颈杀害女子家属发声](http://www.play.hengshemaoyi.cn/kongbu/8139573.htm)
+- [马斯克卫星为何遇到麻烦](http://www.daogukj.com/bgjdqoal/)
+- [Vibe知识大赏 | 挣钱的本质](http://www.play.hengshemaoyi.cn/kongbu/1399796.htm)
 - [《给阿嬷的情书》获金鸡奖最佳编剧时无人响应，《密档》获金鸡奖最佳导演时掌声一片，你怎么看？](http://www.movie.hkepx.cn/xiju/1312398.htm)
-- [离谱答案大合集4](http://www.daogukj.com/hqgapaxs/)
-- [特朗普：美空管系统故障与网络攻击无关](http://www.play.hengshemaoyi.cn/xiju/5373978.htm)
-- [深圳一学校“秋假商请函”火了](http://www.daogukj.com/1191954)
-- [白小纯落泪堪比北影教材](http://www.daogukj.com/6834210)
-- [如何评价11月13日上市的问界新M8，售价37.98万元起，这一价格在如今的市场有竞争力嘛？](http://www.movie.hkepx.cn/movie/6540828.htm)
-- [2027英雄联盟赛事举办地公布](http://www.movie.hkepx.cn/movie/7210597.htm)
-- [乌鲁木齐禁售马肉马肠制品？假的](http://www.movie.hkepx.cn/xiju/0123432.htm)
-- [深圳盛装喜迎亚太宾朋](http://www.play.hengshemaoyi.cn/kongbu/3128174.htm)
-- [什么样的家庭能养出厉娜](http://www.daogukj.com/7181360)
-- [向太疑惑许飞为何当时不解开误会](http://www.daogukj.com/6926357)
-- [美国发生了一件不该发生的事](http://www.play.hengshemaoyi.cn/kongbu/9049497.htm)
+- [为什么国内止痛药普遍使用布洛芬而不是阿司匹林？](http://www.daogukj.com/hqgapaxs/)
+- [董明珠：格力对文凭的考虑逐步取消](http://www.play.hengshemaoyi.cn/xiju/5373978.htm)
+- [BLG VLOG | 决赛我们来了](http://www.daogukj.com/1191954)
+- [笑点一高大事件](http://www.daogukj.com/6834210)
+- [茅台放开全系产品销售意味着什么](http://www.movie.hkepx.cn/movie/6540828.htm)
+- [男婴因黄疸鼻塞入新生儿科次日死亡](http://www.movie.hkepx.cn/movie/7210597.htm)
+- [大美晒受伤照片](http://www.movie.hkepx.cn/xiju/0123432.htm)
+- [一图读懂我国消费市场潜力与活力](http://www.play.hengshemaoyi.cn/kongbu/3128174.htm)
+- [高迪 王乐乐](http://www.daogukj.com/7181360)
+- [中国乘客亲历全美停飞以为被空袭](http://www.daogukj.com/6926357)
+- [耗资上万！我把匠魂做进了网页版mc... 【B站AI创造公开赛】](http://www.play.hengshemaoyi.cn/kongbu/9049497.htm)
 - [怎么看 DeepSeek 发布全家桶 API，这个价格你接受吗？](http://www.daogukj.com/eiphdnwm/)
 - [多地高中严格执行周末双休、厅长公开表示对学生太累深感愧疚，江苏教育这次突然的大动作是何原因？](http://www.movie.hkepx.cn/xiju/7401130.htm)
-- [美国所有航班暂停起飞](http://www.movie.hkepx.cn/movie/7110434.htm)
-- [为什么国内止痛药普遍使用布洛芬而不是阿司匹林？](http://www.play.hengshemaoyi.cn/kongbu/4490690.htm)
-- [白小纯上综艺只是为给公司带点流量](http://www.movie.hkepx.cn/movie/6518386.htm)
-- [【独家】《罗小黑战记》第43话 跟师父一起做任务啦【10月国创】](http://www.daogukj.com/8067678)
-- [林黛玉吃五香大头菜是败笔吗？](http://www.play.hengshemaoyi.cn/kongbu/6649001.htm)
-- [假⚡️面⚡️难⚡️藏⚡️泪](http://www.daogukj.com/htblbqcb/)
-- [原来李宇春是井柏然的老板](http://www.play.hengshemaoyi.cn/xiju/4658280.htm)
-- [全美航班停飞令已解除](http://www.movie.hkepx.cn/xiju/0000676.htm)
-- [“美国茅台”再创新高](http://www.play.hengshemaoyi.cn/kongbu/4700540.htm)
-- [笑点一高大事件](http://www.movie.hkepx.cn/xiju/2723766.htm)
-- [艾薇儿官宣生女](http://www.daogukj.com/sxyjxhms/)
-- [巨型生物袭击村庄，而你却孤身一人！面对你的只有绝望！](http://www.play.hengshemaoyi.cn/kongbu/7497786.htm)
-- [女子回应读博期间3年生下3个孩子](http://www.play.hengshemaoyi.cn/kongbu/0039607.htm)
-- [遇到这4种电话 别接别回别点](http://www.daogukj.com/9799008)
-- [请回答1988善宇扮演者酒驾](http://www.daogukj.com/uavkxthj/)
-- [Lisa演唱会拿鞭子](http://www.play.hengshemaoyi.cn/xiju/1469979.htm)
+- [90后女老师转行汽修 门店年营收千万](http://www.movie.hkepx.cn/movie/7110434.htm)
+- [新婚夫妻还没出蜜月双双确诊糖尿病](http://www.play.hengshemaoyi.cn/kongbu/4490690.htm)
+- [" 1 ＋0 ＝10 "](http://www.movie.hkepx.cn/movie/6518386.htm)
+- [【独家】《凡人修仙传之慕兰之战》第24集【总第200集】](http://www.daogukj.com/8067678)
+- [林黛玉为什么说自己无房无地一无所有，是因为太谦虚吗？](http://www.play.hengshemaoyi.cn/kongbu/6649001.htm)
+- [怪诞虫：一只看起来活不过三天的动物，真的存在过？](http://www.daogukj.com/htblbqcb/)
+- [高迪疑似回应家暴](http://www.play.hengshemaoyi.cn/xiju/4658280.htm)
+- [美国为何发生航班大规模停飞事件](http://www.movie.hkepx.cn/xiju/0000676.htm)
+- [【唐唐】深度解析伪纪录片《放送禁止》细思极恐的答案！](http://www.play.hengshemaoyi.cn/kongbu/4700540.htm)
+- [如何看待王晶执导的港片《麻将女王》内地上映 8 天，票房 4455 元没有破万，仅 126 人观影？](http://www.movie.hkepx.cn/xiju/2723766.htm)
+- [女子投诉游泳馆：把我当猪仔一样卖](http://www.daogukj.com/sxyjxhms/)
+- [【2026全球总决赛】UP主赛前应援BLG，风起今朝，不留遗憾！](http://www.play.hengshemaoyi.cn/kongbu/7497786.htm)
+- [国产独游又出了款冷门黑马](http://www.play.hengshemaoyi.cn/kongbu/0039607.htm)
+- [乌对俄发动近5年来最大规模空袭](http://www.daogukj.com/9799008)
+- [波司登王力宏同款仅售16件](http://www.daogukj.com/uavkxthj/)
+- [黄仁勋会重新掌舵英伟达吗](http://www.play.hengshemaoyi.cn/xiju/1469979.htm)
 - [美国因出现特殊情况及安全原因，所有航班一度暂停起飞，目前停飞令已解除，具体情况如何？造成影响有多大？](http://www.play.hengshemaoyi.cn/kongbu/2837480.htm)
 
 </details>
 
 ## 原始来源
 
-- [欧航空安全组织成员国停飞赴美航班](https://s.weibo.com/weibo?q=%E6%AC%A7%E8%88%AA%E7%A9%BA%E5%AE%89%E5%85%A8%E7%BB%84%E7%BB%87%E6%88%90%E5%91%98%E5%9B%BD%E5%81%9C%E9%A3%9E%E8%B5%B4%E7%BE%8E%E8%88%AA%E7%8F%AD)
+- [英伟达架构有多逆天](https://s.weibo.com/weibo?q=%E8%8B%B1%E4%BC%9F%E8%BE%BE%E6%9E%B6%E6%9E%84%E6%9C%89%E5%A4%9A%E9%80%86%E5%A4%A9)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6015c3b63b1e5bedc796 -->
+<!-- content-fingerprint: 6566333a6a492d5196fa -->
