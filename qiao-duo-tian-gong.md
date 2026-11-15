@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 葡足协将封存C罗版7号球衣
+# 【2026KPL年度总决赛】11月14日 总决赛 北京JDG VS 北京WB
 
-> 来源：微博热搜 · 排名：第 19 位 · 热度：75086 · 分类：体育 · 更新：2026-11-15T04:56:59+08:00
+> 来源：哔哩哔哩热门 · 排名：第 19 位 · 热度：796538 · 分类：电子竞技 · 更新：2026-11-15T08:47:37+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“葡足协将封存C罗版7号球衣”位列第 19 位，公开热度指标为 75086，榜单分类为“体育”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“【2026KPL年度总决赛】11月14日 总决赛 北京JDG VS 北京WB”位列第 19 位，公开热度指标为 796538，榜单分类为“电子竞技”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：【2026KPL年度总决赛】11月14日 总决赛 北京JDG VS 北京WB
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `体育`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `电子竞技`
 
 ## 相关热点
 
-- [男子戒掉外卖自己做饭实现糖尿病逆转](gui-fu-shen-gong.md)
-- [讨好型人格在亲密关系里最容易踩什么坑？](jin-shang-tian-hua.md)
-- [耗资上万！我把匠魂做进了网页版mc... 【B站AI创造公开赛】](hua-long-dian-jing.md)
-- [S16总决赛首发名单](miao-bi-sheng-hua.md)
+- [田小娟还原卡莎神之八秒](gui-fu-shen-gong.md)
+- [周深KPL现场活跃气氛](jin-shang-tian-hua.md)
+- [正部级彭金辉有新职](hua-long-dian-jing.md)
+- [郑大圣凭借《密档》拿下金鸡最佳导演，这片子怎么样？实至名归吗？](miao-bi-sheng-hua.md)
 
 ## 站内推荐
 
-- [S16总决赛：BLG0比1落后GEN](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [男子狂买57箱花生油结果付的是赃款](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [北京WB斩获KPL年度总冠军](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [海陆瘦20斤再扮紫薇](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [BLG Viper：想让Ruler再感受一次遗憾](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [S16总决赛：中国战队BLG逆转夺冠](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [boss直聘暂停要求带咖啡公司账号权限](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [中芯国际产能利用率97.3%意味着什么](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [零元面馆设用餐门槛周边商户不买账](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [王子腾为什么不把女儿嫁给贾宝玉？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [马化腾曾坦言腾讯AI「上了船才发现船漏水」，如今又把员工分成陆军和海军，这释放了什么信号？](http://www.movie.hkepx.cn/movie/3926125.htm)
-- [KDA表演](http://www.daogukj.com/jbrqqhbh/)
-- [洗发水陷假洋牌争议 于东来正面回应](http://www.daogukj.com/6283106)
-- [美国因出现特殊情况及安全原因，所有航班一度暂停起飞，目前停飞令已解除，具体情况如何？造成影响有多大？](http://www.play.hengshemaoyi.cn/xiju/3501535.htm)
-- [《影之刃零》沐小葵建模获海外好评，如何看待东西方游戏女性角色审美的差异？](http://www.daogukj.com/tfcvjhpk/)
-- [【2026KPL年度总决赛】11月14日 总决赛 北京JDG VS 北京WB](http://www.daogukj.com/4841868)
-- [王乐乐](http://www.play.hengshemaoyi.cn/kongbu/6429820.htm)
-- [数读向新向优向好的中国经济](http://www.daogukj.com/jehuxdgs/)
-- [DeepSeek harness相比codex有什么劣势？](http://www.movie.hkepx.cn/xiju/1384580.htm)
-- [女子遭陌生人泼汽油全身90%烧伤](http://www.daogukj.com/qyeqjnqv/)
-- [遗传角度来看，孙子是和爷爷奶奶血缘更近，还是和外公外婆？](http://www.movie.hkepx.cn/movie/7212048.htm)
-- [博主：没了张玉宁国足就像另外一支队](http://www.movie.hkepx.cn/xiju/5780029.htm)
-- [孙悦婚礼孙卓落泪拥抱姐姐](http://www.daogukj.com/efezhgld/)
-- [《给阿嬷的情书》获金鸡奖最佳编剧时无人响应，《密档》获金鸡奖最佳导演时掌声一片，你怎么看？](http://www.play.hengshemaoyi.cn/kongbu/8328027.htm)
-- [赵本山主演喜剧《走马上任》口碑如何？有哪些亮点与不足？](http://www.movie.hkepx.cn/xiju/5360773.htm)
-- [乌鲁木齐禁售马肉马肠制品？假的](http://www.movie.hkepx.cn/movie/9566975.htm)
-- [纯黑《影之刃零》逆天者全程无伤一镜到底攻略解说 第三期](http://www.daogukj.com/8649041)
-- [抽象新闻：11月人类迷惑行为大赏（上）](http://www.daogukj.com/zvuykujr/)
-- [LPL战队都在为BLG加油](http://www.daogukj.com/smataala/)
-- [男子欠10元10年不还将债主打骨折](http://www.daogukj.com/mzqlfhhq/)
-- [GEN一比零领先BLG](http://www.play.hengshemaoyi.cn/kongbu/8184754.htm)
-- [男子戒掉外卖自己做饭实现糖尿病逆转](http://www.movie.hkepx.cn/movie/8042143.htm)
-- [拍铃铛1V3~](http://www.play.hengshemaoyi.cn/xiju/7145463.htm)
-- [冷空气“排班表”来了](http://www.play.hengshemaoyi.cn/kongbu/4548535.htm)
-- [怪诞虫：一只看起来活不过三天的动物，真的存在过？](http://www.daogukj.com/0313251)
-- [boss直聘暂停要求带咖啡公司账号权限](http://www.play.hengshemaoyi.cn/kongbu/0820222.htm)
-- [ON 别急](http://www.daogukj.com/btolggbq/)
-- [讨好型人格在亲密关系里最容易踩什么坑？](http://www.play.hengshemaoyi.cn/xiju/2703241.htm)
-- [《谷雨》导演查了所有演员税务才开机](http://www.play.hengshemaoyi.cn/xiju/1475778.htm)
-- [冬日宿舍之零下六十度？](http://www.play.hengshemaoyi.cn/xiju/4475779.htm)
-- [比特币一度跌破 6.8 万美元创8月以来新低，如何看待当下行情？比特币是否彻底变成顺周期高风险资产了？](http://www.play.hengshemaoyi.cn/xiju/3969235.htm)
-- [许飞听到不负少年不负卿上热搜的反应](http://www.play.hengshemaoyi.cn/kongbu/1797022.htm)
-- [MCN摆拍骑手悲惨遭遇实为卖翡翠](http://www.movie.hkepx.cn/xiju/9886322.htm)
-- [龚俊为BLG加油](http://www.play.hengshemaoyi.cn/xiju/1914744.htm)
-- [结束3连败！国足2-0马来西亚](http://www.movie.hkepx.cn/movie/2301491.htm)
-- [街头音要❗| 西南石油 你在听什么❗❓（第143期）](http://www.play.hengshemaoyi.cn/xiju/2353249.htm)
-- [田小娟太帅了](http://www.daogukj.com/fownzino/)
-- [野生交易员稳定盈利后，人生的下一步发展怎么走？](http://www.play.hengshemaoyi.cn/xiju/3652466.htm)
-- [BLG Viper：想让Ruler再感受一次遗憾](http://www.daogukj.com/7447842)
-- [S16总决赛：BLG0比1落后GEN](http://www.daogukj.com/kzpjmnze/)
-- [男子尝汤面后连面带碗扔垃圾桶](http://www.play.hengshemaoyi.cn/kongbu/4160936.htm)
-- [新婚夫妻还没出蜜月双双确诊糖尿病](http://www.daogukj.com/5391271)
-- [吴清：A股市情在全球独一无二](http://www.play.hengshemaoyi.cn/xiju/1037193.htm)
-- [BLG VLOG | 决赛我们来了](http://www.daogukj.com/4166842)
-- [【唐唐】深度解析伪纪录片《放送禁止》细思极恐的答案！](http://www.movie.hkepx.cn/xiju/6638941.htm)
-- [特朗普：空管系统故障无关网络攻击](http://www.play.hengshemaoyi.cn/kongbu/4151588.htm)
-- [博物馆被挑错数十处 闭馆3天核查](http://www.daogukj.com/jguwcjlw/)
-- [一束光 改写中国电力版图](http://www.movie.hkepx.cn/xiju/6322184.htm)
-- [GEN对战BLG](http://www.play.hengshemaoyi.cn/xiju/2530472.htm)
-- [Vibe知识大赏 | 挣钱的本质](http://www.daogukj.com/5202971)
+- [男子借10元救急 10多年不还](http://www.movie.hkepx.cn/movie/3926125.htm)
+- [CFA 中国之队肇庆国际足球邀请赛，国足 2-0 马来西亚，终结 3 连败进球荒，如何评价这场比赛？](http://www.daogukj.com/jbrqqhbh/)
+- [男子上门推拿加钟时性侵技师获刑](http://www.daogukj.com/6283106)
+- [【4K巨制】俄乌战争打了四年多，前线为什么几乎不动？｜3D 复原](http://www.play.hengshemaoyi.cn/xiju/3501535.htm)
+- [孙悦婚礼孙卓落泪拥抱姐姐](http://www.daogukj.com/tfcvjhpk/)
+- [Knight S16全球总决赛FMVP](http://www.daogukj.com/4841868)
+- [遗传角度来看，孙子是和爷爷奶奶血缘更近，还是和外公外婆？](http://www.play.hengshemaoyi.cn/kongbu/6429820.htm)
+- [APEC如何走进你我生活](http://www.daogukj.com/jehuxdgs/)
+- [全美航班停飞背后的十亿美元疑问](http://www.movie.hkepx.cn/xiju/1384580.htm)
+- [零元面馆附近商铺没人租](http://www.daogukj.com/qyeqjnqv/)
+- [巴基斯坦等17国 发表联合声明](http://www.movie.hkepx.cn/movie/7212048.htm)
+- [怪诞虫：一只看起来活不过三天的动物，真的存在过？](http://www.movie.hkepx.cn/xiju/5780029.htm)
+- [凡人修仙传动漫200集观众满意吗？](http://www.daogukj.com/efezhgld/)
+- [BLG捧杯](http://www.play.hengshemaoyi.cn/kongbu/8328027.htm)
+- [BLG](http://www.movie.hkepx.cn/xiju/5360773.htm)
+- [【轰】欺软怕硬？你最好不是妈妈生的！！](http://www.movie.hkepx.cn/movie/9566975.htm)
+- [孩子觉得打包丢人被老师扣分引热议](http://www.daogukj.com/8649041)
+- [葡萄牙1比4惨败丹麦](http://www.daogukj.com/zvuykujr/)
+- [《今 日 手 绷》](http://www.daogukj.com/smataala/)
+- [Viper炸弹人狂炸9.4万伤害](http://www.daogukj.com/mzqlfhhq/)
+- [后C罗时代葡萄牙遭遇大败](http://www.play.hengshemaoyi.cn/kongbu/8184754.htm)
+- [田小娟还原卡莎神之八秒](http://www.movie.hkepx.cn/movie/8042143.htm)
+- [一束光 改写中国电力版图](http://www.play.hengshemaoyi.cn/xiju/7145463.htm)
+- [GEN对战BLG](http://www.play.hengshemaoyi.cn/kongbu/4548535.htm)
+- [Canyon同意了](http://www.daogukj.com/0313251)
+- [马化腾曾坦言腾讯AI「上了船才发现船漏水」，如今又把员工分成陆军和海军，这释放了什么信号？](http://www.play.hengshemaoyi.cn/kongbu/0820222.htm)
+- [《后会友期》里谁演的成分比较大？](http://www.daogukj.com/btolggbq/)
+- [周深KPL现场活跃气氛](http://www.play.hengshemaoyi.cn/xiju/2703241.htm)
+- [传奇历史人物志——法拉第](http://www.play.hengshemaoyi.cn/xiju/1475778.htm)
+- [BLG发文我们是冠军](http://www.play.hengshemaoyi.cn/xiju/4475779.htm)
+- [【独家】《凡人修仙传之慕兰之战》第24集【总第200集】](http://www.play.hengshemaoyi.cn/xiju/3969235.htm)
+- [【卜劳恩《父与子》/非凡父爱】“如果没有那一场残酷的战争，父与子的结局或许会是这样……”](http://www.play.hengshemaoyi.cn/kongbu/1797022.htm)
+- [乌鲁木齐禁售马肉马肠制品？假的](http://www.movie.hkepx.cn/xiju/9886322.htm)
+- [博主：邵佳一终于找到国足最强阵容](http://www.play.hengshemaoyi.cn/xiju/1914744.htm)
+- [如何看待王传君谈《爱情公寓》言论争议，称当年觉得「关我屁事」和「关你屁事」，现在为冲动买单更小心翼翼？](http://www.movie.hkepx.cn/movie/2301491.htm)
+- [疑似后会友期白小纯表白王子璇路透](http://www.play.hengshemaoyi.cn/xiju/2353249.htm)
+- [董明珠称格力逐步取消文凭考量，本事是硬通行证，格力技校学费9000元起，但格力每年补贴1亿，如何解读？](http://www.daogukj.com/fownzino/)
+- [国足胜马来西亚赛场响起歌唱祖国](http://www.play.hengshemaoyi.cn/xiju/3652466.htm)
+- [王子腾为什么不把女儿嫁给贾宝玉？](http://www.daogukj.com/7447842)
+- [S16总决赛：中国战队BLG逆转夺冠](http://www.daogukj.com/kzpjmnze/)
+- [抽象新闻：11月人类迷惑行为大赏（上）](http://www.play.hengshemaoyi.cn/kongbu/4160936.htm)
+- [多部门暗访组调查 发现多个问题](http://www.daogukj.com/5391271)
+- [【唐唐】深度解析伪纪录片《放送禁止》细思极恐的答案！](http://www.play.hengshemaoyi.cn/xiju/1037193.htm)
+- [王乐乐](http://www.daogukj.com/4166842)
+- [闻着香吃着却不甜的街边烤红薯，真的是用香精浸泡过的吗？这是什么原理？可以如何辨别？](http://www.movie.hkepx.cn/xiju/6638941.htm)
+- [在这个世界里，你身后走过的地面会消失](http://www.play.hengshemaoyi.cn/kongbu/4151588.htm)
+- [曝C罗计划明年7月全家搬回葡萄牙](http://www.daogukj.com/jguwcjlw/)
+- [十五五时期中国储能新上加新](http://www.movie.hkepx.cn/xiju/6322184.htm)
+- [BLG夺冠](http://www.play.hengshemaoyi.cn/xiju/2530472.htm)
+- [圆周率中可能存在100万个连续的0吗？](http://www.daogukj.com/5202971)
 
 </details>
 
 ## 原始来源
 
-- [葡足协将封存C罗版7号球衣](https://s.weibo.com/weibo?q=%E8%91%A1%E8%B6%B3%E5%8D%8F%E5%B0%86%E5%B0%81%E5%AD%98C%E7%BD%97%E7%89%887%E5%8F%B7%E7%90%83%E8%A1%A3)
+- [【2026KPL年度总决赛】11月14日 总决赛 北京JDG VS 北京WB](https://b23.tv/BV1Kzs36kErx)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 79e404e25545f513750f -->
+<!-- content-fingerprint: 8ae6bf246e8763e4c0a1 -->
