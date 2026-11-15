@@ -2,30 +2,30 @@
 
 实时热点内容索引。页面采集公开榜单的标题、摘要、排名与来源链接，每 10 分钟检查一次，仅在榜单内容变化时提交更新。
 
-最后更新：2026-11-15T08:47:37+08:00
+最后更新：2026-11-15T15:15:50+08:00
 
 | 序号 | 热点标题 | 来源 |
 | ---: | --- | --- |
-| 1 | [王子腾为什么不把女儿嫁给贾宝玉？](jing-di-zhi-wa.md) | 知乎热榜 |
-| 2 | [你要是用AI，我就取关](hai-kuo-tian-kong.md) | 哔哩哔哩热门 |
-| 3 | [猛虎袭击巴基斯坦19岁少年 致其死亡](gao-zhan-yuan-zhu.md) | 百度热搜 |
-| 4 | [国足胜马来西亚赛场响起歌唱祖国](xiong-you-cheng-zhu.md) | 今日头条热榜 |
-| 5 | [闻着香吃着却不甜的街边烤红薯，真的是用香精浸泡过的吗？这是什么原理？可以如何辨别？](yun-chou-wei-wo.md) | 知乎热榜 |
-| 6 | [《今 日 手 绷》](shen-mou-yuan-lv.md) | 哔哩哔哩热门 |
-| 7 | [Viper炸弹人狂炸9.4万伤害](ming-cha-qiu-hao.md) | 百度热搜 |
-| 8 | [星舰超重型助推器回收时爆炸](jian-wei-zhi-zhu.md) | 微博热搜 |
-| 9 | [全美航班停飞背后的十亿美元疑问](du-ju-hui-yan.md) | 今日头条热榜 |
-| 10 | [圆周率中可能存在100万个连续的0吗？](bie-ju-jiang-xin.md) | 知乎热榜 |
-| 11 | [【2026KPL年度总决赛】11月14日 总决赛 北京JDG VS 北京WB](qiao-duo-tian-gong.md) | 哔哩哔哩热门 |
-| 12 | [田小娟还原卡莎神之八秒](gui-fu-shen-gong.md) | 百度热搜 |
-| 13 | [周深KPL现场活跃气氛](jin-shang-tian-hua.md) | 微博热搜 |
-| 14 | [正部级彭金辉有新职](hua-long-dian-jing.md) | 今日头条热榜 |
-| 15 | [郑大圣凭借《密档》拿下金鸡最佳导演，这片子怎么样？实至名归吗？](miao-bi-sheng-hua.md) | 知乎热榜 |
-| 16 | [【卜劳恩《父与子》/非凡父爱】“如果没有那一场残酷的战争，父与子的结局或许会是这样……”](sheng-dong-huo-po.md) | 哔哩哔哩热门 |
-| 17 | [《英雄联盟》将全面升级](xu-xu-ru-sheng.md) | 百度热搜 |
-| 18 | [BLG](huo-ling-huo-xian.md) | 微博热搜 |
-| 19 | [曝葡萄牙联系C罗想为他举办告别仪式](you-sheng-you-se.md) | 今日头条热榜 |
-| 20 | [赵本山主演喜剧《走马上任》口碑如何？有哪些亮点与不足？](yin-ren-ru-sheng.md) | 知乎热榜 |
+| 1 | [怎么看崔添翼在DeepSeek发布全家桶 API 后说，下一个超级 App 只属于个人的超级 App？](jing-di-zhi-wa.md) | 知乎热榜 |
+| 2 | [BLG夺冠瞬间影院反应实录](hai-kuo-tian-kong.md) | 哔哩哔哩热门 |
+| 3 | [余承东：大折叠已成为千万人的主力机](gao-zhan-yuan-zhu.md) | 百度热搜 |
+| 4 | [牌子猫](xiong-you-cheng-zhu.md) | 微博热搜 |
+| 5 | [人民日报三问希望小学卖惨骗捐案](yun-chou-wei-wo.md) | 今日头条热榜 |
+| 6 | [如何评价赵本山在《走马上任》原声演唱的推广曲《慌啥子嘛》？](shen-mou-yuan-lv.md) | 知乎热榜 |
+| 7 | [疾风传：鸣佐vs一式！](ming-cha-qiu-hao.md) | 哔哩哔哩热门 |
+| 8 | [B站送大会员 领取不了](jian-wei-zhi-zhu.md) | 百度热搜 |
+| 9 | [孙悦婚礼孙卓落泪拥抱姐姐](du-ju-hui-yan.md) | 微博热搜 |
+| 10 | [足球小将李昊炎半场一条龙破门](bie-ju-jiang-xin.md) | 今日头条热榜 |
+| 11 | [风清扬，任我行为什么看出来岳不群是伪君子，宁中则反而没看出来？](qiao-duo-tian-gong.md) | 知乎热榜 |
+| 12 | [【BLG夺冠精彩时刻】风起今朝，我们是世界冠军！](gui-fu-shen-gong.md) | 哔哩哔哩热门 |
+| 13 | [B站九年电竞投资等来大结果了吗](jin-shang-tian-hua.md) | 百度热搜 |
+| 14 | [Tim说难听话抽奖](hua-long-dian-jing.md) | 微博热搜 |
+| 15 | [好好的血管为什么会长出斑块](miao-bi-sheng-hua.md) | 今日头条热榜 |
+| 16 | [为什么年轻人越来越把友情当回事，很怕失去自己亲密的朋友？](sheng-dong-huo-po.md) | 知乎热榜 |
+| 17 | [Morning, Sardinia](xu-xu-ru-sheng.md) | 哔哩哔哩热门 |
+| 18 | [没续约LPL的赞助商要后悔得拍大腿了](huo-ling-huo-xian.md) | 百度热搜 |
+| 19 | [BLG夺冠引来半个娱乐圈](you-sheng-you-se.md) | 微博热搜 |
+| 20 | [20克大金镯子暴跌10000元](yin-ren-ru-sheng.md) | 今日头条热榜 |
 
 ## 成语内容索引
 
