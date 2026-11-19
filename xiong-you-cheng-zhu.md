@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 为何还有人坚持只买油车
+# 液氧罐头乐队主唱张宇去世
 
-> 来源：今日头条热榜 · 排名：第 18 位 · 热度：9016656 · 更新：2026-11-19T09:55:46+08:00
+> 来源：今日头条热榜 · 排名：第 18 位 · 热度：6607707 · 更新：2026-11-19T17:51:05+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“为何还有人坚持只买油车”位列第 18 位，公开热度指标为 9016656。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“液氧罐头乐队主唱张宇去世”位列第 18 位，公开热度指标为 6607707。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [现货黄金跌破 3800 美元关口，现在适合抄底黄金吗？黄金的长期配置逻辑还成立吗？](yun-chou-wei-wo.md)
-- [【4K】全网首发《GTA6》主线全流程实况解说（持续更新中）](shen-mou-yuan-lv.md)
-- [孙正义后悔当年没投Anthropic](ming-cha-qiu-hao.md)
-- [杨乐乐谈许飞厉娜](jian-wei-zhi-zhu.md)
+- [如何评价综艺《后会友期》第六期？](yun-chou-wei-wo.md)
+- [【GTA6】我们拥有真实的物理引擎](shen-mou-yuan-lv.md)
+- [董明珠获邀：你一定要来澳大利亚](ming-cha-qiu-hao.md)
+- [梁龙悼念张宇](jian-wei-zhi-zhu.md)
 
 ## 站内推荐
 
-- [新加坡在过去 10 年里 GDP 赶超香港的原因是什么？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [用AI做游戏 把开发成本打到了20块](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [特朗普晚宴后回酒店 市民有序围观](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [普京：难怪您会选这里举办APEC](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [加总理：中国在清洁能源领域全球领先](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [中俄美元首会晤“史无前例”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [赵丽颖小城大事获牡丹奖](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [叶连平将成为“大体老师”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [特朗普说请中国继续保持强大](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [公园里上百人做“拍拍操”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [养老保险缴15年就能坐等退休？假的](http://www.play.hengshemaoyi.cn/kongbu/3483820.htm)
-- [外国政要来深圳都打卡了哪](http://www.movie.hkepx.cn/xiju/3408565.htm)
-- [老戴《侠盗猎车手 6》初见开荒全实况流程解说【GTA 6】](http://www.play.hengshemaoyi.cn/kongbu/9358766.htm)
-- [杨超越被问太阳雨有戒断反应怎么办](http://www.movie.hkepx.cn/movie/6761076.htm)
-- [普京：难怪您会选这里作为APEC举办地](http://www.movie.hkepx.cn/movie/4354942.htm)
-- [特朗普在车内未拉窗帘欣赏深圳夜景](http://www.play.hengshemaoyi.cn/kongbu/7691913.htm)
-- [【IGN】10分，《GTA 6》评测：这个时代最伟大的游戏](http://www.daogukj.com/zxhxffqk/)
-- [腾讯称未来未必需要那么多管理岗位，中层管理者的价值该如何证明？](http://www.play.hengshemaoyi.cn/kongbu/0581403.htm)
-- [英伟达拒绝黄仁勋，史上最大的泡沫更脆弱了](http://www.play.hengshemaoyi.cn/xiju/8368894.htm)
-- [如何评价游戏《侠盗猎车手VI》（GTA6），它到底好不好玩？](http://www.movie.hkepx.cn/movie/3724589.htm)
-- [特朗普感受到了深圳市民的热情](http://www.movie.hkepx.cn/movie/4073082.htm)
-- [【4K】全网首发《GTA6》主线全流程实况解说（持续更新中）](http://www.movie.hkepx.cn/movie/7225991.htm)
-- [特朗普晚宴后回酒店 市民有序围观](http://www.movie.hkepx.cn/movie/5475557.htm)
-- [小姑娘的秋假被江西网友接住了](http://www.play.hengshemaoyi.cn/xiju/1901702.htm)
-- [为何都说“APEC需要中国”](http://www.daogukj.com/1487547)
-- [opencode go将glm 5.3提到了独一档的500美元额度支持。这是怎么实现的？](http://www.daogukj.com/sqqsfnyh/)
-- [“山东造”小冰箱为何又被提起](http://www.movie.hkepx.cn/movie/3969864.htm)
-- [普京和特朗普互动握手](http://www.daogukj.com/iqmqrbhp/)
-- [超市服装区挤满了年轻人](http://www.play.hengshemaoyi.cn/xiju/8313158.htm)
-- [外国游客：中国制造印象彻底改变](http://www.movie.hkepx.cn/xiju/9816658.htm)
-- [⚡赵本山《Bad Guy》大忽悠｜象牙山蹦野迪⚡【AI MV大赛】](http://www.daogukj.com/3514427)
-- [如何评价新版上海小学数学教材规定“平行四边形属于梯形”，但“长方形不是等腰梯形”？](http://www.movie.hkepx.cn/movie/5821299.htm)
-- [王羽佳国家大剧院演出迟到17分钟，此前香港站缩减演出时长主办方退款，如何评价这种行为？这算耍大牌吗？](http://www.movie.hkepx.cn/movie/7016997.htm)
-- [「幽明志」幽城残梦](http://www.daogukj.com/klgjmmqw/)
-- [又一部毁童年神作！诱拐儿童，骚扰护士，发疯大屠杀，这真是小孩子能看能演的吗？《逃出布迪秀》](http://www.play.hengshemaoyi.cn/kongbu/2965446.htm)
-- [THANK YOU ZmjjKK](http://www.daogukj.com/8554716)
-- [马斯克抵达深圳，缺席纽约DealBook峰会，他选择深圳APEC峰会节点赴华是出于什么考虑？](http://www.daogukj.com/4018030)
-- [豆包画13个鸡蛋反复出错](http://www.play.hengshemaoyi.cn/xiju/7007818.htm)
-- [中俄美三国元首历史上首次面对面会晤，有哪些意义？为何会选在这个时间点？](http://www.daogukj.com/7787398)
-- [《GTA6》M站开分99，这是一个什么水平？有1分扣在哪了？](http://www.play.hengshemaoyi.cn/xiju/3303937.htm)
-- [厨师长的回忆录在学徒时期晚饭吃的是什么边角料，白菜面条，铁板鹅肝美食制作](http://www.play.hengshemaoyi.cn/xiju/6811831.htm)
-- [中外媒体紧盯这些APEC关键词](http://www.play.hengshemaoyi.cn/kongbu/5731979.htm)
-- [APEC欢迎晚宴菜单曝光](http://www.play.hengshemaoyi.cn/kongbu/8531788.htm)
-- [习近平出席APEC领导人非正式会议](http://www.play.hengshemaoyi.cn/xiju/3940464.htm)
-- [APEC欢迎宴会有哪些高科技](http://www.play.hengshemaoyi.cn/xiju/5367021.htm)
-- [腾讯控股公布2026Q3季报，录得负自由现金流 691 亿元，若剔除算力采购预付款将转正，如何解读？](http://www.movie.hkepx.cn/xiju/7619002.htm)
-- [A股](http://www.play.hengshemaoyi.cn/xiju/7491703.htm)
-- [一个结局他是救世主，而另一个结局他才是怪物。深挖《我是传奇》的真正内核！](http://www.movie.hkepx.cn/xiju/9433984.htm)
-- [加总理：中国在清洁能源领域全球领先](http://www.play.hengshemaoyi.cn/xiju/8043846.htm)
-- [恶役千金题材作品天花板！全集93分钟一次看过瘾，《恶役千金的真面目》漫画剧情深度解析](http://www.play.hengshemaoyi.cn/kongbu/5790640.htm)
-- [习近平同APEC各经济体领导人合影](http://www.play.hengshemaoyi.cn/kongbu/2929388.htm)
-- [深圳夜景](http://www.play.hengshemaoyi.cn/xiju/2191121.htm)
-- [APEC工商领导人峰会什么话题最热](http://www.play.hengshemaoyi.cn/kongbu/3389194.htm)
+- [海豚尾巴上的怪东西，竟然是藤壶？](http://www.play.hengshemaoyi.cn/kongbu/3483820.htm)
+- [国台办回应「建议 2032 年两岸统一货币」，称只要利于两岸关系和平发展都欢迎，统一货币会有哪些影响？](http://www.movie.hkepx.cn/xiju/3408565.htm)
+- [马斯克又带着小儿子来中国了](http://www.play.hengshemaoyi.cn/kongbu/9358766.htm)
+- [男朋友一被领导说就离职，频繁裸辞后长期空窗，是我太计较吗？](http://www.movie.hkepx.cn/movie/6761076.htm)
+- [李家超笑称“我是东道主啊”](http://www.movie.hkepx.cn/movie/4354942.htm)
+- [网友让豆包生成一张「盒子里有13个鸡蛋」的图片，豆包连续十几次纠错仍未能数清，这是为什么？](http://www.play.hengshemaoyi.cn/kongbu/7691913.htm)
+- [“多让孩子啃苹果能省下一个金镯子”](http://www.daogukj.com/zxhxffqk/)
+- [马斯克小儿子玩具都是中国制造](http://www.play.hengshemaoyi.cn/kongbu/0581403.htm)
+- [共促亚太繁荣：中国的建议与邀约](http://www.play.hengshemaoyi.cn/xiju/8368894.htm)
+- [Ruler 采访称「BLG 也是拿到亚军后才夺冠，未来我们也能夺得S冠」，如何看待他的心态和想法？](http://www.movie.hkepx.cn/movie/3724589.htm)
+- [APEC红围巾来自广东顺德](http://www.movie.hkepx.cn/movie/4073082.htm)
+- [【GTA6】我们拥有真实的物理引擎](http://www.movie.hkepx.cn/movie/7225991.htm)
+- [叶连平将成为“大体老师”](http://www.movie.hkepx.cn/movie/5475557.htm)
+- [11名孩子爬山迷路爬丢9个](http://www.play.hengshemaoyi.cn/xiju/1901702.htm)
+- [中方回应中日领导人是否举行会晤](http://www.daogukj.com/1487547)
+- [摘掉小番茄“甜=长胖”标签](http://www.daogukj.com/sqqsfnyh/)
+- [专家建议金饰跌破1000元再买](http://www.movie.hkepx.cn/movie/3969864.htm)
+- [特朗普称赞习主席：您是了不起的领袖](http://www.daogukj.com/iqmqrbhp/)
+- [特朗普见普京时开玩笑问“他是谁”](http://www.play.hengshemaoyi.cn/xiju/8313158.htm)
+- [小学试卷出现93年张奶奶97年张大爷](http://www.movie.hkepx.cn/xiju/9816658.htm)
+- [中俄美元首一张圆桌三个座位](http://www.daogukj.com/3514427)
+- [特朗普：请中国继续保持强大](http://www.movie.hkepx.cn/movie/5821299.htm)
+- [村民烟花](http://www.movie.hkepx.cn/movie/7016997.htm)
+- [纯黑《GTA6》丧心病狂攻略解说 第一期](http://www.daogukj.com/klgjmmqw/)
+- [从恒生指数看港股这57年【1969-2026】【特效数据可视化】](http://www.play.hengshemaoyi.cn/kongbu/2965446.htm)
+- [胖东来撤走后降到四百万依然没有人接盘](http://www.daogukj.com/8554716)
+- [引领时代风气之先 锚定亚太合作方向](http://www.daogukj.com/4018030)
+- [对刘宇宁的身高有了具象化表达](http://www.play.hengshemaoyi.cn/xiju/7007818.htm)
+- [坐牢难，但出狱其实更难，如果你犯罪了，你会面临什么样的人生](http://www.daogukj.com/7787398)
+- [OpenAI 宣布为全球多达 20 万科学家免费提供前沿模型访问，如何理解这一动作，可能带来哪些影响？](http://www.play.hengshemaoyi.cn/xiju/3303937.htm)
+- [一个视频告诉你GTA6多真实](http://www.play.hengshemaoyi.cn/xiju/6811831.htm)
+- [马斯克盛赞中国，直言中美合作越多越好，并表示特斯拉会继续在中国提高产量，如何看待他这一发言？](http://www.play.hengshemaoyi.cn/kongbu/5731979.htm)
+- [普京用中文对与会者说谢谢](http://www.play.hengshemaoyi.cn/kongbu/8531788.htm)
+- [习近平主持中俄美元首会晤](http://www.play.hengshemaoyi.cn/xiju/3940464.htm)
+- [「幽明志」幽城残梦](http://www.play.hengshemaoyi.cn/xiju/5367021.htm)
+- [WorkBuddy日活用户超1000万，它是怎么做到的？AI Agent已经成为工作刚需了吗？](http://www.movie.hkepx.cn/xiju/7619002.htm)
+- [中方回应中日领导人APEC是否会晤](http://www.play.hengshemaoyi.cn/xiju/7491703.htm)
+- [19 国领导人轮番谈钱，谁最直接，谁藏了小九九？2026·APEC](http://www.movie.hkepx.cn/xiju/9433984.htm)
+- [公园里上百人做“拍拍操”](http://www.play.hengshemaoyi.cn/xiju/8043846.htm)
+- [在《GTA 6》中触发6星通缉会发生什么？](http://www.play.hengshemaoyi.cn/kongbu/5790640.htm)
+- [为什么大家这么关注APEC会议？](http://www.play.hengshemaoyi.cn/kongbu/2929388.htm)
+- [金店老板说金价已经到底了](http://www.play.hengshemaoyi.cn/xiju/2191121.htm)
+- [期待中国方案引领亚太合作](http://www.play.hengshemaoyi.cn/kongbu/3389194.htm)
 - [泽连斯基公布导弹打击克里米亚大桥致桥拱桥跨坍塌画面，此举将引发哪些连锁反应？](http://www.daogukj.com/2463480)
-- [新加坡在过去 10 年里 GDP 赶超香港的原因是什么？](http://www.movie.hkepx.cn/xiju/2416068.htm)
-- [历史性峰会！为什么是APEC？是中国？是深圳？](http://www.daogukj.com/4620332)
-- [养老保险缴够15年就能坐等退休系谣言](http://www.movie.hkepx.cn/movie/5413853.htm)
-- [阿信看过莲花楼](http://www.play.hengshemaoyi.cn/kongbu/3114909.htm)
-- [白宫发布特朗普访华视频](http://www.movie.hkepx.cn/movie/3357497.htm)
-- [中俄美元首同框](http://www.daogukj.com/aagwkkjr/)
+- [中俄美元首会晤“史无前例”](http://www.movie.hkepx.cn/xiju/2416068.htm)
+- [老戴《侠盗猎车手 6》初见开荒全实况流程解说【GTA 6】](http://www.daogukj.com/4620332)
+- [马天宇对王子璇说给你贷款会觉得有危险](http://www.movie.hkepx.cn/movie/5413853.htm)
+- [APEC礼物别出心裁](http://www.play.hengshemaoyi.cn/kongbu/3114909.htm)
+- [普京乘电梯时主动礼让文莱苏丹](http://www.movie.hkepx.cn/movie/3357497.htm)
+- [中方回应高市早苗礼宾安排](http://www.daogukj.com/aagwkkjr/)
 
 </details>
 
 ## 原始来源
 
-- [为何还有人坚持只买油车](https://www.toutiao.com/trending/7709430663585205801/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2213%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227709430663585205801%22%2C%22hot_board_impr_id%22%3A%222026111909554462AB8F528245DF001C90%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
+- [液氧罐头乐队主唱张宇去世](https://www.toutiao.com/trending/7709720644505862682/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2215%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227709720644505862682%22%2C%22hot_board_impr_id%22%3A%22202611191751035A8BBDA89D9F49734416%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6c3bb5a83660f9fdad89 -->
+<!-- content-fingerprint: 0696fbe395a0eba02977 -->
