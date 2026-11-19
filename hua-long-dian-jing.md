@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 业内人士称不建议买500元以下羽绒服，基本不合格，500元真是羽绒服的分水岭吗？选购时应留心哪些标准？
+# 加总理：中国在清洁能源领域全球领先
 
-> 来源：知乎热榜 · 排名：第 20 位 · 热度：84 万热度 · 分类：问答 · 更新：2026-11-19T04:23:54+08:00
+> 来源：今日头条热榜 · 排名：第 20 位 · 热度：7382213 · 分类：新事件上榜 · 更新：2026-11-19T09:55:46+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“业内人士称不建议买500元以下羽绒服，基本不合格，500元真是羽绒服的分水岭吗？选购时应留心哪些标准？”位列第 20 位，公开热度指标为 84 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“加总理：中国在清洁能源领域全球领先”位列第 20 位，公开热度指标为 7382213，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：【羽绒服从业者：#500元以下很难买到真羽绒服# 高绒子含量羽绒服成本要好几百】#怎么靠手感辨别羽绒服好坏#11月9日报道，河南郑州一家羽绒服翻新定做店，店长胡先生表示，在非反季的正常情况下，五百元以下很难买到真羽绒服。他提到，绒子含量80%、90%以上的羽绒服，光成本就得好几百元。“去店里买，首先是一摸，里面比较柔软，它没有那种滑溜的感觉，它基本上都是羽绒的。另外就是回弹，一抓它自己慢慢回弹起来。”店长称非专业人士仅靠手摸很难辨别真假绒，建议去正规店看水洗标购买，别贪小便宜。（原创 编辑言言） 羽绒服从业者：500元以下很难买到真羽绒服 高绒子含量羽绒
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`今日头条热榜` `实时热搜` `热点资讯` `新事件上榜`
 
 ## 相关热点
 
-- [《英雄联盟》BLG夺冠进行曲「Going 4 Gold」百万级录音棚试听](miao-bi-sheng-hua.md)
-- [牛肉价格要涨到2028年吗](sheng-dong-huo-po.md)
-- [全民进入老实过日子时代](xu-xu-ru-sheng.md)
-- [陆毅女儿贝儿官宣出道](huo-ling-huo-xian.md)
+- [业内人士称不建议买500元以下羽绒服，基本不合格，500元真是羽绒服的分水岭吗？选购时应留心哪些标准？](miao-bi-sheng-hua.md)
+- [灭霸的班级被奖励看电影](sheng-dong-huo-po.md)
+- [小姑娘的秋假被江西网友接住了](xu-xu-ru-sheng.md)
+- [老人拆自家院墙让出1米路被指炒作](huo-ling-huo-xian.md)
 
 ## 站内推荐
 
-- [美国总统特朗普抵达深圳，出席 APEC 深圳峰会，本次迎接仪式有哪些亮点？还有哪些信息值得关注？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [全球最火的电竞比赛！2W一张票！直接看哭了！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [台湾岛内震撼：全世界焦点都在深圳](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [安徽拆墙让路老人女儿发声](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [现货黄金跌破 3800 美元关口，现在适合抄底黄金吗？黄金的长期配置逻辑还成立吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [中俄美三国元首历史上首次面对面会晤，有哪些意义？为何会选在这个时间点？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [超市服装区挤满了年轻人](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [经济日报：稳资本市场意义重大](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [美国科技股市盈率暴跌42%](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [为何还有人坚持只买油车](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [【CS2更新】熟悉的旋律加入CS2音乐盒~主菜单&MVP试听](http://www.movie.hkepx.cn/movie/8910900.htm)
-- [大件旧家具“扔比买难”？九部门出手](http://www.play.hengshemaoyi.cn/kongbu/1452959.htm)
-- [哪家AI能画对13个鸡蛋](http://www.movie.hkepx.cn/movie/4326545.htm)
-- [本届深圳APEC会议的意义是什么？](http://www.movie.hkepx.cn/movie/1643509.htm)
-- [台湾岛内震撼：全世界焦点都在深圳](http://www.daogukj.com/3734905)
-- [普京对镜头微笑挥手](http://www.play.hengshemaoyi.cn/kongbu/4707077.htm)
-- [《GTA6》已通关，无剧透聊聊R星有多无敌【视频播客 EP.81】](http://www.play.hengshemaoyi.cn/xiju/9679366.htm)
-- [在普罗米厄的怀抱下](http://www.movie.hkepx.cn/movie/8897904.htm)
-- [豆包画13个鸡蛋反复出错](http://www.play.hengshemaoyi.cn/xiju/8041326.htm)
-- [普京和特朗普互动握手](http://www.daogukj.com/8279615)
-- [APEC会议来宾欢迎宴会大合影](http://www.movie.hkepx.cn/xiju/6205852.htm)
-- [黄金连续大跌是金融风暴前兆吗](http://www.movie.hkepx.cn/xiju/0712642.htm)
-- [外国政要来深圳都打卡了哪](http://www.movie.hkepx.cn/xiju/6035249.htm)
-- [KPL](http://www.daogukj.com/4744923)
-- [现货黄金跌破 3800 美元关口，现在适合抄底黄金吗？黄金的长期配置逻辑还成立吗？](http://www.movie.hkepx.cn/movie/5089029.htm)
-- [现场见证深圳APEC的首张“全家福”](http://www.movie.hkepx.cn/movie/2615772.htm)
-- [公安机关抓获拒执嫌疑人5795人](http://www.play.hengshemaoyi.cn/kongbu/7334127.htm)
-- [茅台告别抢购 黄牛的好日子到头了](http://www.daogukj.com/ptpekaap/)
-- [马斯克现身特朗普车队随行大巴车](http://www.daogukj.com/7356664)
-- [《英雄联盟》BLG夺冠进行曲「Going 4 Gold」百万级录音棚试听](http://www.daogukj.com/ayichqdz/)
-- [“他们没有任何血缘关系，但却拥有同一个妈妈.”【Scared play sacred place】【治愈心灵の小曲】](http://www.movie.hkepx.cn/xiju/2706147.htm)
-- [【蜘蛛侠/MJ】非凡之爱真人版](http://www.play.hengshemaoyi.cn/xiju/6688215.htm)
-- [⚡赵本山《Bad Guy》大忽悠｜象牙山蹦野迪⚡【AI MV大赛】](http://www.daogukj.com/cndcdbte/)
-- [特朗普感受到了深圳市民的热情](http://www.daogukj.com/3515388)
-- [对不起 欺骗了大家这么久 以后不会了](http://www.movie.hkepx.cn/movie/2280366.htm)
-- [如何评价游戏《侠盗猎车手VI》（GTA6），它到底好不好玩？](http://www.movie.hkepx.cn/xiju/9102843.htm)
-- [历史性峰会！为什么是APEC？是中国？是深圳？](http://www.movie.hkepx.cn/xiju/6537051.htm)
-- [养老保险缴够15年就能坐等退休系谣言](http://www.daogukj.com/vzsgeebf/)
-- [灭霸的班级被奖励看电影](http://www.play.hengshemaoyi.cn/kongbu/3922698.htm)
-- [泽连斯基公布导弹打击克里米亚大桥致桥拱桥跨坍塌画面，此举将引发哪些连锁反应？](http://www.play.hengshemaoyi.cn/kongbu/6040149.htm)
-- [中国军人在空军一号轰鸣声前岿然不动](http://www.daogukj.com/4077362)
-- [灭霸和复联一起玩求生之路毫不留情](http://www.movie.hkepx.cn/movie/8186635.htm)
-- [如何看待雷军 APEC 发言紧张，网友称「好像略微有点社恐」？](http://www.daogukj.com/hrahgoeh/)
-- [【动画】可爱的猫尾草](http://www.movie.hkepx.cn/xiju/7623213.htm)
-- [地毯机2分钟铺好特朗普下机专道](http://www.play.hengshemaoyi.cn/kongbu/4814140.htm)
-- [APEC欢迎宴会高清大图](http://www.daogukj.com/3537481)
-- [又一部毁童年神作！诱拐儿童，骚扰护士，发疯大屠杀，这真是小孩子能看能演的吗？《逃出布迪秀》](http://www.play.hengshemaoyi.cn/kongbu/7154027.htm)
-- [为什么好多动物都长尾巴，而我们人类却不长尾巴，长尾巴多好呀，长尾巴没事做的时候就可以摇来摇去？](http://www.play.hengshemaoyi.cn/xiju/0242395.htm)
-- [美国总统特朗普抵达深圳，出席 APEC 深圳峰会，本次迎接仪式有哪些亮点？还有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/7718342.htm)
-- [峨眉山来了群女弟子开录热度](http://www.play.hengshemaoyi.cn/kongbu/7089205.htm)
-- [CMF 报告显示，地方债三年间减少 11 万亿，如何看待这一阶段性成效？未来会如何化债？](http://www.play.hengshemaoyi.cn/xiju/7227900.htm)
-- [普京说俄罗斯也想模仿这种成就](http://www.daogukj.com/9191044)
-- [杨超越这段音频即将迎来赛博永生](http://www.daogukj.com/6256754)
-- [两个不同场景的地堡，你们觉着这设计合理吗](http://www.play.hengshemaoyi.cn/kongbu/3838323.htm)
-- [孙正义后悔当年没投Anthropic](http://www.movie.hkepx.cn/movie/3822357.htm)
-- [别问警察男友要领带夹了](http://www.movie.hkepx.cn/movie/9519234.htm)
-- [中外媒体紧盯这些APEC关键词](http://www.play.hengshemaoyi.cn/xiju/4782804.htm)
-- [中俄美三国元首历史上首次面对面会晤，有哪些意义？为何会选在这个时间点？](http://www.daogukj.com/urxbddis/)
-- [猪价重回9元关口](http://www.movie.hkepx.cn/xiju/7315864.htm)
-- [非凡魔丸](http://www.play.hengshemaoyi.cn/xiju/8904435.htm)
+- [娃哈哈发生大规模人事变动，173 名管理人员被免职，还有哪些细节值得关注？背后原因可能有哪些？](http://www.movie.hkepx.cn/movie/8910900.htm)
+- [APEC欢迎晚宴菜单曝光](http://www.play.hengshemaoyi.cn/kongbu/1452959.htm)
+- [APEC世纪晚宴菜单曝光](http://www.movie.hkepx.cn/movie/4326545.htm)
+- [马斯克抵达深圳，缺席纽约DealBook峰会，他选择深圳APEC峰会节点赴华是出于什么考虑？](http://www.movie.hkepx.cn/movie/1643509.htm)
+- [经济日报：稳资本市场意义重大](http://www.daogukj.com/3734905)
+- [杨乐乐谈许飞厉娜](http://www.play.hengshemaoyi.cn/kongbu/4707077.htm)
+- [如何看待雷军 APEC 发言紧张，网友称「好像略微有点社恐」？](http://www.play.hengshemaoyi.cn/xiju/9679366.htm)
+- [厨师长的回忆录在学徒时期晚饭吃的是什么边角料，白菜面条，铁板鹅肝美食制作](http://www.movie.hkepx.cn/movie/8897904.htm)
+- [【GTA6】我们拥有真实的物理引擎](http://www.play.hengshemaoyi.cn/xiju/8041326.htm)
+- [特朗普沉浸式欣赏深圳的夜](http://www.daogukj.com/8279615)
+- [APEC第33次领导人非正式会议举行](http://www.movie.hkepx.cn/xiju/6205852.htm)
+- [董明珠回应格力业绩下滑，称铜在涨价，宁可损失几十亿利润也不降低品质，空调用铜和用铝实际体验差距有多大？](http://www.movie.hkepx.cn/xiju/0712642.htm)
+- [孙正义后悔当年没投Anthropic](http://www.movie.hkepx.cn/xiju/6035249.htm)
+- [普京和特朗普互动握手](http://www.daogukj.com/4744923)
+- [为何还有人坚持只买油车](http://www.movie.hkepx.cn/movie/5089029.htm)
+- [一个结局他是救世主，而另一个结局他才是怪物。深挖《我是传奇》的真正内核！](http://www.movie.hkepx.cn/movie/2615772.htm)
+- [芦玉菲退役后发现原单位未缴社保](http://www.play.hengshemaoyi.cn/kongbu/7334127.htm)
+- [【IGN】《黄金矿工：派对狂欢》22分钟实机演示](http://www.daogukj.com/ptpekaap/)
+- [「幽明志」幽城残梦](http://www.daogukj.com/7356664)
+- [业内人士称不建议买500元以下羽绒服，基本不合格，500元真是羽绒服的分水岭吗？选购时应留心哪些标准？](http://www.daogukj.com/ayichqdz/)
+- [《GTA6》M站开分99，这是一个什么水平？有1分扣在哪了？](http://www.movie.hkepx.cn/xiju/2706147.htm)
+- [现货黄金跌破 3800 美元关口，现在适合抄底黄金吗？黄金的长期配置逻辑还成立吗？](http://www.play.hengshemaoyi.cn/xiju/6688215.htm)
+- [马斯克母亲也来深圳了？本人回应](http://www.daogukj.com/cndcdbte/)
+- [特朗普在车内未拉窗帘欣赏深圳夜景](http://www.daogukj.com/3515388)
+- [如何评价新版上海小学数学教材规定“平行四边形属于梯形”，但“长方形不是等腰梯形”？](http://www.movie.hkepx.cn/movie/2280366.htm)
+- [外国游客：中国制造印象彻底改变](http://www.movie.hkepx.cn/xiju/9102843.htm)
+- [【IGN】10分，《GTA 6》评测：这个时代最伟大的游戏](http://www.movie.hkepx.cn/xiju/6537051.htm)
+- [THANK YOU ZmjjKK](http://www.daogukj.com/vzsgeebf/)
+- [中俄美元首会晤是真正的历史性事件](http://www.play.hengshemaoyi.cn/kongbu/3922698.htm)
+- [外国政要来深圳都打卡了哪](http://www.play.hengshemaoyi.cn/kongbu/6040149.htm)
+- [老戴《侠盗猎车手 6》初见开荒全实况流程解说【GTA 6】](http://www.daogukj.com/4077362)
+- [如何评价游戏《侠盗猎车手VI》（GTA6），它到底好不好玩？](http://www.movie.hkepx.cn/movie/8186635.htm)
+- [“山东造”小冰箱为何又被提起](http://www.daogukj.com/hrahgoeh/)
+- [腾讯控股公布2026Q3季报，录得负自由现金流 691 亿元，若剔除算力采购预付款将转正，如何解读？](http://www.movie.hkepx.cn/xiju/7623213.htm)
+- [围观特朗普不耽误深圳商圈营业](http://www.play.hengshemaoyi.cn/kongbu/4814140.htm)
+- [宁德向理想一天发3封要钱邮件](http://www.daogukj.com/3537481)
+- [APEC欢迎宴会有哪些高科技](http://www.play.hengshemaoyi.cn/kongbu/7154027.htm)
+- [对不起 欺骗了大家这么久 以后不会了](http://www.play.hengshemaoyi.cn/xiju/0242395.htm)
+- [中俄美三国元首历史上首次面对面会晤，有哪些意义？为何会选在这个时间点？](http://www.play.hengshemaoyi.cn/xiju/7718342.htm)
+- [全世界正在严肃进入中国捏捏时代](http://www.play.hengshemaoyi.cn/kongbu/7089205.htm)
+- [王羽佳国家大剧院演出迟到17分钟，此前香港站缩减演出时长主办方退款，如何评价这种行为？这算耍大牌吗？](http://www.play.hengshemaoyi.cn/xiju/7227900.htm)
+- [特朗普车内未拉窗帘沉浸式欣赏深圳](http://www.daogukj.com/9191044)
+- [用AI做游戏 把开发成本打到了20块](http://www.daogukj.com/6256754)
+- [养老保险缴15年就能坐等退休？假的](http://www.play.hengshemaoyi.cn/kongbu/3838323.htm)
+- [【4K】全网首发《GTA6》主线全流程实况解说（持续更新中）](http://www.movie.hkepx.cn/movie/3822357.htm)
+- [男子戴泳帽泳镜吃海底捞](http://www.movie.hkepx.cn/movie/9519234.htm)
+- [阿信看过莲花楼](http://www.play.hengshemaoyi.cn/xiju/4782804.htm)
+- [新加坡在过去 10 年里 GDP 赶超香港的原因是什么？](http://www.daogukj.com/urxbddis/)
+- [理想i6押宝宁德电池惨遭断供](http://www.movie.hkepx.cn/xiju/7315864.htm)
+- [泽连斯基公布导弹打击克里米亚大桥致桥拱桥跨坍塌画面，此举将引发哪些连锁反应？](http://www.play.hengshemaoyi.cn/xiju/8904435.htm)
 
 </details>
 
 ## 原始来源
 
-- [业内人士称不建议买500元以下羽绒服，基本不合格，500元真是羽绒服的分水岭吗？选购时应留心哪些标准？](https://www.zhihu.com/question/2105307883109929432)
+- [加总理：中国在清洁能源领域全球领先](https://www.toutiao.com/trending/7709414811004191283/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2215%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227709414811004191283%22%2C%22hot_board_impr_id%22%3A%222026111909554462AB8F528245DF001C90%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: e594143c63252f2551f0 -->
+<!-- content-fingerprint: e1eabfd055854c6fac47 -->
