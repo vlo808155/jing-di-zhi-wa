@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 李在明发文感谢中国
+# Knight黄金左手是这样来的
 
-> 来源：百度热搜 · 排名：第 17 位 · 热度：6188731 · 更新：2026-11-20T08:56:29+08:00
+> 来源：微博热搜 · 排名：第 18 位 · 热度：398649 · 分类：电竞 · 更新：2026-11-20T16:05:35+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“李在明发文感谢中国”位列第 17 位，公开热度指标为 6188731。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“Knight黄金左手是这样来的”位列第 18 位，公开热度指标为 398649，榜单分类为“电竞”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：11月19日，韩国总统李在明在某平台发文：在中国深圳参加APEC会议的行程结束了，我要再次感谢东道主中国给予的热情接待。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `电竞`
 
 ## 相关热点
 
-- [马斯克在空军一号看中美元首互动](xiong-you-cheng-zhu.md)
-- [如何评价27.99万起售的方程豹钛9，方盒子大六座SUV可以是家庭的唯一用车吗？](yun-chou-wei-wo.md)
-- [他狂任他狂](shen-mou-yuan-lv.md)
-- [王毅机场送别特朗普 二人长时间交谈](ming-cha-qiu-hao.md)
+- [一家人下楼散步误入剧组](xiong-you-cheng-zhu.md)
+- [许飞在《后会有期》追问厉娜能否重新做朋友，破镜的旧友情还能复原吗？](yun-chou-wei-wo.md)
+- [国外抢车位游戏撞的一塌糊涂，我们决定让智能驾驶也来试试！](shen-mou-yuan-lv.md)
+- [厦门大学收到捐款1亿元](ming-cha-qiu-hao.md)
 
 ## 站内推荐
 
-- [亚太同心 共话合作新愿景](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [全公司只有他18W，100W女老板却天天留他加班合集。【AI月月抢位赛】](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [GTA背后的千亿豪赌](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [特朗普又没拉窗帘](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [老芒果诡计多端](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [爱奇艺股价已连续 27 个交易日低于 1 美元，最快将于11月23日触发退市警告，它真的会退市吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
+- [上证50指数探底回升收红](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [“全球最大医院”原党委书记被双开](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [女友捂死3岁女儿生父回应冷血不哭](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [厉娜戴了情侣对戒](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [牛肉为什么突然贵了](http://www.movie.hkepx.cn/movie/7491355.htm)
-- [中俄美元首和平宣言](http://www.movie.hkepx.cn/movie/6352008.htm)
-- [黄金](http://www.play.hengshemaoyi.cn/kongbu/7644353.htm)
-- [分不清哪个是倒放的](http://www.daogukj.com/ywhitats/)
-- [19 国领导人轮番谈钱，谁最直接，谁藏了小九九？2026·APEC](http://www.movie.hkepx.cn/movie/3484420.htm)
-- [金价逼近7字头郑州金店忙起来了](http://www.movie.hkepx.cn/movie/9834457.htm)
-- [王菲时隔17年再唱《爱笑的天使》](http://www.daogukj.com/7853746)
-- [如何看待郎平表示，不认同「竞技体育，菜是原罪」这句话，并称「努力一辈子没赢冠军，那也不能算失败者」？](http://www.daogukj.com/fwtacuny/)
-- [第一次当班主任，不烧心.](http://www.play.hengshemaoyi.cn/kongbu/1303344.htm)
-- [青岛失联女生最后监控走向海边](http://www.movie.hkepx.cn/movie/9793548.htm)
-- [我让100个游戏强行兼容了MC（第一集）【B站AI创造公开赛】](http://www.movie.hkepx.cn/xiju/5225700.htm)
-- [【纪录片】人生一串 第四季 03 十二时辰](http://www.play.hengshemaoyi.cn/xiju/1079547.htm)
-- [以防你不知道GTA6的狗子会开游艇来救你！](http://www.daogukj.com/cppelcpa/)
-- [马斯克从深圳飞到了上海](http://www.play.hengshemaoyi.cn/xiju/9936698.htm)
-- [韩国总统夫人被舞狮英歌舞表演圈粉](http://www.play.hengshemaoyi.cn/xiju/3875070.htm)
-- [为何波司登高端羽绒服销售遇冷](http://www.play.hengshemaoyi.cn/xiju/9037846.htm)
-- [王毅给深圳办会打100分](http://www.play.hengshemaoyi.cn/xiju/5500139.htm)
-- [从恒生指数看港股这57年【1969-2026】【特效数据可视化】](http://www.movie.hkepx.cn/movie/3660898.htm)
-- [官方辟谣要求基金公司上报AI敞口](http://www.play.hengshemaoyi.cn/xiju/4097066.htm)
-- [宝珠](http://www.daogukj.com/3797954)
-- [离婚前男方将游戏账号以 88 万卖给朋友，女方要求分割，法院判决 2:1 比例分，如何从法律角度解读？](http://www.movie.hkepx.cn/movie/1081634.htm)
-- [APEC在台湾刷屏了](http://www.play.hengshemaoyi.cn/kongbu/6230935.htm)
-- [现代足球的水平是否比 20 世纪或者 21 世纪初的足球水平高？](http://www.movie.hkepx.cn/xiju/6125548.htm)
-- [马斯克从深圳飞到上海](http://www.play.hengshemaoyi.cn/xiju/0444256.htm)
-- [多所高校要求师生论文发表前备案否则不算科研成果，如何解读这一高校新规？](http://www.play.hengshemaoyi.cn/kongbu/3739402.htm)
-- [苏林抵达昆明 现场响起云南民歌](http://www.daogukj.com/4846112)
-- [中俄美元首会晤富有成果](http://www.play.hengshemaoyi.cn/kongbu/6216021.htm)
-- [Viper BLG](http://www.play.hengshemaoyi.cn/xiju/2439055.htm)
-- [Mili - City Blue（都市之蓝）](http://www.movie.hkepx.cn/xiju/9305926.htm)
-- [一湾红树林 向亚太讲述“共生”之道](http://www.daogukj.com/3174256)
-- [腾讯控股公布微信 QQ 月活差 9 亿，为什么腾讯坚持留着 QQ 不合并？QQ 还有哪些市场？](http://www.movie.hkepx.cn/xiju/7583013.htm)
-- [两京十五日 轻喜剧](http://www.daogukj.com/8189876)
-- [特朗普：我们创造了历史](http://www.movie.hkepx.cn/xiju/6446029.htm)
-- [普京：感谢中方](http://www.movie.hkepx.cn/movie/5734451.htm)
-- [老芒果诡计多端](http://www.movie.hkepx.cn/movie/8002281.htm)
-- [王毅机场送别特朗普 二人长时间交谈](http://www.daogukj.com/7860194)
-- [如何看待混元Hy4 flash登顶Openrouter调用榜首 ，Tokens达DeepSeek两倍？](http://www.movie.hkepx.cn/movie/8408075.htm)
-- [周杰伦武汉演唱会580元大屏观演区引热议，此前有人认为是性价比之王，也有人不接受看不到真人，你怎么看？](http://www.play.hengshemaoyi.cn/xiju/8943117.htm)
-- [腾讯披露WorkBuddy近七天年化收入超5亿美元，有用户月付4万元买服务，数据背后有多大「含金量」？](http://www.play.hengshemaoyi.cn/xiju/6486531.htm)
-- [腾讯姚顺雨主导AI架构精简，而全公司11万人面临大调整，这类扁平化变革落地难点在哪？](http://www.play.hengshemaoyi.cn/kongbu/5235529.htm)
-- [玩刀锋宝贝后再玩阿珂以为自己开挂了。](http://www.movie.hkepx.cn/movie/0595206.htm)
-- [高市早苗应该在深圳烈士陵园鞠躬谢罪](http://www.movie.hkepx.cn/movie/8425375.htm)
-- [年轻人还要攒小金豆吗](http://www.daogukj.com/4621288)
-- [“监管要求上报基金AI敞口”不实](http://www.movie.hkepx.cn/movie/1333265.htm)
-- [S16 总决赛 LPL 夺冠，TI15 CNDOTA 全部止步小组赛，未来他们的成绩差距会越来越大吗？](http://www.daogukj.com/4564701)
-- [名创优品越卖越贵](http://www.daogukj.com/zedewqov/)
-- [河南一学子536分捡漏上北大，曾因分数过低遭北大三次退档，现被公派瑞士读博，如何看待他的求学之路？](http://www.daogukj.com/flvtssow/)
-- [中俄美元首会晤](http://www.movie.hkepx.cn/movie/2764293.htm)
-- [如何评价27.99万起售的方程豹钛9，方盒子大六座SUV可以是家庭的唯一用车吗？](http://www.movie.hkepx.cn/xiju/9847609.htm)
-- [特朗普又没拉窗帘](http://www.play.hengshemaoyi.cn/kongbu/4804429.htm)
+- [为什么《小城良方》在聘请了相当多医学顾问的前提下，还被医疗专业人士指出医学方面漏洞百出？](http://www.movie.hkepx.cn/movie/7491355.htm)
+- [特朗普从中国返美途中发帖](http://www.movie.hkepx.cn/movie/6352008.htm)
+- [儿子将满18岁消失17年的父亲来求赡养](http://www.play.hengshemaoyi.cn/kongbu/7644353.htm)
+- [现货黄金跌破 3600 美元关口，这意味着什么？这轮下跌会跌到什么位置才有实质性支撑？](http://www.daogukj.com/ywhitats/)
+- [李书福：筹办芯位大学](http://www.movie.hkepx.cn/movie/3484420.htm)
+- [网店挂出1分钱睡衣引200万人下单](http://www.movie.hkepx.cn/movie/9834457.htm)
+- [APEC峰会各国领导人场外花式打卡](http://www.daogukj.com/7853746)
+- [【非凡之爱】⚡️但都是正常人⚡️](http://www.daogukj.com/fwtacuny/)
+- [探秘中国十大“禁区”，会吃人的森林！《09 哀牢山》](http://www.play.hengshemaoyi.cn/kongbu/1303344.htm)
+- [华为星芒阔直板配置汇总](http://www.movie.hkepx.cn/movie/9793548.htm)
+- [难怪马天宇选择和张萌断联](http://www.movie.hkepx.cn/xiju/5225700.htm)
+- [业内：A股短期波动并未改变市场韧性](http://www.play.hengshemaoyi.cn/xiju/1079547.htm)
+- [优先招35岁以上员工的老板回应停业](http://www.daogukj.com/cppelcpa/)
+- [县委书记说不能过度消费张雪](http://www.play.hengshemaoyi.cn/xiju/9936698.htm)
+- [很多人说GTA6或者GTA系列玩法单调，无非就是射击+开车，是不是玩法创新在这种3A上遇到瓶颈了？](http://www.play.hengshemaoyi.cn/xiju/3875070.htm)
+- [如何看待丰田员工餐疑似摆拍造假？](http://www.play.hengshemaoyi.cn/xiju/9037846.htm)
+- [如何看待马斯克离开深圳，突访上海？](http://www.play.hengshemaoyi.cn/xiju/5500139.htm)
+- [小米18](http://www.movie.hkepx.cn/movie/3660898.htm)
+- [11 月 19 日美股三大指数集体收跌超 2%，AMD 遭做空重挫 8%，英伟达跌超 3%，怎样解读？](http://www.play.hengshemaoyi.cn/xiju/4097066.htm)
+- [满分10分 特朗普为中俄美会晤打12分](http://www.daogukj.com/3797954)
+- [最败家的一次](http://www.movie.hkepx.cn/movie/1081634.htm)
+- [为啥中文的一二三笔画简单明了，零的笔画那么多啊?](http://www.play.hengshemaoyi.cn/kongbu/6230935.htm)
+- [活了20年，就为了看懂这个视频](http://www.movie.hkepx.cn/xiju/6125548.htm)
+- [曝郑恺高中成绩一直班级倒数十名](http://www.play.hengshemaoyi.cn/xiju/0444256.htm)
+- [分不清哪个是倒放的](http://www.play.hengshemaoyi.cn/kongbu/3739402.htm)
+- [2026APEC东道主成果清单](http://www.daogukj.com/4846112)
+- [12306迎来重大更新](http://www.play.hengshemaoyi.cn/kongbu/6216021.htm)
+- [我国智能制造整体迈入世界前列](http://www.play.hengshemaoyi.cn/xiju/2439055.htm)
+- [女子1200买冰箱错付成12000 店家消失](http://www.movie.hkepx.cn/xiju/9305926.htm)
+- [地暖是24小时开着省钱，还是分时段开更省钱？](http://www.daogukj.com/3174256)
+- [河南人这几天都快被风吹麻了](http://www.movie.hkepx.cn/xiju/7583013.htm)
+- [00后女生表演非遗喷火](http://www.daogukj.com/8189876)
+- [金价跌至7字头专家不建议盲目抄底](http://www.movie.hkepx.cn/xiju/6446029.htm)
+- [外国人在华强北买“疯”了](http://www.movie.hkepx.cn/movie/5734451.htm)
+- [厉娜戴了情侣对戒](http://www.movie.hkepx.cn/movie/8002281.htm)
+- [厦门大学收到捐款1亿元](http://www.daogukj.com/7860194)
+- [白小纯看到青稚道歉的表情](http://www.movie.hkepx.cn/movie/8408075.htm)
+- [这谁能播的过他？看大司马玩GTA6简直能笑死，弹幕：太有节目了](http://www.play.hengshemaoyi.cn/xiju/8943117.htm)
+- [【独家】《罗小黑战记》第44话 冬冬拯救行动方案五【10月国创】](http://www.play.hengshemaoyi.cn/xiju/6486531.htm)
+- [芜湖好市民！大司马玩GTA6见谁打谁，弹幕：狗来了都得挨一巴掌](http://www.play.hengshemaoyi.cn/kongbu/5235529.htm)
+- [亮相APEC晚宴的荔枝冰酒已全线售罄](http://www.movie.hkepx.cn/movie/0595206.htm)
+- [解锁食物背后的健康真相](http://www.movie.hkepx.cn/movie/8425375.htm)
+- [如何看待美国收紧特定国家地区企业交由三星/台积电代工22/16/14nm及以下高制程芯片许可要求？](http://www.daogukj.com/4621288)
+- [股市](http://www.movie.hkepx.cn/movie/1333265.htm)
+- [他狂任他狂](http://www.daogukj.com/4564701)
+- [泽连斯基摊手回应特朗普称普京为朋友](http://www.daogukj.com/zedewqov/)
+- [李大霄：别人恐惧的时候我贪婪](http://www.daogukj.com/flvtssow/)
+- [外交部回应日方最新表态](http://www.movie.hkepx.cn/movie/2764293.htm)
+- [许飞在《后会有期》追问厉娜能否重新做朋友，破镜的旧友情还能复原吗？](http://www.movie.hkepx.cn/xiju/9847609.htm)
+- [女友捂死3岁女儿生父回应冷血不哭](http://www.play.hengshemaoyi.cn/kongbu/4804429.htm)
 
 </details>
 
 ## 原始来源
 
-- [李在明发文感谢中国](https://www.baidu.com/s?wd=%E6%9D%8E%E5%9C%A8%E6%98%8E%E5%8F%91%E6%96%87%E6%84%9F%E8%B0%A2%E4%B8%AD%E5%9B%BD&sa=fyb_news&rsv_dl=fyb_news)
+- [Knight黄金左手是这样来的](https://s.weibo.com/weibo?q=Knight%E9%BB%84%E9%87%91%E5%B7%A6%E6%89%8B%E6%98%AF%E8%BF%99%E6%A0%B7%E6%9D%A5%E7%9A%84)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: aa83185167a835365ac9 -->
+<!-- content-fingerprint: e4a3ab2317cea1cb2d63 -->
