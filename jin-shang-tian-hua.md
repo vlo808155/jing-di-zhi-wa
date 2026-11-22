@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 特朗普：将与伊朗达成一项永久性协议
+# 交易所打出稳市“组合拳”
 
-> 来源：百度热搜 · 排名：第 19 位 · 热度：5987340 · 更新：2026-11-22T11:21:20+08:00
+> 来源：百度热搜 · 排名：第 19 位 · 热度：5988047 · 更新：2026-11-22T19:45:39+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“特朗普：将与伊朗达成一项永久性协议”位列第 19 位，公开热度指标为 5987340。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“交易所打出稳市“组合拳””位列第 19 位，公开热度指标为 5988047。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-百度热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：11月22日，沪深北交易所推出稳市“组合拳”。主要措施包括：将融资保证金比例下限降至80%；深交所就创业板做市交易业务细则征求意见；沪深交易所和中国结算宣布降费，其中沪深交易所预计分别向市场让利13.68亿元、13.9亿元。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [特斯拉在美推出FSDv15](hua-long-dian-jing.md)
-- [演员张国强为何突然霸屏](miao-bi-sheng-hua.md)
-- [如何评价网飞韩剧《末路兼职》？](sheng-dong-huo-po.md)
-- [【mj】DC班拓展包：狂笑惊魂夜](xu-xu-ru-sheng.md)
+- [白小纯高需求仆人](hua-long-dian-jing.md)
+- [专家：融资结构优化有望增强内生动力](miao-bi-sheng-hua.md)
+- [李子柒当选四川文联副主席，如何理解她的这一职务，可能带来哪些影响？](sheng-dong-huo-po.md)
+- [【合集】人类消失后，深度思考三百年的大肥鱼](xu-xu-ru-sheng.md)
 
 ## 站内推荐
 
-- [今日小雪](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [特朗普回应普京是朋友](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [如何看待“老婆嫌老公熬夜打游戏，发“追杀令”求助网友狙击老公ID，大哥“你们找不到我”被各路玩家围剿？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [BLG 夺冠能挽救 LPL 吗？能复刻前两个「电竞元年」吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [3.6亿人次参与！万亿元大市场大爆发](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [“稳股市”组合拳来了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [日媒逐帧解析特朗普无视高市](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [特朗普称将与伊朗达成一项永久性协议，为何会在这一时间放出这一消息？永久性协议内可能包含哪些内容？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [有人说搞南水北调不如搞海水淡化，你是否同意？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [曝杨紫李现三搭《漫长的余生》](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [就得玩航天！](http://www.play.hengshemaoyi.cn/xiju/6246916.htm)
-- [存脐带血公司注销断联老板被限消](http://www.play.hengshemaoyi.cn/xiju/0196335.htm)
-- [这居然是王子璇](http://www.daogukj.com/txhvfhkc/)
-- [十种不舒服是抑郁症躯体化表现](http://www.movie.hkepx.cn/xiju/8357680.htm)
-- [MIT 团队发布对黎曼猜想证明的验证，超 17 万模块全部编译无错，这意味着黎曼猜想证明多大概率为真？](http://www.movie.hkepx.cn/xiju/7453143.htm)
-- [“不知道她没满14岁”不能成挡箭牌](http://www.daogukj.com/3829236)
-- [【IGN独家】《鸣潮：永明的烬焰》实机演示](http://www.movie.hkepx.cn/movie/7849010.htm)
-- [金价跌势凌厉 多家银行发紧急提示](http://www.movie.hkepx.cn/movie/3810739.htm)
-- [张雪峰的接班人武亮回母校演讲](http://www.daogukj.com/xwtczorl/)
-- [机构认证：Claude证明黎曼猜想无误](http://www.daogukj.com/9411778)
-- [余文乐躯体化严重到不能开车](http://www.movie.hkepx.cn/xiju/1018177.htm)
-- [终于知道明星走路和普通人的区别了](http://www.movie.hkepx.cn/movie/7549482.htm)
-- [57岁窦唯被曝四婚](http://www.movie.hkepx.cn/xiju/3152832.htm)
-- [樊少皇大女儿中基因彩票了](http://www.movie.hkepx.cn/xiju/6452829.htm)
-- [十年后重看《欢乐颂》比恨海情天还好嗑](http://www.play.hengshemaoyi.cn/kongbu/1742289.htm)
-- [怎么看陶哲轩博客下针对 AI 完成黎曼猜想评论：数学变成 F1 赛车，不进 AI 车队都看不到后尾灯？](http://www.play.hengshemaoyi.cn/xiju/4134369.htm)
-- [如何看待“老婆嫌老公熬夜打游戏，发“追杀令”求助网友狙击老公ID，大哥“你们找不到我”被各路玩家围剿？](http://www.play.hengshemaoyi.cn/kongbu/8805735.htm)
-- [特朗普回应深圳乘车时不拉窗帘](http://www.movie.hkepx.cn/xiju/1005247.htm)
-- [波兰称两枚俄导弹击中波领土](http://www.play.hengshemaoyi.cn/xiju/4070224.htm)
-- [2名在华日本人发生冲突1人死亡](http://www.movie.hkepx.cn/movie/8130025.htm)
-- [为啥北方人没有吐槽供暖费很贵的？](http://www.play.hengshemaoyi.cn/kongbu/7840266.htm)
-- [为什么现在小学语文课汉语拼音o都教读“哦”？](http://www.daogukj.com/mgvzhkvp/)
-- [山东有村子推行去世到安葬不超24小时](http://www.play.hengshemaoyi.cn/kongbu/6692605.htm)
-- [我是Tim，我爹太离谱了…](http://www.daogukj.com/0659107)
-- [APEC“中国年”留下这些珍贵瞬间](http://www.movie.hkepx.cn/movie/2177161.htm)
-- [女博士卧底6个月当主播仍有心理阴影](http://www.movie.hkepx.cn/xiju/4629379.htm)
-- [今日小雪](http://www.play.hengshemaoyi.cn/kongbu/8609961.htm)
-- [特朗普晒和普京深圳会晤照片](http://www.play.hengshemaoyi.cn/kongbu/2788736.htm)
-- [韩德君遭技术代表马立军呵斥](http://www.movie.hkepx.cn/movie/9454869.htm)
-- [小雪养生 做好这几件事很重要](http://www.movie.hkepx.cn/movie/8856381.htm)
-- [Lean与 Mathlib 社区联合声明，正式确认 Alpöge 对黎曼猜想的证明正确，这意味着什么？](http://www.movie.hkepx.cn/movie/7928531.htm)
-- [如何评价网飞韩剧《末路兼职》？](http://www.play.hengshemaoyi.cn/kongbu/5748891.htm)
-- [为追求愉悦感男孩一次吃20片药进医院](http://www.movie.hkepx.cn/movie/2928084.htm)
-- [把太平洋拼好给你（完整版）｜8分钟看完二战太平洋战场](http://www.play.hengshemaoyi.cn/xiju/0239872.htm)
-- [金饰克价年内大跌超650元](http://www.daogukj.com/7779634)
-- [《明日方舟：终末地》特别映像「基石」](http://www.play.hengshemaoyi.cn/kongbu/8270746.htm)
-- [女子多次留言强奸罪服刑男友想你了](http://www.daogukj.com/7335488)
-- [男子强奸女友获刑出狱复合后将其杀害](http://www.movie.hkepx.cn/xiju/7580266.htm)
-- [PEL选手直播买圈言论](http://www.play.hengshemaoyi.cn/xiju/9936981.htm)
-- [南京警方8300余名警力护航南马](http://www.movie.hkepx.cn/xiju/0655390.htm)
-- [张元英机场素颜被审判](http://www.daogukj.com/tyoqvbnt/)
-- [【纪录片】守护解放西·传承季 第1集 守护不止解放西](http://www.movie.hkepx.cn/xiju/8108717.htm)
-- [日媒逐帧解析特朗普无视高市](http://www.play.hengshemaoyi.cn/xiju/0718869.htm)
-- [余文乐自曝躯体化严重到不能开车](http://www.play.hengshemaoyi.cn/kongbu/2897114.htm)
-- [金价连跌想买想卖的都急了](http://www.play.hengshemaoyi.cn/xiju/2827049.htm)
-- [在驻马店吃河南版的“中固大饭店”菜量炸裂到4个人吃不掉一道菜！太吓人了！#河南美食#驻马店美食](http://www.movie.hkepx.cn/xiju/1312993.htm)
-- [《蓝色星原：旅谣》公测动画短片](http://www.daogukj.com/auvxhwep/)
-- [《我救不死你》](http://www.play.hengshemaoyi.cn/kongbu/9308752.htm)
-- [从琼崖烽火到开放自贸港](http://www.daogukj.com/5938049)
-- [杨瀚森再遭弃用](http://www.play.hengshemaoyi.cn/xiju/7231318.htm)
+- [我是Tim，这是我最爱吃的...](http://www.play.hengshemaoyi.cn/xiju/6246916.htm)
+- [成毅说我有这么弱智吗](http://www.play.hengshemaoyi.cn/xiju/0196335.htm)
+- [第一批买iPhoneDuo的人亏麻了](http://www.daogukj.com/txhvfhkc/)
+- [陈数高清怼脸直拍下状态绝了](http://www.movie.hkepx.cn/xiju/8357680.htm)
+- [荷兰裁定比亚迪抄袭路虎](http://www.movie.hkepx.cn/xiju/7453143.htm)
+- [方力申破世界纪录](http://www.daogukj.com/3829236)
+- [玛雅消失案：谁杀死了一个失落的文明？](http://www.movie.hkepx.cn/movie/7849010.htm)
+- [A股利好来了 三箭齐发](http://www.movie.hkepx.cn/movie/3810739.htm)
+- [主播私闯果园带货糟蹋一千多斤苹果](http://www.daogukj.com/xwtczorl/)
+- [胡海泉：咬咬牙挺住](http://www.daogukj.com/9411778)
+- [71岁周润发“跑山”轻松完赛](http://www.movie.hkepx.cn/xiju/1018177.htm)
+- [理论上可带来增量资金近4000亿元](http://www.movie.hkepx.cn/movie/7549482.htm)
+- [小区277户只有约100家一直交物业费](http://www.movie.hkepx.cn/xiju/3152832.htm)
+- [黎曼猜想证明获认证](http://www.movie.hkepx.cn/xiju/6452829.htm)
+- [母亲往返24小时火车给儿子开家长会](http://www.play.hengshemaoyi.cn/kongbu/1742289.htm)
+- [网友称在父母面前切换成「无性别低智儿童」，被问到工作、婚恋话题都说「不知道」，为啥要这样？这招管用吗？](http://www.play.hengshemaoyi.cn/xiju/4134369.htm)
+- [特朗普称将与伊朗达成一项永久性协议，为何会在这一时间放出这一消息？永久性协议内可能包含哪些内容？](http://www.play.hengshemaoyi.cn/kongbu/8805735.htm)
+- [韦东奕再获奖](http://www.movie.hkepx.cn/xiju/1005247.htm)
+- [菲律宾8名警察绑架中国女富商](http://www.play.hengshemaoyi.cn/xiju/4070224.htm)
+- [美国歌手的衣服在雨中像纸一样融化了](http://www.movie.hkepx.cn/movie/8130025.htm)
+- [人能控制自己的长相吗？](http://www.play.hengshemaoyi.cn/kongbu/7840266.htm)
+- [Claude 证明了黎曼猜想？11分钟讲清它到底证明了什么、还差哪几步](http://www.daogukj.com/mgvzhkvp/)
+- [大雪暴雪来了！明起大降温](http://www.play.hengshemaoyi.cn/kongbu/6692605.htm)
+- [《GTA 6》：完美劫案（没惊动警察，也没触发警报）](http://www.daogukj.com/0659107)
+- [10月份工业经济总体平稳](http://www.movie.hkepx.cn/movie/2177161.htm)
+- [沪深北交易所调整融资保证金比例](http://www.movie.hkepx.cn/xiju/4629379.htm)
+- [“稳股市”组合拳来了](http://www.play.hengshemaoyi.cn/kongbu/8609961.htm)
+- [64岁深圳大爷获得全国麻将冠军](http://www.play.hengshemaoyi.cn/kongbu/2788736.htm)
+- [《蓝色星原：旅谣》公测动画短片](http://www.movie.hkepx.cn/movie/9454869.htm)
+- [《我救不死你》](http://www.movie.hkepx.cn/movie/8856381.htm)
+- [商务部回应美拟禁止中国运营商获取电话号码资源，称相关做法破坏中美经贸稳定局面，中方坚决反对，如何解读？](http://www.movie.hkepx.cn/movie/7928531.htm)
+- [李子柒当选四川文联副主席，如何理解她的这一职务，可能带来哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/5748891.htm)
+- [古人的头发真有那么多吗](http://www.movie.hkepx.cn/movie/2928084.htm)
+- [小时候眼中的罚抄神器be like:](http://www.play.hengshemaoyi.cn/xiju/0239872.htm)
+- [深交所推出新一批降费措施](http://www.daogukj.com/7779634)
+- [《猫富贵 狗不让》](http://www.play.hengshemaoyi.cn/kongbu/8270746.htm)
+- [权志龙MAMA破棺而出](http://www.daogukj.com/7335488)
+- [金价跌到760元菜百金条全卖光](http://www.movie.hkepx.cn/xiju/7580266.htm)
+- [专家：原油大概率要跌破60美元](http://www.play.hengshemaoyi.cn/xiju/9936981.htm)
+- [金价坐过山车 黄金还能避险吗](http://www.movie.hkepx.cn/xiju/0655390.htm)
+- [suk到底预言了多少](http://www.daogukj.com/tyoqvbnt/)
+- [【独家】牧神记 第110集 诡异冥谷](http://www.movie.hkepx.cn/xiju/8108717.htm)
+- [沪深北交易所集体发布新政](http://www.play.hengshemaoyi.cn/xiju/0718869.htm)
+- [三亚凤凰机场等被暂停全军采购资格](http://www.play.hengshemaoyi.cn/kongbu/2897114.htm)
+- [“800度高温的东西你扔上天”](http://www.play.hengshemaoyi.cn/xiju/2827049.htm)
+- [英皇到底亏了多少陈伟霆要穿成这样](http://www.movie.hkepx.cn/xiju/1312993.htm)
+- [AI 宣称证明黎曼猜想后，数学家又公开了一份完全不使用 AI 的广义黎曼猜想证明，如何看待？](http://www.daogukj.com/auvxhwep/)
+- [【时代少年团】七周年互赠礼物时刻](http://www.play.hengshemaoyi.cn/kongbu/9308752.htm)
+- [温差待消弭信心不可失](http://www.daogukj.com/5938049)
+- [特朗普回应普京是朋友](http://www.play.hengshemaoyi.cn/xiju/7231318.htm)
 
 </details>
 
 ## 原始来源
 
-- [特朗普：将与伊朗达成一项永久性协议](https://www.baidu.com/s?wd=%E7%89%B9%E6%9C%97%E6%99%AE%EF%BC%9A%E5%B0%86%E4%B8%8E%E4%BC%8A%E6%9C%97%E8%BE%BE%E6%88%90%E4%B8%80%E9%A1%B9%E6%B0%B8%E4%B9%85%E6%80%A7%E5%8D%8F%E8%AE%AE&sa=fyb_news&rsv_dl=fyb_news)
+- [交易所打出稳市“组合拳”](https://www.baidu.com/s?wd=%E4%BA%A4%E6%98%93%E6%89%80%E6%89%93%E5%87%BA%E7%A8%B3%E5%B8%82%E2%80%9C%E7%BB%84%E5%90%88%E6%8B%B3%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 2bb412b8ab5da4a950ab -->
+<!-- content-fingerprint: 88213682a53997e3afbe -->
