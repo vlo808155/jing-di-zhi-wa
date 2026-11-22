@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 为什么现在90后，00后年轻人不再给领导提供情绪价值了？
+# 同学红成顶流自己当NPC 男演员回应
 
-> 来源：知乎热榜 · 排名：第 20 位 · 热度：104 万热度 · 分类：问答 · 更新：2026-11-23T02:39:49+08:00
+> 来源：百度热搜 · 排名：第 20 位 · 热度：5896595 · 更新：2026-11-23T07:52:06+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“为什么现在90后，00后年轻人不再给领导提供情绪价值了？”位列第 20 位，公开热度指标为 104 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“同学红成顶流自己当NPC 男演员回应”位列第 20 位，公开热度指标为 5896595。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：演员史元庭是中戏毕业生，同班有人成为顶流，而他在景区担任NPC。对此，他坦言从前会攀比，如今心态平和，认为社会地位有高低，但人的尊严并无贵贱之分。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [禁止米提亚参与摩拉游戏](you-sheng-you-se.md)
-- [向太称儿子做错事会帮着瞒郭碧婷](yin-ren-ru-sheng.md)
-- [朱一龙赵丽颖顶峰相见](jing-di-zhi-wa.md)
-- [七个葫芦娃姐姐出嫁七兄弟送嫁](hai-kuo-tian-kong.md)
+- [医生建议冬天减肥可以多吃点火锅](you-sheng-you-se.md)
+- [菲律宾8名警察绑架中国女富商](yin-ren-ru-sheng.md)
+- [去世到安葬不超24小时？山东一地回应](jing-di-zhi-wa.md)
+- [如何评价佟丽娅、王皓主演的喜剧电影《我没错！》？](hai-kuo-tian-kong.md)
 
 ## 站内推荐
 
-- [武汉一小学设牌劝返送水壶、作业的家长，让孩子自己承担忘带东西的后果，这种方式怎么样？值得效仿吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [编剧芦苇评价《给阿嬷的情书》是合格水准，但很难成为经典，劣币驱逐良币时代是良心之作，怎样理解这一说法？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [P/NP 问题如果被解决，会对计算机科学带来哪些革命性影响？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [曝 ShowMaker 宁愿大幅度降薪也希望留在 DK，如何评价他的选择？DK 目前情况有多糟？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [袁记云饺通过港交所聆讯，即将冲击「现制饺子第一股」，为何选择此时上市？登陆港股后你看好它的前景吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [日本网友对比石破茂与高市APEC表现](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [2026年乒乓球德甲联赛第九轮，樊振东1：3负于约内斯库，怎么评价樊振东代表杜塞尔多夫的这一场失利？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [曝 ShowMaker 宁愿大幅度降薪也希望留在 DK，如何评价他的选择？DK 目前情况有多糟？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [长安大学回应「14日面试13日出结果」，公告误带后台草稿的创建日期，三名人事干部被处分，如何看待此事？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [真相，假是假了点，但看了不烧心。](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [韩国网友感谢中国](http://www.daogukj.com/8005923)
-- [黄金这波暴跌割了谁的韭菜](http://www.play.hengshemaoyi.cn/xiju/7463191.htm)
-- [日媒逐帧解析特朗普无视高市](http://www.movie.hkepx.cn/movie/4169739.htm)
-- [P/NP 问题如果被解决，会对计算机科学带来哪些革命性影响？](http://www.play.hengshemaoyi.cn/xiju/5874723.htm)
-- [张元英被外网批抢liz的C位](http://www.movie.hkepx.cn/movie/3447925.htm)
-- [联合国会否诞生史上首位女掌门](http://www.play.hengshemaoyi.cn/kongbu/4576162.htm)
-- [特朗普回应深圳乘车时不拉窗帘](http://www.play.hengshemaoyi.cn/xiju/9969388.htm)
+- [特朗普连发30多张照片回味APEC](http://www.daogukj.com/8005923)
+- [“1991年张大爷”刷屏](http://www.play.hengshemaoyi.cn/xiju/7463191.htm)
+- [血压这个区间不再视作接近正常](http://www.movie.hkepx.cn/movie/4169739.htm)
+- [曝 ShowMaker 宁愿大幅度降薪也希望留在 DK，如何评价他的选择？DK 目前情况有多糟？](http://www.play.hengshemaoyi.cn/xiju/5874723.htm)
+- [主播私闯果园带货系找错地点](http://www.movie.hkepx.cn/movie/3447925.htm)
+- [主播私闯果园带货糟蹋苹果 警方回应](http://www.play.hengshemaoyi.cn/kongbu/4576162.htm)
+- [男子剪发后气质变化有多大](http://www.play.hengshemaoyi.cn/xiju/9969388.htm)
 - [日媒逐帧解析高市早苗遭特朗普无视，直呼耻辱，为何日本对此如此破防？反映了日本舆论对日美互动怎样的心态？](http://www.play.hengshemaoyi.cn/kongbu/2274251.htm)
-- [古代从南京跑到北京十五天够用吗](http://www.movie.hkepx.cn/xiju/5546881.htm)
-- [诗词里的千年文脉](http://www.play.hengshemaoyi.cn/kongbu/8488935.htm)
-- [做饭前一个改变 血压炎症指标降了](http://www.play.hengshemaoyi.cn/xiju/5663353.htm)
-- [赵本山女儿和老公两地分居](http://www.movie.hkepx.cn/xiju/5950485.htm)
-- [特朗普连发30多张照片回味APEC](http://www.movie.hkepx.cn/movie/9193128.htm)
-- [BLG全队看我视频，Bin哥说做的太牛逼了😋](http://www.daogukj.com/atarmjde/)
-- [人能控制自己的长相吗？](http://www.play.hengshemaoyi.cn/xiju/9145960.htm)
-- [特朗普发APEC合照配文GOAT](http://www.movie.hkepx.cn/xiju/2578023.htm)
-- [同样是蛋白质，为什么提倡喝牛奶而不是吃鸡蛋?](http://www.daogukj.com/5709010)
-- [炒蔬菜的底层逻辑：4种方法搞定99%的蔬菜？](http://www.daogukj.com/wpzjvegw/)
-- [女儿回应父亲交往母亲第三者的前妻](http://www.play.hengshemaoyi.cn/xiju/4598532.htm)
-- [如何评价《侠盗猎车手 VI》（GTA 6）的结局？](http://www.play.hengshemaoyi.cn/kongbu/0125652.htm)
-- [诈骗话术手册写逼死客户一个不留](http://www.movie.hkepx.cn/xiju/2411242.htm)
-- [特朗普回应普京是朋友](http://www.daogukj.com/6900199)
-- [2026年乒乓球德甲联赛第九轮，樊振东1：3负于约内斯库，怎么评价樊振东代表杜塞尔多夫的这一场失利？](http://www.movie.hkepx.cn/xiju/8302101.htm)
-- [方力申耗时 8 小时 37 分 24 秒从香港游到澳门破吉尼斯纪录，完成这样的挑战难度有多大？](http://www.daogukj.com/vrviqqsc/)
-- [最完美的食物](http://www.daogukj.com/5803945)
-- [交易所打出稳市「组合拳」，沪深北交易所降低融资保证金比例下限至 80%，意味着什么？释放了哪些信号？](http://www.daogukj.com/pggqhldb/)
-- [【BLG庆功饭堂夜】冠军之路，感谢有你！（直播全程回放）](http://www.play.hengshemaoyi.cn/xiju/9613239.htm)
-- [景德镇市委书记陈克龙任江西省委常委](http://www.movie.hkepx.cn/xiju/1355542.htm)
-- [《520AM》司凤版⚡思罢吗乐队激情演奏！小时候这集听哭了😭【AI MV大赛】](http://www.play.hengshemaoyi.cn/xiju/7010661.htm)
-- [樊振东德甲对阵萨尔布吕肯](http://www.movie.hkepx.cn/xiju/1893259.htm)
-- [孙芮后援会关站](http://www.daogukj.com/3906187)
-- [“稳股市”组合拳来了](http://www.daogukj.com/3891201)
-- [不要自学韦伯斯特了！](http://www.movie.hkepx.cn/movie/0469338.htm)
-- [私闯果园糟蹋水果主播下架所有视频](http://www.play.hengshemaoyi.cn/kongbu/9519674.htm)
-- [600块吃好喝好玩好 年轻人羡慕疯了](http://www.daogukj.com/8314048)
-- [【BLG夺冠VLOG】这是属于我们的冠军记忆](http://www.play.hengshemaoyi.cn/xiju/8783645.htm)
-- [《GTA 6》：完美劫案（没惊动警察，也没触发警报）](http://www.play.hengshemaoyi.cn/kongbu/2446487.htm)
-- [荔枝冰酒爆单 厂家忙到没空招人](http://www.movie.hkepx.cn/xiju/1583083.htm)
-- [网友称在父母面前切换成「无性别低智儿童」，被问到工作、婚恋话题都说「不知道」，为啥要这样？这招管用吗？](http://www.movie.hkepx.cn/movie/7949727.htm)
-- [2026亚太最具影响力青年男性TOP100](http://www.movie.hkepx.cn/xiju/7893335.htm)
-- [为什么你会间接性看不惯身边的朋友？](http://www.movie.hkepx.cn/movie/6332074.htm)
-- [央视主持人录节目假牙丢了](http://www.movie.hkepx.cn/xiju/9763550.htm)
-- [向太称儿子做错事会帮着瞒郭碧婷](http://www.movie.hkepx.cn/movie/0911321.htm)
-- [朱一龙赵丽颖顶峰相见](http://www.movie.hkepx.cn/movie/1570496.htm)
-- [武汉一小学设牌劝返送水壶、作业的家长，让孩子自己承担忘带东西的后果，这种方式怎么样？值得效仿吗？](http://www.movie.hkepx.cn/xiju/5460806.htm)
-- [去世到安葬不超24小时？山东一地回应](http://www.movie.hkepx.cn/xiju/3915542.htm)
-- [菲律宾8名警察绑架中国女富商](http://www.daogukj.com/obnsavya/)
-- [韦东奕再获奖](http://www.daogukj.com/thtteqlc/)
-- [《无限暖暖》3.0版本PV｜昨日之城，明日之声](http://www.daogukj.com/6398059)
-- [羽绒服到底该怎么洗](http://www.daogukj.com/5238190)
+- [A股利好来了 三箭齐发](http://www.movie.hkepx.cn/xiju/5546881.htm)
+- [智能穿戴打开消费新空间](http://www.play.hengshemaoyi.cn/kongbu/8488935.htm)
+- [GTA6性能要求高吗？哪台主机表现好？解锁30帧后能跑多少帧？](http://www.play.hengshemaoyi.cn/xiju/5663353.htm)
+- [这下换厉娜画地为牢了](http://www.movie.hkepx.cn/xiju/5950485.htm)
+- [A股迎稳市组合拳](http://www.movie.hkepx.cn/movie/9193128.htm)
+- [熟成14的三文鱼，厨师长上班验货，美食制作先替客人尝尝味道，把控品质，人人有责](http://www.daogukj.com/atarmjde/)
+- [主播私闯果园直播带货糟蹋千斤苹果，起初仅愿赔偿6000元，官方通报其系误入，相关损失应如何认定和赔偿？](http://www.play.hengshemaoyi.cn/xiju/9145960.htm)
+- [央视主持人杨帆录节目假牙丢了](http://www.movie.hkepx.cn/xiju/2578023.htm)
+- [权威数读观中国](http://www.daogukj.com/5709010)
+- [汇天A868飞行汽车试飞成功](http://www.daogukj.com/wpzjvegw/)
+- [难道当了爱豆就要一辈子单身吗](http://www.play.hengshemaoyi.cn/xiju/4598532.htm)
+- [俄乌两军在多线激烈交战](http://www.play.hengshemaoyi.cn/kongbu/0125652.htm)
+- [“兄台”的“台”到底是什么台](http://www.movie.hkepx.cn/xiju/2411242.htm)
+- [如何看待女子嫌老公熬夜打游戏，发「追杀令」求助网友狙击老公ID，其老公称「你们找不到我」被玩家围剿？](http://www.daogukj.com/6900199)
+- [AI短剧、AI漫剧现在这么火爆，为什么我感觉大多数角色的脸都一样？大家不会视觉疲劳吗？](http://www.movie.hkepx.cn/xiju/8302101.htm)
+- [《芯片战争》作者警告美国](http://www.daogukj.com/vrviqqsc/)
+- [派出所副所长借钱8万仅还5万被约谈](http://www.daogukj.com/5803945)
+- [方力申耗时 8 小时 37 分 24 秒从香港游到澳门破吉尼斯纪录，完成这样的挑战难度有多大？](http://www.daogukj.com/pggqhldb/)
+- [小时候眼中的罚抄神器be like:](http://www.play.hengshemaoyi.cn/xiju/9613239.htm)
+- [炒蔬菜的底层逻辑：4种方法搞定99%的蔬菜？](http://www.movie.hkepx.cn/xiju/1355542.htm)
+- [编剧芦苇评价《给阿嬷的情书》是合格水准，但很难成为经典，劣币驱逐良币时代是良心之作，怎样理解这一说法？](http://www.play.hengshemaoyi.cn/xiju/7010661.htm)
+- [赵本山女儿和老公两地分居](http://www.movie.hkepx.cn/xiju/1893259.htm)
+- [青稚直播30万人](http://www.daogukj.com/3906187)
+- [特朗普发APEC合照配文GOAT](http://www.daogukj.com/3891201)
+- [【星穹铁道HoYoFair】「红丝绒星期五」正式预告片 | 史上最棒的预告片](http://www.movie.hkepx.cn/movie/0469338.htm)
+- [樊振东3比0弗朗西斯卡](http://www.play.hengshemaoyi.cn/kongbu/9519674.htm)
+- [赖清德沈伯洋穿日本祭祀服造势引公愤](http://www.daogukj.com/8314048)
+- [在黎曼猜想被声称证明后，如何理解袁新意所说的「或许我们高估了黎曼猜想的难度」？](http://www.play.hengshemaoyi.cn/xiju/8783645.htm)
+- [胡锡进建议周末多逛商场](http://www.play.hengshemaoyi.cn/kongbu/2446487.htm)
+- [女教师公园拉二胡被质疑“有失身份”](http://www.movie.hkepx.cn/xiju/1583083.htm)
+- [金店老板囤一吨白银直接亏超1000万](http://www.movie.hkepx.cn/movie/7949727.htm)
+- [向芷不愧是向家的团宠](http://www.movie.hkepx.cn/xiju/7893335.htm)
+- [侠盗猎车手6 第一集，GTA 6 Part 1](http://www.movie.hkepx.cn/movie/6332074.htm)
+- [私闯果园糟蹋水果主播下架所有视频](http://www.movie.hkepx.cn/xiju/9763550.htm)
+- [菲律宾8名警察绑架中国女富商](http://www.movie.hkepx.cn/movie/0911321.htm)
+- [去世到安葬不超24小时？山东一地回应](http://www.movie.hkepx.cn/movie/1570496.htm)
+- [日本网友对比石破茂与高市APEC表现](http://www.movie.hkepx.cn/xiju/5460806.htm)
+- [七兄弟给姐姐送嫁排面拉满](http://www.movie.hkepx.cn/xiju/3915542.htm)
+- [小区277户只有约100家一直交物业费](http://www.daogukj.com/obnsavya/)
+- [长征九号为什么放弃了大推力发动机转而用一堆小推力发动机组合？](http://www.daogukj.com/thtteqlc/)
+- [非正常人物志——哥伦布](http://www.daogukj.com/6398059)
+- [八马茶业回应被暂停全军采购资格](http://www.daogukj.com/5238190)
 
 </details>
 
 ## 原始来源
 
-- [为什么现在90后，00后年轻人不再给领导提供情绪价值了？](https://www.zhihu.com/question/2103088984821871193)
+- [同学红成顶流自己当NPC 男演员回应](https://www.baidu.com/s?wd=%E5%90%8C%E5%AD%A6%E7%BA%A2%E6%88%90%E9%A1%B6%E6%B5%81%E8%87%AA%E5%B7%B1%E5%BD%93NPC+%E7%94%B7%E6%BC%94%E5%91%98%E5%9B%9E%E5%BA%94&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ab7217297475b376b210 -->
+<!-- content-fingerprint: c5638cbbbe9c06380862 -->
