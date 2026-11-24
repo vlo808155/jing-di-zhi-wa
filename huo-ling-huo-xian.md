@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# Kimi 宣布发力 AI for Science 方向，有哪些信息值得关注？
+# 白小纯真的交了很多好朋友
 
-> 来源：知乎热榜 · 排名：第 20 位 · 热度：91 万热度 · 分类：问答 · 更新：2026-11-23T23:52:29+08:00
+> 来源：微博热搜 · 排名：第 21 位 · 热度：263857 · 分类：电竞 · 更新：2026-11-24T10:42:18+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“Kimi 宣布发力 AI for Science 方向，有哪些信息值得关注？”位列第 20 位，公开热度指标为 91 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“白小纯真的交了很多好朋友”位列第 21 位，公开热度指标为 263857，榜单分类为“电竞”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：月之暗面（Moonshot AI）国际业务负责人贾科莫・菲卡里（Giacomo Ficari）在葡萄牙里斯本举行的网络峰会上，谈到了该公司在编程之外看好的下一个方向：科学研究。这番发言是 Kimi 呼应趋势之举，Coding Agent 对基座模型的增益效果已经被 Anthropic、智谱和 Qwen 等先后证明过，唯 AI for Science 在硅谷已经成为显学之际，国内的基础模型响应稍显迟钝。 我们从 Kimi 开放平台看到的案例介绍显示，晶泰接入 Kimi K3 后，主要利用其从化学表达式、科研图表中提取信息，辅助药物和材料研究人员整理文献。K
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`微博热搜` `实时热搜` `热点资讯` `电竞`
 
 ## 相关热点
 
-- [两套大连招 雷霆撸猫法 一镜到底](you-sheng-you-se.md)
-- [骗捐学校强迫学生干活到凌晨三四点](yin-ren-ru-sheng.md)
-- [BBC应向被冒犯的深圳市民道歉](jing-di-zhi-wa.md)
-- [银条从最高33元跌到9元](hai-kuo-tian-kong.md)
+- [蔡磊妻子透露一家三口分开住](you-sheng-you-se.md)
+- [你认为深圳的城市文化名片是什么？](yin-ren-ru-sheng.md)
+- [如何评价广西民族大学“鸭学长”被轧死，司机张贴公告道歉，学校取消配送公司配送权并禁止涉事车辆进校园？](jing-di-zhi-wa.md)
+- [“别人过得好 你就要扣自己的分吗”](hai-kuo-tian-kong.md)
 
 ## 站内推荐
 
-- [黄仁勋：很荣幸回到英伟达](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [比亚迪闪充站超时占位按 3 元/分钟收费，车主被收 300 元，这类规则能改善充电位被占用乱象吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [为什么一到香港就能强烈地感受到那种都市感呢？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [雷克萨斯 ES 纯电版正式上市起售价 33.99 万元，该定价在同级别车型里竞争力如何？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [电视剧《甄嬛传》中，为什么甄嬛小产后每天以泪洗面，皇上却不在意呢？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [英伟达卖空者单日浮亏122亿美元](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [黄仁勋称将以最大的谦卑和新的承诺承担这一责任，英伟达接下来将怎样发展？此前的策略会发生变化吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [【灵笼:落子无悔】纵入存亡之局，亦落无悔之子【PV】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [《复联5》最终预告解析！和泄露太吻合了！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [杭州姑娘坐1小时地铁买黄金](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [成毅背肌](http://www.daogukj.com/8005923)
-- [中方就以总理等被发逮捕令表态](http://www.play.hengshemaoyi.cn/xiju/7463191.htm)
-- [金价](http://www.movie.hkepx.cn/movie/4169739.htm)
-- [为什么一到香港就能强烈地感受到那种都市感呢？](http://www.play.hengshemaoyi.cn/xiju/5874723.htm)
-- [舒淇得奖冯德伦反应](http://www.movie.hkepx.cn/movie/3447925.htm)
-- [97岁老人寿宴结束 五代同堂喊妈妈](http://www.play.hengshemaoyi.cn/kongbu/4576162.htm)
-- [金条卖光了？记者实地探访](http://www.play.hengshemaoyi.cn/xiju/9969388.htm)
-- [骑手一句「treetree的」带火披萨店炸鸡，老板直言爆单做不过来，为啥此类视频能迅速调起大众购买欲？](http://www.play.hengshemaoyi.cn/kongbu/2274251.htm)
-- [女子嫌对面楼老旧自费7.3万刷漆](http://www.movie.hkepx.cn/xiju/5546881.htm)
+- [魏建军自曝这几年焦虑，称「长城汽车曾经是中国自主品牌的销冠，如今已滑到了第九」，你觉得问题出在哪？](http://www.daogukj.com/8005923)
+- [首位到访天宫的外籍航天员公布](http://www.play.hengshemaoyi.cn/xiju/7463191.htm)
+- [中国首位太空出差一年航天员](http://www.movie.hkepx.cn/movie/4169739.htm)
+- [【灵笼:落子无悔】纵入存亡之局，亦落无悔之子【PV】](http://www.play.hengshemaoyi.cn/xiju/5874723.htm)
+- [文吉儿只是说话直白](http://www.movie.hkepx.cn/movie/3447925.htm)
+- [出红毯千万不能站在两个笑星中间](http://www.play.hengshemaoyi.cn/kongbu/4576162.htm)
+- [Digital Foundry 称《GTA6》即便高端 PC 也难稳 60 帧，其核心瓶颈要如何解决？](http://www.play.hengshemaoyi.cn/xiju/9969388.htm)
+- [近十年最好的推理系列剧集之一！神级转场，爆火开头，悬疑神剧高分回归系列最终章！《大理石厅谋杀案》上](http://www.play.hengshemaoyi.cn/kongbu/2274251.htm)
+- [“猫界李子柒”火遍海内外](http://www.movie.hkepx.cn/xiju/5546881.htm)
 - [探秘中国高铁的强大“内核”](http://www.play.hengshemaoyi.cn/kongbu/8488935.htm)
-- [印尼女子发现丈夫出轨叫挖掘机拆房](http://www.play.hengshemaoyi.cn/xiju/5663353.htm)
-- [treetree炸鸡一天出油三四桶](http://www.movie.hkepx.cn/xiju/5950485.htm)
-- [李雪琴减肥效果惊呆陶勇](http://www.movie.hkepx.cn/movie/9193128.htm)
-- [今天还是老样子吗？](http://www.daogukj.com/atarmjde/)
-- [如何看待俄海军20380型护卫舰「水星」号在利比亚班加西港遭袭起火爆炸，泽连斯基证实系乌方无人艇击沉？](http://www.play.hengshemaoyi.cn/xiju/9145960.htm)
-- [金饰克价涨至1091元](http://www.movie.hkepx.cn/xiju/2578023.htm)
-- [亚太共赴开放创新合作之约](http://www.daogukj.com/5709010)
-- [先导片强势来袭！12月5日19点《2026灵笼盛典》B站独家直播【2026 灵笼盛典】](http://www.daogukj.com/wpzjvegw/)
-- [英伟达市值重回美股第二](http://www.play.hengshemaoyi.cn/xiju/4598532.htm)
-- [为什么大便之前体重和大便之后的体重一样？难道排泄物没有重量吗？](http://www.play.hengshemaoyi.cn/kongbu/0125652.htm)
-- [许飞睡衣太幼稚自己都看不下去](http://www.movie.hkepx.cn/xiju/2411242.htm)
-- [歼-16飞行员放干扰弹驱离外机](http://www.daogukj.com/6900199)
-- [汽车明显在增多，为啥有的洗车店却干不下去了？](http://www.movie.hkepx.cn/xiju/8302101.htm)
-- [《士兵突击》为什么整顿的是钢七连？](http://www.daogukj.com/vrviqqsc/)
-- [演员刘雨欣自曝美国的家再被偷](http://www.daogukj.com/5803945)
-- [英伟达董事会恢复黄仁勋总裁、CEO 及董事会成员职务，哪些信息值得关注？](http://www.daogukj.com/pggqhldb/)
-- [我们成为英雄，哪怕只有一天](http://www.play.hengshemaoyi.cn/xiju/9613239.htm)
-- [蔡磊妻子透露一家三口分开住](http://www.movie.hkepx.cn/xiju/1355542.htm)
-- [《这波贪了》](http://www.play.hengshemaoyi.cn/xiju/7010661.htm)
-- [曝文吉儿怕头发有味不想吃火锅](http://www.movie.hkepx.cn/xiju/1893259.htm)
-- [刘恺威为小19岁女友黎纪君庆生](http://www.daogukj.com/3906187)
-- [水均益直播解读黄仁勋复职](http://www.daogukj.com/3891201)
-- [英雄联盟手游携手JackeyLove，诠释「终末锋芒 德莱文」永远向前的进攻美学！](http://www.movie.hkepx.cn/movie/0469338.htm)
-- [复联5终极预告](http://www.play.hengshemaoyi.cn/kongbu/9519674.htm)
-- [英伟达董事会恢复黄仁勋CEO职务](http://www.daogukj.com/8314048)
-- [怎么看 Nielsen 发布《黎曼猜想证明无效》的反驳论文？](http://www.play.hengshemaoyi.cn/xiju/8783645.htm)
-- [“别人过得好 你就要扣自己的分吗”](http://www.play.hengshemaoyi.cn/kongbu/2446487.htm)
-- [蔡琴首次辟谣无性婚姻](http://www.movie.hkepx.cn/xiju/1583083.htm)
-- [为什么会有那么多状元上北京大学光华管理学院?](http://www.movie.hkepx.cn/movie/7949727.htm)
-- [英伟达盘前暴涨](http://www.movie.hkepx.cn/xiju/7893335.htm)
-- [考公务员很难，但是为人民服务却很容易！](http://www.movie.hkepx.cn/movie/6332074.htm)
-- [黄仁勋恢复英伟达CEO职务](http://www.movie.hkepx.cn/xiju/9763550.htm)
-- [骗捐学校强迫学生干活到凌晨三四点](http://www.movie.hkepx.cn/movie/0911321.htm)
-- [BBC应向被冒犯的深圳市民道歉](http://www.movie.hkepx.cn/movie/1570496.htm)
-- [黄仁勋：很荣幸回到英伟达](http://www.movie.hkepx.cn/xiju/5460806.htm)
-- [俄对乌发动大规模报复](http://www.movie.hkepx.cn/xiju/3915542.htm)
-- [A股午后为何直线拉升](http://www.daogukj.com/obnsavya/)
-- [很多人测血压的第一步就错了](http://www.daogukj.com/thtteqlc/)
-- [我想回家吃饭（两小时大电影）](http://www.daogukj.com/6398059)
-- [谢军被查 中国石油表态](http://www.daogukj.com/5238190)
+- [特朗普评价黄仁勋复职决定](http://www.play.hengshemaoyi.cn/xiju/5663353.htm)
+- [中国天宫首位外籍航天员任务公布](http://www.movie.hkepx.cn/xiju/5950485.htm)
+- [有哪些化学冷知识？](http://www.movie.hkepx.cn/movie/9193128.htm)
+- [中方就以总理等被发逮捕令表态](http://www.daogukj.com/atarmjde/)
+- [黄仁勋回来了！他为什么必须先倒下？开源闭源之争，正在把世界推向2077](http://www.play.hengshemaoyi.cn/xiju/9145960.htm)
+- [AI短剧丑狐爆火](http://www.movie.hkepx.cn/xiju/2578023.htm)
+- [关心照护一老一小 让朝夕更美好](http://www.daogukj.com/5709010)
+- [孙芮营业照 订婚照](http://www.daogukj.com/wpzjvegw/)
+- [treetree炸鸡外卖员10天涨粉超百万](http://www.play.hengshemaoyi.cn/xiju/4598532.htm)
+- [淘股吧两届冠军仅5个月就从1541万亏到74万，最后宣告破产，一代炒股冠军的陨落带给投资者哪些反思？](http://www.play.hengshemaoyi.cn/kongbu/0125652.htm)
+- [陈伟霆尺度太大只能选在澳门了](http://www.movie.hkepx.cn/xiju/2411242.htm)
+- [黄仁勋辞任后 11 天被全票请回，这波极限拉扯到底谁输谁赢？这次回归，他真能就此高枕无忧吗？](http://www.daogukj.com/6900199)
+- [对质](http://www.movie.hkepx.cn/xiju/8302101.htm)
+- [U17世界杯小组赛，中国U17男足补时读秒阶段遭绝平，最终2比2摩洛哥，怎样评价本场比赛？](http://www.daogukj.com/vrviqqsc/)
+- [黄仁勋说我犯了一些非常严重的错误](http://www.daogukj.com/5803945)
+- [懂车帝回应「测试内容大调整」，称不再开放对比类内容等信息失实，具体是怎么回事？实际有哪些调整？](http://www.daogukj.com/pggqhldb/)
+- [霍启刚一家六口罕见同框](http://www.play.hengshemaoyi.cn/xiju/9613239.htm)
+- [三名大学生地铁里帮女子接力抱娃](http://www.movie.hkepx.cn/xiju/1355542.htm)
+- [你从未见过的硬核开箱视频！](http://www.play.hengshemaoyi.cn/xiju/7010661.htm)
+- [神23将返回东风着陆场](http://www.movie.hkepx.cn/xiju/1893259.htm)
+- [U17国足第99分钟被绝平](http://www.daogukj.com/3906187)
+- [谁在黄仁勋复职前精准买入英伟达](http://www.daogukj.com/3891201)
+- [关乎“养老钱” 人社部公开征求意见](http://www.movie.hkepx.cn/movie/0469338.htm)
+- [列车长拦冲向进站高铁男子获奖1万](http://www.play.hengshemaoyi.cn/kongbu/9519674.htm)
+- [BBC应向被冒犯的深圳市民道歉](http://www.daogukj.com/8314048)
+- [幼儿园要招两岁孩子了，新政策支持幼儿园改造扩建，举办两至三岁幼儿的托班，该举措对家长和孩子有哪些好处？](http://www.play.hengshemaoyi.cn/xiju/8783645.htm)
+- [法院回应34米路绿灯12秒行人被撞亡](http://www.play.hengshemaoyi.cn/kongbu/2446487.htm)
+- [49岁李维嘉家里干净得没有一根头发](http://www.movie.hkepx.cn/xiju/1583083.htm)
+- [甲亢哥百米跑出10秒35](http://www.movie.hkepx.cn/movie/7949727.htm)
+- [航天员汤洪波曾两度飞天](http://www.movie.hkepx.cn/xiju/7893335.htm)
+- [李雪琴瘦到认不出](http://www.movie.hkepx.cn/movie/6332074.htm)
+- [34米路仅12秒绿灯已调整为28秒](http://www.movie.hkepx.cn/xiju/9763550.htm)
+- [你认为深圳的城市文化名片是什么？](http://www.movie.hkepx.cn/movie/0911321.htm)
+- [如何评价广西民族大学“鸭学长”被轧死，司机张贴公告道歉，学校取消配送公司配送权并禁止涉事车辆进校园？](http://www.movie.hkepx.cn/movie/1570496.htm)
+- [英伟达卖空者单日浮亏122亿美元](http://www.movie.hkepx.cn/xiju/5460806.htm)
+- [数年炸鸡无人识 一句treetree全网知](http://www.movie.hkepx.cn/xiju/3915542.htm)
+- [骑手一句「treetree的」带火披萨店炸鸡，老板直言爆单做不过来，为啥此类视频能迅速调起大众购买欲？](http://www.daogukj.com/obnsavya/)
+- [同样是牛奶，凭啥一个保15天，一个能放三个月？](http://www.daogukj.com/thtteqlc/)
+- [游戏自由度太高也不是什么好事](http://www.daogukj.com/6398059)
+- [特朗普把抵达深圳照片打印出来了](http://www.daogukj.com/5238190)
 
 </details>
 
 ## 原始来源
 
-- [Kimi 宣布发力 AI for Science 方向，有哪些信息值得关注？](https://www.zhihu.com/question/2107898424943179770)
+- [白小纯真的交了很多好朋友](https://s.weibo.com/weibo?q=%E7%99%BD%E5%B0%8F%E7%BA%AF%E7%9C%9F%E7%9A%84%E4%BA%A4%E4%BA%86%E5%BE%88%E5%A4%9A%E5%A5%BD%E6%9C%8B%E5%8F%8B)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 2283e950c3a049e9a7e9 -->
+<!-- content-fingerprint: 7e4a6c76f907255d0f74 -->
