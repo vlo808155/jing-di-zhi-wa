@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 蔡磊妻子透露一家三口分开住
+# 华为首款小折叠电脑发布
 
-> 来源：今日头条热榜 · 排名：第 21 位 · 热度：6866634 · 更新：2026-11-24T10:42:18+08:00
+> 来源：百度热搜 · 排名：第 20 位 · 热度：5897543 · 更新：2026-11-24T20:57:07+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“蔡磊妻子透露一家三口分开住”位列第 21 位，公开热度指标为 6866634。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“华为首款小折叠电脑发布”位列第 20 位，公开热度指标为 5897543。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：11月24日，华为首款鸿蒙小折叠电脑MateBook Fold S正式发布，定价14999元起。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [你认为深圳的城市文化名片是什么？](yin-ren-ru-sheng.md)
-- [如何评价广西民族大学“鸭学长”被轧死，司机张贴公告道歉，学校取消配送公司配送权并禁止涉事车辆进校园？](jing-di-zhi-wa.md)
-- [“别人过得好 你就要扣自己的分吗”](hai-kuo-tian-kong.md)
-- [睡够了还是累？可能是“低精力”](gao-zhan-yuan-zhu.md)
+- [姚译添要做全女综艺](yin-ren-ru-sheng.md)
+- [林智妍李到晛分手](jing-di-zhi-wa.md)
+- [1.1万华为员工用上鸿蒙台式机](hai-kuo-tian-kong.md)
+- [如何看待 BLG 夺冠后，米勒等 LPL 解说及曾恶意带 Bin 节奏的 UP 主被群起「清算」？](gao-zhan-yuan-zhu.md)
 
 ## 站内推荐
 
-- [幼儿园要招两岁孩子了，新政策支持幼儿园改造扩建，举办两至三岁幼儿的托班，该举措对家长和孩子有哪些好处？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [游戏自由度太高也不是什么好事](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
-- [网民发免费摘甘蔗谣言被拘](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [霍启刚一家六口罕见同框](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [法院回应34米路绿灯12秒行人被撞亡](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [“别人过得好 你就要扣自己的分吗”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
+- [黄仁勋找到了他的接班人，oh，原来是他自己](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [【记忆碎片】要长脑子了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [你从未见过的硬核开箱视频！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [特厨探店|一碗十块吃出河南人的浪漫？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [黄仁勋正式回归英伟达：恢复全部职务｜显卡日报11月24日](http://www.daogukj.com/xpqxgjcv/)
-- [数年炸鸡无人识 一句treetree全网知](http://www.play.hengshemaoyi.cn/xiju/9504622.htm)
-- [神二十四乘组：外籍航天员首次入选](http://www.movie.hkepx.cn/movie/6749947.htm)
-- [近十年最好的推理系列剧集之一！神级转场，爆火开头，悬疑神剧高分回归系列最终章！《大理石厅谋杀案》上](http://www.play.hengshemaoyi.cn/xiju/4948083.htm)
-- [《后会友期》第六期马天宇爆哭，他的问题好像和友情无关了，他不能和任何人建立亲密关系，根本问题是什么？](http://www.movie.hkepx.cn/xiju/7607655.htm)
-- [睡够了还是累？可能是“低精力”](http://www.play.hengshemaoyi.cn/xiju/5325575.htm)
-- [49岁李维嘉家里干净得没有一根头发](http://www.play.hengshemaoyi.cn/kongbu/9379279.htm)
-- [NVIDIA董事会宣布即日起恢复黄仁勋的总裁、首席执行官和董事职务，如何评价该事件？](http://www.daogukj.com/egbjfccc/)
-- [中方就以总理等被发逮捕令表态](http://www.movie.hkepx.cn/movie/2907268.htm)
-- [出红毯千万不能站在两个笑星中间](http://www.movie.hkepx.cn/xiju/1786474.htm)
-- [黄仁勋回归后纽约时报遭群嘲](http://www.play.hengshemaoyi.cn/kongbu/3660768.htm)
-- [霍启刚一家六口罕见同框](http://www.movie.hkepx.cn/xiju/4183202.htm)
-- [白小纯 嘉年华](http://www.play.hengshemaoyi.cn/kongbu/6256469.htm)
-- [文吉儿只是说话直白](http://www.movie.hkepx.cn/xiju/5108742.htm)
-- [我想回家吃饭（两小时大电影）](http://www.movie.hkepx.cn/xiju/7519171.htm)
-- [treetree炸鸡外卖员10天涨粉超百万](http://www.movie.hkepx.cn/movie/2577743.htm)
-- [《GTA6》官宣首日零售销售额37.9亿美元、预售3250万份，这个成绩是什么水平？](http://www.movie.hkepx.cn/xiju/8256350.htm)
-- [国字号男足时隔21年在世界杯取得进球](http://www.play.hengshemaoyi.cn/kongbu/3840000.htm)
-- [淘股吧两届冠军仅5个月就从1541万亏到74万，最后宣告破产，一代炒股冠军的陨落带给投资者哪些反思？](http://www.daogukj.com/pggpwtpd/)
-- [首位到访天宫的外籍航天员公布](http://www.play.hengshemaoyi.cn/xiju/2942368.htm)
-- [神23将返回东风着陆场](http://www.movie.hkepx.cn/movie/3592629.htm)
-- [民主党寻求推翻特朗普税收和关税政策，将对全球贸易带来哪些影响？](http://www.play.hengshemaoyi.cn/xiju/8731518.htm)
-- [你认为深圳的城市文化名片是什么？](http://www.play.hengshemaoyi.cn/xiju/3438881.htm)
-- [法院回应34米路绿灯12秒行人被撞亡](http://www.daogukj.com/rvtjhukc/)
-- [英伟达卖空者单日浮亏122亿美元](http://www.play.hengshemaoyi.cn/kongbu/3059344.htm)
-- [李雪琴瘦到认不出](http://www.movie.hkepx.cn/movie/8044035.htm)
-- [黄仁勋说我犯了一些非常严重的错误](http://www.movie.hkepx.cn/movie/0744393.htm)
-- [U17国足第99分钟被绝平](http://www.play.hengshemaoyi.cn/xiju/2844176.htm)
-- [巴基斯坦航天员随神23返回](http://www.play.hengshemaoyi.cn/kongbu/4388909.htm)
-- [某部委员工与间谍签署「保密与忠诚」条款、窃取百余份情报被判死刑，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/7258246.htm)
-- [李雪琴减肥效果惊呆陶勇](http://www.movie.hkepx.cn/movie/3477880.htm)
-- [华强等了宋老虎30年](http://www.daogukj.com/mxxaaoqi/)
-- [先导片强势来袭！12月5日19点《2026灵笼盛典》B站独家直播【2026 灵笼盛典】](http://www.movie.hkepx.cn/xiju/0410176.htm)
-- [黄仁勋称将以最大的谦卑和新的承诺承担这一责任，英伟达接下来将怎样发展？此前的策略会发生变化吗？](http://www.play.hengshemaoyi.cn/kongbu/4983709.htm)
-- [两套大连招 雷霆撸猫法 一镜到底](http://www.play.hengshemaoyi.cn/xiju/9262750.htm)
-- [白小纯真的交了很多好朋友](http://www.play.hengshemaoyi.cn/kongbu/4671141.htm)
-- [你从未见过的硬核开箱视频！](http://www.movie.hkepx.cn/movie/8349964.htm)
-- [怎么看 Dario 在 OpenAI 工作期间，曾提出通过沉浸式电子游戏，缓解 AI 导致大规模失业？](http://www.daogukj.com/4716922)
-- [BBC应向被冒犯的深圳市民道歉](http://www.movie.hkepx.cn/movie/5393498.htm)
-- [黄仁勋回来了！他为什么必须先倒下？开源闭源之争，正在把世界推向2077](http://www.movie.hkepx.cn/movie/5460085.htm)
-- [《复联5》最终预告解析！和泄露太吻合了！](http://www.play.hengshemaoyi.cn/xiju/3011100.htm)
-- [黄仁勋复职原因](http://www.play.hengshemaoyi.cn/xiju/4637538.htm)
-- [关心照护一老一小 让朝夕更美好](http://www.movie.hkepx.cn/movie/8940560.htm)
-- [瘦小女列车长死命拉住跳轨轻生男](http://www.movie.hkepx.cn/movie/0831513.htm)
-- [探秘中国高铁的强大“内核”](http://www.daogukj.com/cmhomvpy/)
-- [魏建军自曝这几年焦虑，称「长城汽车曾经是中国自主品牌的销冠，如今已滑到了第九」，你觉得问题出在哪？](http://www.play.hengshemaoyi.cn/kongbu/7216702.htm)
-- [幼儿园要招两岁孩子了，新政策支持幼儿园改造扩建，举办两至三岁幼儿的托班，该举措对家长和孩子有哪些好处？](http://www.play.hengshemaoyi.cn/xiju/1028140.htm)
-- [卡尼公开吐槽特朗普 美媒震惊](http://www.movie.hkepx.cn/movie/1414994.htm)
-- [黄仁勋恢复原职，美股大涨7%，英伟达盘前暴涨31%，适才相戏耳，特朗普力挺是关键](http://www.daogukj.com/2345067)
-- [34米路口只给12秒绿灯 残疾人被撞身亡](http://www.movie.hkepx.cn/movie/8392048.htm)
+- [新版国际高血压指南发布，高压130低压80起被定义为血压升高，意味着啥？普通人该如何判断是否需要干预？](http://www.daogukj.com/xpqxgjcv/)
+- [农业银行近期股价持续走高](http://www.play.hengshemaoyi.cn/xiju/9504622.htm)
+- [上海市委书记陈吉宁被查](http://www.movie.hkepx.cn/movie/6749947.htm)
+- [专家称年轻人持续出现变懒、变沉默等状态，可能并非「社恐」而是精神分裂症阴性症状，是真的吗？该怎样区分？](http://www.play.hengshemaoyi.cn/xiju/4948083.htm)
+- [华为正式推出鸿蒙小折叠电脑](http://www.movie.hkepx.cn/xiju/7607655.htm)
+- [如何看待 BLG 夺冠后，米勒等 LPL 解说及曾恶意带 Bin 节奏的 UP 主被群起「清算」？](http://www.play.hengshemaoyi.cn/xiju/5325575.htm)
+- [“民主党向黄仁勋和英伟达宣战”](http://www.play.hengshemaoyi.cn/kongbu/9379279.htm)
+- [李维嘉回应被王菲搂着唱歌](http://www.daogukj.com/egbjfccc/)
+- [同样是水果腌肉 为啥有人是“国宴” 有人是大型翻车现场？【主播说三农】](http://www.movie.hkepx.cn/movie/2907268.htm)
+- [华为Mate 90 Air售价4999元起](http://www.movie.hkepx.cn/xiju/1786474.htm)
+- [受贿1.13亿余元！吴胜华被判无期](http://www.play.hengshemaoyi.cn/kongbu/3660768.htm)
+- [你从未见过的硬核开箱视频！](http://www.movie.hkepx.cn/xiju/4183202.htm)
+- [中方回应黄仁勋复职](http://www.play.hengshemaoyi.cn/kongbu/6256469.htm)
+- [男子杀妻抛尸后伪装好女婿10年](http://www.movie.hkepx.cn/xiju/5108742.htm)
+- [国产可口可乐不再标生产日期](http://www.movie.hkepx.cn/xiju/7519171.htm)
+- [韩国网友对内娱帅哥的分类](http://www.movie.hkepx.cn/movie/2577743.htm)
+- [智启京彩・E 路消谣](http://www.movie.hkepx.cn/xiju/8256350.htm)
+- [外交部回应“黄仁勋重回英伟达”](http://www.play.hengshemaoyi.cn/kongbu/3840000.htm)
+- [小米集团 2026 Q3 财报发布，经调整净利润 48.84 亿元，同比下降56.8%，怎样解读？](http://www.daogukj.com/pggpwtpd/)
+- [中韩自贸协定谈判里，中方首次同意给予韩国电影、游戏等领域最惠国待遇，将给两国影视行业带来哪些机遇？](http://www.play.hengshemaoyi.cn/xiju/2942368.htm)
+- [为什么有人看病能在诊室待很久](http://www.movie.hkepx.cn/movie/3592629.htm)
+- [李维嘉200平的家干净得找不出1根头发](http://www.play.hengshemaoyi.cn/xiju/8731518.htm)
+- [姚译添要做全女综艺](http://www.play.hengshemaoyi.cn/xiju/3438881.htm)
+- [特厨探店|一碗十块吃出河南人的浪漫？](http://www.daogukj.com/rvtjhukc/)
+- [淘股吧两届冠军仅5个月就从1541万亏到74万，最后宣告破产，一代炒股冠军的陨落带给投资者哪些反思？](http://www.play.hengshemaoyi.cn/kongbu/3059344.htm)
+- [被调查？](http://www.movie.hkepx.cn/movie/8044035.htm)
+- [大爷抵脖子不放后小伙倒地 地铁回应](http://www.movie.hkepx.cn/movie/0744393.htm)
+- [康熙十二世孙称雍正篡位](http://www.play.hengshemaoyi.cn/xiju/2844176.htm)
+- [黄奕用AI视频还原过去三十年人生](http://www.play.hengshemaoyi.cn/kongbu/4388909.htm)
+- [据我所知，韩国兵役人人避之不及，这种制度真的能培养出有战斗力的部队吗？](http://www.play.hengshemaoyi.cn/kongbu/7258246.htm)
+- [松鼠妈妈六次示范教小松鼠跳树成功](http://www.movie.hkepx.cn/movie/3477880.htm)
+- [英伟达卖空者预计亏损 122 亿美元，创下 2019 年以来最大单日亏损，怎么看待这次史诗级空头暴击？](http://www.daogukj.com/mxxaaoqi/)
+- [超强厄尔尼诺或致今冬冷暖起伏大](http://www.movie.hkepx.cn/xiju/0410176.htm)
+- [去世到安葬不超 24 小时，山东济阳一村推行「一日丧」引热议，这种丧葬风俗值得推广吗？](http://www.play.hengshemaoyi.cn/kongbu/4983709.htm)
+- [特朗普称亲自说服英伟达董事会推动黄仁勋复职，副总统万斯出面沟通，白宫为何这么拼？这波介入起了多大作用？](http://www.play.hengshemaoyi.cn/xiju/9262750.htm)
+- [🐧男生怎么能进女生宿舍呢🐧](http://www.play.hengshemaoyi.cn/kongbu/4671141.htm)
+- [【TF家族练习生】《第肆象限》演唱会纪录片EP01「向上」](http://www.movie.hkepx.cn/movie/8349964.htm)
+- [浙江卫视一口气官宣10部AI综艺](http://www.daogukj.com/4716922)
+- [19楼落地窗底部装无限位外凸窗](http://www.movie.hkepx.cn/movie/5393498.htm)
+- [问界M9车主开辅助驾驶熟睡引热议，怎么看待此事？](http://www.movie.hkepx.cn/movie/5460085.htm)
+- [《西虹市首富》里面想花完钱却越花越多的情况，现实里面会发生吗？](http://www.play.hengshemaoyi.cn/xiju/3011100.htm)
+- [维嘉跟王菲说别介意我蹭你流量](http://www.play.hengshemaoyi.cn/xiju/4637538.htm)
+- [神舟二十四号载人飞船瞄准11月25日8时18分发射，「天宫」将迎来首位外籍航天员，有哪些信息值得关注？](http://www.movie.hkepx.cn/movie/8940560.htm)
+- [“假洋牌”Swisse卖爆了](http://www.movie.hkepx.cn/movie/0831513.htm)
+- [绿色智引擎驱动低碳出海](http://www.daogukj.com/cmhomvpy/)
+- [小城良方央八收视率破4](http://www.play.hengshemaoyi.cn/kongbu/7216702.htm)
+- [“别人过得好 你就要扣自己的分吗”](http://www.play.hengshemaoyi.cn/xiju/1028140.htm)
+- [我们成为英雄，哪怕只有一天](http://www.movie.hkepx.cn/movie/1414994.htm)
+- [课堂上的“嘉豪、嘉欣” 已不敢举手](http://www.daogukj.com/2345067)
+- [东北外卖15分钟冻成冰](http://www.movie.hkepx.cn/movie/8392048.htm)
 
 </details>
 
 ## 原始来源
 
-- [蔡磊妻子透露一家三口分开住](https://www.toutiao.com/trending/7711200525014122547/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%221%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227711200525014122547%22%2C%22hot_board_impr_id%22%3A%2220261124104215F88CC52358BBB2CD2D52%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [华为首款小折叠电脑发布](https://www.baidu.com/s?wd=%E5%8D%8E%E4%B8%BA%E9%A6%96%E6%AC%BE%E5%B0%8F%E6%8A%98%E5%8F%A0%E7%94%B5%E8%84%91%E5%8F%91%E5%B8%83&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 33fe70354cab89b7e5e2 -->
+<!-- content-fingerprint: 74ce1eeb4693f7bac52b -->
