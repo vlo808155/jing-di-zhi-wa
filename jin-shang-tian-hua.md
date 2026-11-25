@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 吴昕被6岁小师傅叫奶奶当场愣住
+# 木头姐因担忧黄仁勋离职抛售英伟达股票，错失约1070万美元潜在收益，这笔操作是否属于典型的「卖飞」？
 
-> 来源：今日头条热榜 · 排名：第 20 位 · 热度：12396933 · 更新：2026-11-25T06:55:27+08:00
+> 来源：知乎热榜 · 排名：第 20 位 · 热度：102 万热度 · 分类：问答 · 更新：2026-11-25T13:12:02+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“吴昕被6岁小师傅叫奶奶当场愣住”位列第 20 位，公开热度指标为 12396933。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“木头姐因担忧黄仁勋离职抛售英伟达股票，错失约1070万美元潜在收益，这笔操作是否属于典型的「卖飞」？”位列第 20 位，公开热度指标为 102 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：11月24日消息，方舟投资（ARK Invest）创始人凯茜·伍德此前因担忧英伟达首席执行官黄仁勋离职后可能加入埃隆·马斯克旗下的Terafab芯片项目，于11月16日至20日通过旗下管理的交易所交易基金（ETF）合计卖出71.23万股英伟达股票，交易金额约1.069亿美元。 英伟达董事会11月23日一致投票决定恢复黄仁勋担任公司总裁兼首席执行官职务。消息公布后，英伟达股价单日大涨31.48%，创2003年以来最大单日涨幅。按当日收盘价165.05美元计算，ARK此前卖出的股票价值约1.176亿美元，较出售时的交易金额高出约1070万美元，意味着其错失了
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [为什么吕子乔不撩诺澜？](hua-long-dian-jing.md)
-- [bro开麦一直指挥自己...](miao-bi-sheng-hua.md)
-- [女子S弯骑行与后车发生事故](sheng-dong-huo-po.md)
-- [以为猫咪离世后摸到心跳](xu-xu-ru-sheng.md)
+- [拯救“财神”黄仁勋！特朗普落地就出手，绿媒落井下石大翻车【两岸圆桌派】第54期 王骁×李翔×苏恒×翟翾](hua-long-dian-jing.md)
+- [男子在招待所被砍20刀身亡 女儿痛诉](miao-bi-sheng-hua.md)
+- [天霸 体坛](sheng-dong-huo-po.md)
+- [巴航天员手中的笔飘起来了](xu-xu-ru-sheng.md)
 
 ## 站内推荐
 
-- [上海就陈吉宁被查表态](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [女老师阔腿裤钻进老鼠捏住继续讲课](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [谷歌 Android17 全球份额仅约 1%，安卓版本碎片化为何迟迟难解？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [详解【来自深渊】的全部七层！动漫界独一份的超神设定](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [余承东：iPhone用户可考虑买台Mate X8](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [神舟二十四号载人飞船发射成功](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [神23神24航天员今天一起吃午饭](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [特朗普称黄仁勋是「国家瑰宝」，若在美遇不公可去中国，黄仁勋未来若来华可能有哪些选择？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [为什么历史网络小说对于游牧政权的描写都不正确？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [大美疑似宣布离婚](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [153分钟超长大合集！【末日来临，我从吃丧尸开始成神！】第1季+第2季完整版【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/6246916.htm)
-- [患者需要住院，费用一时凑不齐，医生通常能帮到哪一步？](http://www.play.hengshemaoyi.cn/xiju/0196335.htm)
-- [曝王牌对王牌10新增常驻王一博](http://www.daogukj.com/txhvfhkc/)
-- [全国首例「性侵认定工伤」案劳动争议案一审判决，当事人崔丽丽获赔 137 万余元，如何看待这一判决？](http://www.movie.hkepx.cn/xiju/8357680.htm)
-- [人类统一不爽行为](http://www.movie.hkepx.cn/xiju/7453143.htm)
-- [陈吉宁被查 上海表态](http://www.daogukj.com/3829236)
-- [🐊“Bin哥，我一定会找到冠军皮肤的时间线的！”🐊](http://www.movie.hkepx.cn/movie/7849010.htm)
-- [上海市委书记陈吉宁被查](http://www.movie.hkepx.cn/movie/3810739.htm)
-- [黄仁勋回归最大受害者出现](http://www.daogukj.com/xwtczorl/)
-- [情侣包间求婚服务员推门打断要纸箱](http://www.daogukj.com/9411778)
-- [张艺谋电影 肖战杨幂](http://www.movie.hkepx.cn/xiju/1018177.htm)
-- [优秀辟谣作品高校巡展举办](http://www.movie.hkepx.cn/movie/7549482.htm)
-- [汽车明显在增多，为啥有的洗车店却干不下去了？](http://www.movie.hkepx.cn/xiju/3152832.htm)
-- [李艺彤一个奇葩我就不说什么了](http://www.movie.hkepx.cn/xiju/6452829.htm)
-- [东北的洗浴已经这么卷了吗](http://www.play.hengshemaoyi.cn/kongbu/1742289.htm)
-- [为什么大便之前体重和大便之后的体重一样？难道排泄物没有重量吗？](http://www.play.hengshemaoyi.cn/xiju/4134369.htm)
-- [谷歌 Android17 全球份额仅约 1%，安卓版本碎片化为何迟迟难解？](http://www.play.hengshemaoyi.cn/kongbu/8805735.htm)
-- [超级厄尔尼诺发威 暴雪袭击日本](http://www.movie.hkepx.cn/xiju/1005247.htm)
-- [高血压标准变了？会影响多少人](http://www.play.hengshemaoyi.cn/xiju/4070224.htm)
-- [官方回应男子坠楼轻生砸中男孩](http://www.movie.hkepx.cn/movie/8130025.htm)
-- [专家称年轻人持续出现变懒、变沉默等状态，可能并非「社恐」而是精神分裂症阴性症状，是真的吗？该怎样区分？](http://www.play.hengshemaoyi.cn/kongbu/7840266.htm)
-- [黄仁勋找到了他的接班人，oh，原来是他自己](http://www.daogukj.com/mgvzhkvp/)
-- [年产1500万根的“棍子” 卖出10亿元](http://www.play.hengshemaoyi.cn/kongbu/6692605.htm)
-- [这个草台班子的世界，比你想象的还要荒唐！](http://www.daogukj.com/0659107)
-- [中国人登月又近一步](http://www.movie.hkepx.cn/movie/2177161.htm)
-- [陈吉宁被查](http://www.movie.hkepx.cn/xiju/4629379.htm)
-- [上海就陈吉宁被查表态](http://www.play.hengshemaoyi.cn/kongbu/8609961.htm)
-- [注水长剧的“狼”来了](http://www.play.hengshemaoyi.cn/kongbu/2788736.htm)
-- [在职场，领导为什么都怕刺头员工呢？](http://www.movie.hkepx.cn/movie/9454869.htm)
-- [外交部回应“黄仁勋重回英伟达”](http://www.movie.hkepx.cn/movie/8856381.htm)
-- [中韩自贸协定谈判里，中方首次同意给予韩国电影、游戏等领域最惠国待遇，将给两国影视行业带来哪些机遇？](http://www.movie.hkepx.cn/movie/7928531.htm)
-- [女子S弯骑行与后车发生事故](http://www.play.hengshemaoyi.cn/kongbu/5748891.htm)
-- [19楼落地窗底部装无限位外凸窗](http://www.movie.hkepx.cn/movie/2928084.htm)
-- [白小纯涉及猎奇行为](http://www.play.hengshemaoyi.cn/xiju/0239872.htm)
-- [女子被情绪疗愈洗脑6年成重度抑郁](http://www.daogukj.com/7779634)
-- [你从未见过的硬核开箱视频！](http://www.play.hengshemaoyi.cn/kongbu/8270746.htm)
-- [张纪中妻子自曝领证时才得知丈夫年龄](http://www.daogukj.com/7335488)
-- [华为又有一款手机销量破百万](http://www.movie.hkepx.cn/xiju/7580266.htm)
-- [冬季洗澡越洗越痒？医生提醒](http://www.play.hengshemaoyi.cn/xiju/9936981.htm)
-- [如何评价《黑神话：悟空》主美杨奇评价GTA6是昂贵且低效的艺术品，「工业化」一词是对它的贬损?](http://www.movie.hkepx.cn/xiju/0655390.htm)
-- [蒋欣瘦成这样了](http://www.daogukj.com/tyoqvbnt/)
-- [【纪录片】蓝色星球 第三季 04 极地海洋](http://www.movie.hkepx.cn/xiju/8108717.htm)
-- [旺仔牛奶更不好卖了](http://www.play.hengshemaoyi.cn/xiju/0718869.htm)
-- [为什么老板多数是销售出身，而不是市场出身？](http://www.play.hengshemaoyi.cn/kongbu/2897114.htm)
-- [黄奕女儿说你都能当艺人为啥我不行](http://www.play.hengshemaoyi.cn/xiju/2827049.htm)
-- [鸿蒙积分兑换断货](http://www.movie.hkepx.cn/xiju/1312993.htm)
-- [华强等了宋老虎30年](http://www.daogukj.com/auvxhwep/)
-- [《蓝色星原：旅谣》涂山小玉PV | 一笺桃花](http://www.play.hengshemaoyi.cn/kongbu/9308752.htm)
-- [一张网背后的中国经济底气](http://www.daogukj.com/5938049)
-- [撞脸张雪男子年轻时被说像林俊杰](http://www.play.hengshemaoyi.cn/xiju/7231318.htm)
+- [国台办回应高市早苗最新涉台表态](http://www.play.hengshemaoyi.cn/xiju/6246916.htm)
+- [《雾山五行 · 封界大战》超前PV](http://www.play.hengshemaoyi.cn/xiju/0196335.htm)
+- [巴基斯坦航天员手指国旗向镜头敬礼](http://www.daogukj.com/txhvfhkc/)
+- [这个草台班子的世界，比你想象的还要荒唐！](http://www.movie.hkepx.cn/xiju/8357680.htm)
+- [黄仁勋复职曾带动英伟达股价单日大涨，但随后股价回吐部分涨幅，为啥黄仁勋回归没能持续提振 AI 概念股？](http://www.movie.hkepx.cn/xiju/7453143.htm)
+- [神舟二十四号在天上“画了条巨龙”](http://www.daogukj.com/3829236)
+- [黄多多贝儿先后官宣出道，星二代扎堆进圈会挤压普通新人发展机会吗？](http://www.movie.hkepx.cn/movie/7849010.htm)
+- [巴基斯坦航天界全程观看直播](http://www.movie.hkepx.cn/movie/3810739.htm)
+- [巴基斯坦人齐唱国歌见证神舟发射](http://www.daogukj.com/xwtczorl/)
+- [老师称裤子钻进老鼠捏住继续讲课](http://www.daogukj.com/9411778)
+- [巴基斯坦人齐唱国歌欢呼鼓掌](http://www.movie.hkepx.cn/xiju/1018177.htm)
+- [天霸老板谈为什么换掉白小纯](http://www.movie.hkepx.cn/movie/7549482.htm)
+- [上海就陈吉宁被查表态](http://www.movie.hkepx.cn/xiju/3152832.htm)
+- [火箭发射与朝霞同框浪漫壮美](http://www.movie.hkepx.cn/xiju/6452829.htm)
+- [荔枝的遭遇](http://www.play.hengshemaoyi.cn/kongbu/1742289.htm)
+- [地级市市长转任县委书记](http://www.play.hengshemaoyi.cn/xiju/4134369.htm)
+- [特朗普称黄仁勋是「国家瑰宝」，若在美遇不公可去中国，黄仁勋未来若来华可能有哪些选择？](http://www.play.hengshemaoyi.cn/kongbu/8805735.htm)
+- [巴基斯坦各界围观神24发射](http://www.movie.hkepx.cn/xiju/1005247.htm)
+- [马斯克说上海跳舞视频不是AI](http://www.play.hengshemaoyi.cn/xiju/4070224.htm)
+- [情侣花3300在餐厅求婚遭服务员打断](http://www.movie.hkepx.cn/movie/8130025.htm)
+- [如何看待《两京十五日》火烧太庙、射太祖画像的剧情？](http://www.play.hengshemaoyi.cn/kongbu/7840266.htm)
+- [游戏自由度太高也不是什么好事](http://www.daogukj.com/mgvzhkvp/)
+- [特朗普说的漂亮帽子可能不在中国菜上](http://www.play.hengshemaoyi.cn/kongbu/6692605.htm)
+- [推理小说作者想剧透大结局，惨遭灭口？原著缺终章，续写意外揭开真相？《大理石厅谋杀案》下](http://www.daogukj.com/0659107)
+- [照护“一老一小” 服务体系如何搭建](http://www.movie.hkepx.cn/movie/2177161.htm)
+- [特朗普对一道中国菜念念不忘](http://www.movie.hkepx.cn/xiju/4629379.htm)
+- [神舟二十四号载人飞船发射成功](http://www.play.hengshemaoyi.cn/kongbu/8609961.htm)
+- [涉案金额超150亿元 舒某某被引渡回国](http://www.play.hengshemaoyi.cn/kongbu/2788736.htm)
+- [超级厄尔尼诺发威 暴雪袭击日本](http://www.movie.hkepx.cn/movie/9454869.htm)
+- [同样是水果腌肉 为啥有人是“国宴” 有人是大型翻车现场？【主播说三农】](http://www.movie.hkepx.cn/movie/8856381.htm)
+- [神舟二十四号载人飞船发射取得圆满成功，中国空间站迎来首位外籍航天员，此次发射任务还有哪些看点？](http://www.movie.hkepx.cn/movie/7928531.htm)
+- [天霸 体坛](http://www.play.hengshemaoyi.cn/kongbu/5748891.htm)
+- [郎永淳离开央视创业后现在怎么样了](http://www.movie.hkepx.cn/movie/2928084.htm)
+- [普京称乌克兰根本不听美国的](http://www.play.hengshemaoyi.cn/xiju/0239872.htm)
+- [汤洪波母亲看完直播就去喂猪喂鸡](http://www.daogukj.com/7779634)
+- [【世界无用技能】据说这是德国最烧脑的综艺游戏😅~太抽象了🦆选鸭子选小球比谁滑远~超级策略游戏！](http://www.play.hengshemaoyi.cn/kongbu/8270746.htm)
+- [黄奕开月子会所三年盈利5万](http://www.daogukj.com/7335488)
+- [金价大幅回撤，银行和交易所都在风险提示，避险逻辑失效，黄金还能不能作为保值资产？](http://www.movie.hkepx.cn/xiju/7580266.htm)
+- [义乌老板用AI接下不敢接的单](http://www.play.hengshemaoyi.cn/xiju/9936981.htm)
+- [摩根大通发布《中国房地产，只有幸存者才能生存》研报，如何解读其中的内容？](http://www.movie.hkepx.cn/xiju/0655390.htm)
+- [伪爆剧](http://www.daogukj.com/tyoqvbnt/)
+- [《绝区零》挽昼角色展示 | 日陨之前](http://www.movie.hkepx.cn/xiju/8108717.htm)
+- [时代少年团期待马兰花开的声音](http://www.play.hengshemaoyi.cn/xiju/0718869.htm)
+- [巴基斯坦代表团为航天跨国组合壮行](http://www.play.hengshemaoyi.cn/kongbu/2897114.htm)
+- [《持械入宋》片尾出现真人面孔](http://www.play.hengshemaoyi.cn/xiju/2827049.htm)
+- [当你一直带着新手村的NPC](http://www.movie.hkepx.cn/xiju/1312993.htm)
+- [AI 短剧《丑狐》爆火后引发大量讨论，它能戳中观众的核心原因是什么？](http://www.daogukj.com/auvxhwep/)
+- [我用AI还原了传说中的HIM，100名玩家能打赢它吗？](http://www.play.hengshemaoyi.cn/kongbu/9308752.htm)
+- [神舟24发射圆满成功](http://www.daogukj.com/5938049)
+- [黄仁勋「熹妃回宫」特朗普帮了多大的忙？对特朗普会有哪些好处？](http://www.play.hengshemaoyi.cn/xiju/7231318.htm)
 
 </details>
 
 ## 原始来源
 
-- [吴昕被6岁小师傅叫奶奶当场愣住](https://www.toutiao.com/trending/7711282204948594738/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%228%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227711282204948594738%22%2C%22hot_board_impr_id%22%3A%22202611250655264507C7FB03E66447672E%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [木头姐因担忧黄仁勋离职抛售英伟达股票，错失约1070万美元潜在收益，这笔操作是否属于典型的「卖飞」？](https://www.zhihu.com/question/2108826259723477211)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 3cb5cf08faec674a4c9d -->
+<!-- content-fingerprint: bf26f6198fcddd56a97c -->
