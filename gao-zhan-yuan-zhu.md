@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 武汉大学
+# 国常会提出进一步优化中央汇金类「平准基金」功能，A 股大涨，国家队会如何救市？
 
-> 来源：微博热搜 · 排名：第 18 位 · 热度：190851 · 分类：民生新闻 · 更新：2026-11-27T08:02:15+08:00
+> 来源：知乎热榜 · 排名：第 17 位 · 热度：123 万热度 · 分类：问答 · 更新：2026-11-27T16:12:12+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“武汉大学”位列第 18 位，公开热度指标为 190851，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“国常会提出进一步优化中央汇金类「平准基金」功能，A 股大涨，国家队会如何救市？”位列第 17 位，公开热度指标为 123 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：资本市场稳定机制建设，再迎政策新信号。 11月27日，国务院常务会议围绕资本市场平稳健康发展作出部署，提出坚持目标导向和问题导向，坚持逆周期调节和改革攻坚两手抓，持续完善资本市场稳市机制。 值得关注的是，会议提出进一步优化中央汇金公司类“平准基金”功能，提供充足流动性保障，同时引导保险、企业年金、社保基金等中长期资金入市，并推动上市公司加大分红回购力度。 这意味着，政策关注点不仅在于应对市场短期波动，也在于进一步完善资本市场的长期资金供给和内生稳定机制。 中央汇金的类“平准基金”功能将如何优化？中长期资金入市会带来哪些变化？资本市场改革又将释放什么信号？
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `民生新闻`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [三人自驾可可西里失联被成功解救](xiong-you-cheng-zhu.md)
-- [网红甲亢哥百米跑出 10.35 秒，前 15 米加速度比博尔特还快，这一成绩含金量如何？](yun-chou-wei-wo.md)
-- [《绝区零》挽昼角色展示 | 日陨之前](shen-mou-yuan-lv.md)
-- [赵松源回应多方外媒关注](ming-cha-qiu-hao.md)
+- [真跳60分钟😡绝望算不算时间啊？ 超高校级的绝望舞步！【bilibilionly同人扶持计划】](xiong-you-cheng-zhu.md)
+- [史上最强厄尔尼诺峰值期来了](yun-chou-wei-wo.md)
+- [遭同学父亲猥亵女孩与同学彻底断交](shen-mou-yuan-lv.md)
+- [运-9飞抵珠海](ming-cha-qiu-hao.md)
 
 ## 站内推荐
 
-- [一组数据看世界屋脊上的中国速度](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [如何评价极客湾发布的手机影像大横评视频？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [走错果园摘走数百斤蜜桔仅留下10元](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [两子非亲生女方回应被指出轨丈夫堂哥](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [英伟达东南亚停供或影响评级](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [延时看神舟二十四号与绚烂朝霞同框](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
+- [为什么植物大战僵尸现在还受欢迎，而愤怒的小鸟却很少有人玩了？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [三只松鼠就「员工宿舍环境脏乱差」致歉，称立即进行转移安置，怎样看待这一回应？员工权益该如何保障？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [中国标准化研究院发布十大最宜居城市，北京、济南、青岛排前三，怎样看待这份榜单？你心中的宜居城市是哪些？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [怎么看SemiAnalysis说，存储芯片吃掉了中国Q3 6.9%的GDP增量，如果降价相当于退税？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [宝宝等投喂勺子靠近瞬间嘴巴张最大](http://www.movie.hkepx.cn/movie/7491355.htm)
-- [金价下跌消费者购金热情高涨](http://www.movie.hkepx.cn/movie/6352008.htm)
-- [刘亦菲黑色短裙造型](http://www.play.hengshemaoyi.cn/kongbu/7644353.htm)
-- [向太称向华强女儿翻脸不认人](http://www.daogukj.com/ywhitats/)
-- [一期长达40年的vlog...](http://www.movie.hkepx.cn/movie/3484420.htm)
-- [沈阳最帅保洁大叔宣布辞职，如何评价他的选择？他接下来可能会去干什么？](http://www.movie.hkepx.cn/movie/9834457.htm)
-- [邝兆镭万项赵松源3打5反击破门](http://www.daogukj.com/7853746)
-- [斯坦福学者与 AI 提出引力理论与量子力学统一的新理论，如何理解该事件？](http://www.daogukj.com/fwtacuny/)
-- [大肥鱼你真的是串麻了](http://www.play.hengshemaoyi.cn/kongbu/1303344.htm)
-- [武大调查谈话238人次](http://www.movie.hkepx.cn/movie/9793548.htm)
-- [小学校长常年带六年级数学课](http://www.movie.hkepx.cn/xiju/5225700.htm)
-- [【纪录片】人生一串 第四季 04 边城浪子](http://www.play.hengshemaoyi.cn/xiju/1079547.htm)
-- [卫健委：不得强制受检者接受体检项目](http://www.daogukj.com/cppelcpa/)
-- [U17国足8比0斐济](http://www.play.hengshemaoyi.cn/xiju/9936698.htm)
-- [上海百亿养老集资骗局股东潜逃海外](http://www.play.hengshemaoyi.cn/xiju/3875070.htm)
-- [中国男篮曾98比10胜沙特](http://www.play.hengshemaoyi.cn/xiju/9037846.htm)
-- [中国男篮80比82不敌沙特](http://www.play.hengshemaoyi.cn/xiju/5500139.htm)
-- [他逃，他追，他插翅难飞？！](http://www.movie.hkepx.cn/movie/3660898.htm)
-- [斗鱼及陈少杰被执行超 1.9 亿，从巅峰到接连踩雷，斗鱼这些年衰落的核心原因是什么？](http://www.play.hengshemaoyi.cn/xiju/4097066.htm)
-- [高市早苗获颁最佳着装奖遭群嘲](http://www.daogukj.com/3797954)
-- [天津.赵大姑 厨子探店¥350](http://www.movie.hkepx.cn/movie/1081634.htm)
-- [可口可乐为何跟生产日期“杠上了”](http://www.play.hengshemaoyi.cn/kongbu/6230935.htm)
-- [东北人好像比别的地方更痴迷于始祖鸟、可隆、迪桑特这些高价低性价比运动服饰，为什么会这样？](http://www.movie.hkepx.cn/xiju/6125548.htm)
-- [厉娜远远没有麦琳承受的多](http://www.play.hengshemaoyi.cn/xiju/0444256.htm)
-- [列车字头12个字母对应不同时速](http://www.play.hengshemaoyi.cn/kongbu/3739402.htm)
-- [三只松鼠致歉](http://www.daogukj.com/4846112)
-- [三只松鼠致歉声明](http://www.play.hengshemaoyi.cn/kongbu/6216021.htm)
-- [东北老丈人搭大炕全村围观](http://www.play.hengshemaoyi.cn/xiju/2439055.htm)
-- [《我怎么又穿越了》](http://www.movie.hkepx.cn/xiju/9305926.htm)
-- [马斯克为何要让美国儿童成SpaceX股东](http://www.daogukj.com/3174256)
-- [男篮世预赛，中国男篮80-82 不敌沙特阿拉伯男篮，出线形势堪忧，如何评价本场比赛？](http://www.movie.hkepx.cn/xiju/7583013.htm)
-- [周琦肘击对手被驱逐](http://www.daogukj.com/8189876)
-- [无果而终：COP31气候谈判失败，各国阴阳怪气剑拔弩张](http://www.movie.hkepx.cn/xiju/6446029.htm)
-- [郭士强 换人](http://www.movie.hkepx.cn/movie/5734451.htm)
-- [英伟达东南亚停供或影响评级](http://www.movie.hkepx.cn/movie/8002281.htm)
-- [赵松源回应多方外媒关注](http://www.daogukj.com/7860194)
-- [吓哭了！华山长空栈道是人爬的？和有山挑战天下第一奇险](http://www.movie.hkepx.cn/movie/8408075.htm)
-- [我把Steam复刻搬进了B站游玩Toy【点击即玩】ToyToy【B站AI创造公开赛】](http://www.play.hengshemaoyi.cn/xiju/8943117.htm)
-- [网友爆料小米YU7车型前视摄像头集中故障，行车录像无法录制，前向防碰撞失效，是批次质量问题吗？](http://www.play.hengshemaoyi.cn/xiju/6486531.htm)
-- [【镇魂街 第五季】你们带来的这片江山，我就先收下了【PV】](http://www.play.hengshemaoyi.cn/kongbu/5235529.htm)
-- [长得帅就要被网爆么?](http://www.movie.hkepx.cn/movie/0595206.htm)
-- [湖北一网民微信群内造谣被处罚](http://www.movie.hkepx.cn/movie/8425375.htm)
-- [向太自曝弟弟妹妹相继烧炭离世](http://www.daogukj.com/4621288)
-- [怀孕本质是你一个人的事](http://www.movie.hkepx.cn/movie/1333265.htm)
-- [153分钟超长大合集！【末日来临，我从吃丧尸开始成神！】第1季+第2季完整版【AI全民制作人】](http://www.daogukj.com/4564701)
-- [印度豪华婚宴变“抢饭现场”](http://www.daogukj.com/zedewqov/)
-- [医生提醒不要长期大量补充维生素D](http://www.daogukj.com/flvtssow/)
-- [国字号男足时隔21年世界杯出线](http://www.movie.hkepx.cn/movie/2764293.htm)
-- [网红甲亢哥百米跑出 10.35 秒，前 15 米加速度比博尔特还快，这一成绩含金量如何？](http://www.movie.hkepx.cn/xiju/9847609.htm)
-- [两子非亲生女方回应被指出轨丈夫堂哥](http://www.play.hengshemaoyi.cn/kongbu/4804429.htm)
+- [许飞这段反应可以进北影教材](http://www.movie.hkepx.cn/movie/7491355.htm)
+- [A股大爆发](http://www.movie.hkepx.cn/movie/6352008.htm)
+- [失去了文王才知道文王的重要性](http://www.play.hengshemaoyi.cn/kongbu/7644353.htm)
+- [遭遇超大黑眉锦蛇 深秋的浙江到底还有没有蛇？](http://www.daogukj.com/ywhitats/)
+- [杨蓉特发性震颤无法根治](http://www.movie.hkepx.cn/movie/3484420.htm)
+- [今起电视开机广告没了](http://www.movie.hkepx.cn/movie/9834457.htm)
+- [可乐为啥不印生产日期了？！建议转发到相亲相爱一家人群【主播说三农】](http://www.daogukj.com/7853746)
+- [魏建军感慨车企竞争激烈，董明珠提出「家里冲进老鼠把它打掉就好」，这套竞争思路放在现在的汽车行业适合吗？](http://www.daogukj.com/fwtacuny/)
+- [国常会首次一个月内两提资本市场](http://www.play.hengshemaoyi.cn/kongbu/1303344.htm)
+- [看懂前：啊？ 看懂后：啊啊啊！！！](http://www.movie.hkepx.cn/movie/9793548.htm)
+- [网传「纳米海绵不宜用来洗碗，每磨损一克释放 650 万个微塑料」，是这样吗？用它洗碗安全吗？](http://www.movie.hkepx.cn/xiju/5225700.htm)
+- [【独家】《罗小黑战记》第45话 美好的暑假如此短暂【10月国创】](http://www.play.hengshemaoyi.cn/xiju/1079547.htm)
+- [媒体曝海康威视取消大小周，严格执行八小时工作制，有员工称每月少近三千元，公司的工时调整为何员工不买账？](http://www.daogukj.com/cppelcpa/)
+- [女友去世后男子失联遗体被发现](http://www.play.hengshemaoyi.cn/xiju/9936698.htm)
+- [男子在女友去世后失联 遗体被发现](http://www.play.hengshemaoyi.cn/xiju/3875070.htm)
+- [老鼠钻女老师裤子视频不能一删了之](http://www.play.hengshemaoyi.cn/xiju/9037846.htm)
+- [三只松鼠就员工宿舍脏乱差致歉](http://www.play.hengshemaoyi.cn/xiju/5500139.htm)
+- [沈阳最帅保洁大叔宣布辞职，如何评价他的选择？他接下来可能会去干什么？](http://www.movie.hkepx.cn/movie/3660898.htm)
+- [马天宇 我都40了肯定有过亲密关系啊](http://www.play.hengshemaoyi.cn/xiju/4097066.htm)
+- [马天宇主动加张萌微信](http://www.daogukj.com/3797954)
+- [张颂文感叹26年没来过新加坡了](http://www.movie.hkepx.cn/movie/1081634.htm)
+- [人民日报：别把“豆包”当医生](http://www.play.hengshemaoyi.cn/kongbu/6230935.htm)
+- [董明珠：做制造业不能只想着盈利](http://www.movie.hkepx.cn/xiju/6125548.htm)
+- [他！在突骑为王的时代，率南国军团杀至霸上！咫尺长安！](http://www.play.hengshemaoyi.cn/xiju/0444256.htm)
+- [厉娜哭完下山意外发现兜里有一百块](http://www.play.hengshemaoyi.cn/kongbu/3739402.htm)
+- [顺直大改造S2EP2——顺直男和通讯录的恩怨情仇](http://www.daogukj.com/4846112)
+- [A股史诗级暴涨原因](http://www.play.hengshemaoyi.cn/kongbu/6216021.htm)
+- [孙千跟助理互动外网爆火](http://www.play.hengshemaoyi.cn/xiju/2439055.htm)
+- [周琦肘击对手被驱逐](http://www.movie.hkepx.cn/xiju/9305926.htm)
+- [大疆 竞业协议](http://www.daogukj.com/3174256)
+- [奥迪Q9首发亮相](http://www.movie.hkepx.cn/xiju/7583013.htm)
+- [胡兵：瞿颖的拒绝让人觉得很可爱](http://www.daogukj.com/8189876)
+- [宠老头早午餐vlog有点高能量了](http://www.movie.hkepx.cn/xiju/6446029.htm)
+- [乙肝功能性治愈有望迎来新进展](http://www.movie.hkepx.cn/movie/5734451.htm)
+- [怎么看SemiAnalysis说，存储芯片吃掉了中国Q3 6.9%的GDP增量，如果降价相当于退税？](http://www.movie.hkepx.cn/movie/8002281.htm)
+- [运-9飞抵珠海](http://www.daogukj.com/7860194)
+- [如何评价DeepSeek网页和App端开始展示消耗额度？](http://www.movie.hkepx.cn/movie/8408075.htm)
+- [清谣护苗 护航成长](http://www.play.hengshemaoyi.cn/xiju/8943117.htm)
+- [A股迎史诗级暴涨，沪深两市成交额重回2万亿，创业板指放量大涨超11%，超400只个股涨停，发生了什么？](http://www.play.hengshemaoyi.cn/xiju/6486531.htm)
+- [创业板指放量大涨超11%](http://www.play.hengshemaoyi.cn/kongbu/5235529.htm)
+- [知乎与DeepSeek开展内容合作，AI回答可溯源引用知乎内容并跳转原文，这将带来哪些体验变化？](http://www.movie.hkepx.cn/movie/0595206.htm)
+- [能拍出《大明王朝 1566》的导演为什么会在《两京十五日》翻车了？](http://www.movie.hkepx.cn/movie/8425375.htm)
+- [208万！国产豪车捅破价格“天花板”](http://www.daogukj.com/4621288)
+- [【欢迎来龙餐馆】起锅开灶，好好吃饭](http://www.movie.hkepx.cn/movie/1333265.htm)
+- [原来鹅毛大雪是真的](http://www.daogukj.com/4564701)
+- [如何看待高校校园 App 泛滥现象？智慧校园为何反而成了学生的手机负担？](http://www.daogukj.com/zedewqov/)
+- [如何看待白俄罗斯总统卢卡申科在接受采访时表示「如果追溯历史，整个俄罗斯都应该归蒙古所有」？](http://www.daogukj.com/flvtssow/)
+- [爆发！A股迎来大反攻](http://www.movie.hkepx.cn/movie/2764293.htm)
+- [史上最强厄尔尼诺峰值期来了](http://www.movie.hkepx.cn/xiju/9847609.htm)
+- [中国标准化研究院发布十大最宜居城市，北京、济南、青岛排前三，怎样看待这份榜单？你心中的宜居城市是哪些？](http://www.play.hengshemaoyi.cn/kongbu/4804429.htm)
 
 </details>
 
 ## 原始来源
 
-- [武汉大学](https://s.weibo.com/weibo?q=%E6%AD%A6%E6%B1%89%E5%A4%A7%E5%AD%A6)
+- [国常会提出进一步优化中央汇金类「平准基金」功能，A 股大涨，国家队会如何救市？](https://www.zhihu.com/question/2109651390255429240)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 42306867f6df31e65d4c -->
+<!-- content-fingerprint: 68588cfecd0d485df834 -->

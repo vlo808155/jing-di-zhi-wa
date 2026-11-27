@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 吴 众
+# 文吉儿不止邀请过王子璇
 
-> 来源：哔哩哔哩热门 · 排名：第 19 位 · 热度：1949516 · 分类：喵星人 · 更新：2026-11-27T08:02:15+08:00
+> 来源：微博热搜 · 排名：第 19 位 · 热度：204553 · 分类：综艺 · 更新：2026-11-27T16:12:12+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“吴 众”位列第 19 位，公开热度指标为 1949516，榜单分类为“喵星人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“文吉儿不止邀请过王子璇”位列第 19 位，公开热度指标为 204553，榜单分类为“综艺”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：-
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `喵星人`
+`微博热搜` `实时热搜` `热点资讯` `综艺`
 
 ## 相关热点
 
-- [郭士强 换人](gui-fu-shen-gong.md)
-- [英伟达东南亚停供或影响评级](jin-shang-tian-hua.md)
-- [立陶宛敦促台当局认错](hua-long-dian-jing.md)
-- [如何看待普京在深圳下榻期间喜欢上酒店粤菜，离店前还特意打包带上飞机？](miao-bi-sheng-hua.md)
+- [乙肝功能性治愈有望迎来新进展](gui-fu-shen-gong.md)
+- [怎么看SemiAnalysis说，存储芯片吃掉了中国Q3 6.9%的GDP增量，如果降价相当于退税？](jin-shang-tian-hua.md)
+- [考研政治一页纸（3小时速成选择40+）](hua-long-dian-jing.md)
+- [冰箱里的肉千万别再泡水化冻了](miao-bi-sheng-hua.md)
 
 ## 站内推荐
 
-- [国字号男足时隔21年世界杯出线](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [可口可乐为何跟生产日期“杠上了”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [马斯克为何要让美国儿童成SpaceX股东](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [如何看待网警通报有人针对华为、鸿蒙、问界发布数百条不实评论，捏造“千亿营销”虚假信息被行政处罚？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [《后会友期》让许飞厉娜对质，却始终没厘清消息传递的关键环节，节目为何回避传话人的身份？传话人可能是谁？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [爆发！A股迎来大反攻](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [人民日报：别把“豆包”当医生](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [大疆 竞业协议](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [梅尼耶妻子否认合照女明星不贴胸贴](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [胡兵和前任分手后抢狗](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [肖战解安全带下车这段](http://www.movie.hkepx.cn/movie/3926125.htm)
-- [天津.赵大姑 厨子探店¥350](http://www.daogukj.com/jbrqqhbh/)
-- [业主搜索发现有 WiFi 名诅咒自家 8 岁孩子，怀疑是楼下邻居所为，该如何合法维权？](http://www.daogukj.com/6283106)
-- [吓哭了！华山长空栈道是人爬的？和有山挑战天下第一奇险](http://www.play.hengshemaoyi.cn/xiju/3501535.htm)
-- [无果而终：COP31气候谈判失败，各国阴阳怪气剑拔弩张](http://www.daogukj.com/tfcvjhpk/)
-- [【纪录片】人生一串 第四季 04 边城浪子](http://www.daogukj.com/4841868)
-- [中纪委连打三“虎”](http://www.play.hengshemaoyi.cn/kongbu/6429820.htm)
-- [从5到24看载人航天之路](http://www.daogukj.com/jehuxdgs/)
-- [邝兆镭万项赵松源3打5反击破门](http://www.movie.hkepx.cn/xiju/1384580.htm)
-- [中国男篮曾98比10胜沙特](http://www.daogukj.com/qyeqjnqv/)
-- [厉娜远远没有麦琳承受的多](http://www.movie.hkepx.cn/movie/7212048.htm)
-- [印度豪华婚宴变“抢饭现场”](http://www.movie.hkepx.cn/xiju/5780029.htm)
-- [新郎发言落泪 新娘大喊不要哭冷死了](http://www.daogukj.com/efezhgld/)
-- [三只松鼠致歉](http://www.play.hengshemaoyi.cn/kongbu/8328027.htm)
-- [医生提醒不要长期大量补充维生素D](http://www.movie.hkepx.cn/xiju/5360773.htm)
-- [走错果园摘走数百斤蜜桔仅留下10元](http://www.movie.hkepx.cn/movie/9566975.htm)
-- [U17国足8-0斐济](http://www.daogukj.com/8649041)
-- [杜锋：没想到中国男篮在悬崖边上](http://www.daogukj.com/zvuykujr/)
-- [《绝区零》挽昼角色展示 | 日陨之前](http://www.daogukj.com/smataala/)
-- [赵松源回应多方外媒关注](http://www.daogukj.com/mzqlfhhq/)
-- [董明珠回应不招留学生争议](http://www.play.hengshemaoyi.cn/kongbu/8184754.htm)
-- [郭士强 换人](http://www.movie.hkepx.cn/movie/8042143.htm)
-- [《不小心捡了只猫咪》](http://www.play.hengshemaoyi.cn/xiju/7145463.htm)
-- [罕见回暖！这些地方有望穿回短袖](http://www.play.hengshemaoyi.cn/kongbu/4548535.htm)
-- [万项主罚点球被斐济U17门将扑出](http://www.daogukj.com/0313251)
-- [我把Steam复刻搬进了B站游玩Toy【点击即玩】ToyToy【B站AI创造公开赛】](http://www.play.hengshemaoyi.cn/kongbu/0820222.htm)
-- [东北人好像比别的地方更痴迷于始祖鸟、可隆、迪桑特这些高价低性价比运动服饰，为什么会这样？](http://www.daogukj.com/btolggbq/)
-- [英伟达东南亚停供或影响评级](http://www.play.hengshemaoyi.cn/xiju/2703241.htm)
-- [长得帅就要被网爆么?](http://www.play.hengshemaoyi.cn/xiju/1475778.htm)
-- [重庆小升初有内部选拔？不实](http://www.play.hengshemaoyi.cn/xiju/4475779.htm)
-- [高中生武术比赛滑倒尝试鲤鱼打挺失败仍获亚军，官方称仅 3 人参赛无违规，该结果是否合理？](http://www.play.hengshemaoyi.cn/xiju/3969235.htm)
-- [一期长达40年的vlog...](http://www.play.hengshemaoyi.cn/kongbu/1797022.htm)
-- [斗鱼及陈少杰被执行超 1.9 亿，从巅峰到接连踩雷，斗鱼这些年衰落的核心原因是什么？](http://www.movie.hkepx.cn/xiju/9886322.htm)
-- [上海百亿养老集资骗局股东潜逃海外](http://www.play.hengshemaoyi.cn/xiju/1914744.htm)
-- [中国男篮80比82不敌沙特](http://www.movie.hkepx.cn/movie/2301491.htm)
-- [东北老丈人搭大炕全村围观](http://www.play.hengshemaoyi.cn/xiju/2353249.htm)
-- [153分钟超长大合集！【末日来临，我从吃丧尸开始成神！】第1季+第2季完整版【AI全民制作人】](http://www.daogukj.com/fownzino/)
-- [三人自驾可可西里失联被成功解救](http://www.play.hengshemaoyi.cn/xiju/3652466.htm)
-- [《后会友期》让许飞厉娜对质，却始终没厘清消息传递的关键环节，节目为何回避传话人的身份？传话人可能是谁？](http://www.daogukj.com/7447842)
-- [国字号男足时隔21年世界杯出线](http://www.daogukj.com/kzpjmnze/)
-- [两子非亲生女方回应被指出轨丈夫堂哥](http://www.play.hengshemaoyi.cn/kongbu/4160936.htm)
-- [日媒曝高市早苗深圳遭“冷遇”内幕](http://www.daogukj.com/5391271)
-- [真跳60分钟😡绝望算不算时间啊？ 超高校级的绝望舞步！【bilibilionly同人扶持计划】](http://www.play.hengshemaoyi.cn/xiju/1037193.htm)
-- [张靓颖演唱会舞台换装炸场](http://www.daogukj.com/4166842)
-- [网红甲亢哥百米跑出 10.35 秒，前 15 米加速度比博尔特还快，这一成绩含金量如何？](http://www.movie.hkepx.cn/xiju/6638941.htm)
-- [如何评价极客湾发布的手机影像大横评视频？](http://www.play.hengshemaoyi.cn/kongbu/4151588.htm)
-- [曝梁文锋身家攀升至 550 亿美元，成全球最富 AI 模型创始人，是真的吗？意味着什么？](http://www.daogukj.com/jguwcjlw/)
-- [从世界经济版图看中国经济之韧](http://www.movie.hkepx.cn/xiju/6322184.htm)
-- [三只松鼠致歉声明](http://www.play.hengshemaoyi.cn/xiju/2530472.htm)
-- [如何看待北大、清华在密云、通州新建校区而不落户雄安？](http://www.daogukj.com/5202971)
+- [长得帅就要被网爆么?](http://www.movie.hkepx.cn/movie/3926125.htm)
+- [张颂文感叹26年没来过新加坡了](http://www.daogukj.com/jbrqqhbh/)
+- [赵昭仪曝被导演开黄腔](http://www.daogukj.com/6283106)
+- [如何评价DeepSeek网页和App端开始展示消耗额度？](http://www.play.hengshemaoyi.cn/xiju/3501535.htm)
+- [宠老头早午餐vlog有点高能量了](http://www.daogukj.com/tfcvjhpk/)
+- [【独家】《罗小黑战记》第45话 美好的暑假如此短暂【10月国创】](http://www.daogukj.com/4841868)
+- [为女友办完后事身亡小伙母亲发声](http://www.play.hengshemaoyi.cn/kongbu/6429820.htm)
+- [高交会尽显中国科技创新活力](http://www.daogukj.com/jehuxdgs/)
+- [可乐为啥不印生产日期了？！建议转发到相亲相爱一家人群【主播说三农】](http://www.movie.hkepx.cn/xiju/1384580.htm)
+- [老鼠钻女老师裤子视频不能一删了之](http://www.daogukj.com/qyeqjnqv/)
+- [他！在突骑为王的时代，率南国军团杀至霸上！咫尺长安！](http://www.movie.hkepx.cn/movie/7212048.htm)
+- [如何看待高校校园 App 泛滥现象？智慧校园为何反而成了学生的手机负担？](http://www.movie.hkepx.cn/xiju/5780029.htm)
+- [国常会：加力发挥“国家队”稳市作用](http://www.daogukj.com/efezhgld/)
+- [顺直大改造S2EP2——顺直男和通讯录的恩怨情仇](http://www.play.hengshemaoyi.cn/kongbu/8328027.htm)
+- [如何看待白俄罗斯总统卢卡申科在接受采访时表示「如果追溯历史，整个俄罗斯都应该归蒙古所有」？](http://www.movie.hkepx.cn/xiju/5360773.htm)
+- [三只松鼠就「员工宿舍环境脏乱差」致歉，称立即进行转移安置，怎样看待这一回应？员工权益该如何保障？](http://www.movie.hkepx.cn/movie/9566975.htm)
+- [《明日方舟》SideStory「星星不愿入睡」活动宣传PV](http://www.daogukj.com/8649041)
+- [国常会重磅定调 会议发布时点罕见](http://www.daogukj.com/zvuykujr/)
+- [遭同学父亲猥亵女孩与同学彻底断交](http://www.daogukj.com/smataala/)
+- [运-9飞抵珠海](http://www.daogukj.com/mzqlfhhq/)
+- [一诺 孩子们我被封杀了](http://www.play.hengshemaoyi.cn/kongbu/8184754.htm)
+- [乙肝功能性治愈有望迎来新进展](http://www.movie.hkepx.cn/movie/8042143.htm)
+- [「2027明日方舟：终末地终末回响专场演出-镌宇留声」先导预告公开](http://www.play.hengshemaoyi.cn/xiju/7145463.htm)
+- [大回暖来了 暖到发紫](http://www.play.hengshemaoyi.cn/kongbu/4548535.htm)
+- [许多年轻人为何开始“重新养父母”](http://www.daogukj.com/0313251)
+- [清谣护苗 护航成长](http://www.play.hengshemaoyi.cn/kongbu/0820222.htm)
+- [董明珠：做制造业不能只想着盈利](http://www.daogukj.com/btolggbq/)
+- [怎么看SemiAnalysis说，存储芯片吃掉了中国Q3 6.9%的GDP增量，如果降价相当于退税？](http://www.play.hengshemaoyi.cn/xiju/2703241.htm)
+- [知乎与DeepSeek开展内容合作，AI回答可溯源引用知乎内容并跳转原文，这将带来哪些体验变化？](http://www.play.hengshemaoyi.cn/xiju/1475778.htm)
+- [北京平谷开展清谣护苗进校园活动](http://www.play.hengshemaoyi.cn/xiju/4475779.htm)
+- [东北人好像比别的地方更痴迷于始祖鸟、可隆、迪桑特这些高价低性价比运动服饰，为什么会这样？](http://www.play.hengshemaoyi.cn/xiju/3969235.htm)
+- [杨蓉特发性震颤无法根治](http://www.play.hengshemaoyi.cn/kongbu/1797022.htm)
+- [马天宇 我都40了肯定有过亲密关系啊](http://www.movie.hkepx.cn/xiju/9886322.htm)
+- [男子在女友去世后失联 遗体被发现](http://www.play.hengshemaoyi.cn/xiju/1914744.htm)
+- [三只松鼠就员工宿舍脏乱差致歉](http://www.movie.hkepx.cn/movie/2301491.htm)
+- [孙千跟助理互动外网爆火](http://www.play.hengshemaoyi.cn/xiju/2353249.htm)
+- [原来鹅毛大雪是真的](http://www.daogukj.com/fownzino/)
+- [真跳60分钟😡绝望算不算时间啊？ 超高校级的绝望舞步！【bilibilionly同人扶持计划】](http://www.play.hengshemaoyi.cn/xiju/3652466.htm)
+- [胡兵和前任分手后抢狗](http://www.daogukj.com/7447842)
+- [爆发！A股迎来大反攻](http://www.daogukj.com/kzpjmnze/)
+- [中国标准化研究院发布十大最宜居城市，北京、济南、青岛排前三，怎样看待这份榜单？你心中的宜居城市是哪些？](http://www.play.hengshemaoyi.cn/kongbu/4160936.htm)
+- [郭士强第四节为什么要换下状态尚佳的李弘权，最后一攻为什么要上赵继伟三后卫，胡明轩来一个干拔三分？](http://www.daogukj.com/5391271)
+- [北大教师右眼被注入工业气体获赔 388 万，顶格惩罚性赔偿的依据是什么？](http://www.play.hengshemaoyi.cn/xiju/1037193.htm)
+- [妻子出轨生子丈夫原谅后共同抚养](http://www.daogukj.com/4166842)
+- [史上最强厄尔尼诺峰值期来了](http://www.movie.hkepx.cn/xiju/6638941.htm)
+- [为什么植物大战僵尸现在还受欢迎，而愤怒的小鸟却很少有人玩了？](http://www.play.hengshemaoyi.cn/kongbu/4151588.htm)
+- [助理给孙千送外卖的视频外网火了](http://www.daogukj.com/jguwcjlw/)
+- [新一代通信网承载“万物智联”](http://www.movie.hkepx.cn/xiju/6322184.htm)
+- [A股史诗级暴涨原因](http://www.play.hengshemaoyi.cn/xiju/2530472.htm)
+- [国常会重磅定调 A股指数飙升](http://www.daogukj.com/5202971)
 
 </details>
 
 ## 原始来源
 
-- [吴 众](https://b23.tv/BV1xvykzsEPv)
+- [文吉儿不止邀请过王子璇](https://s.weibo.com/weibo?q=%E6%96%87%E5%90%89%E5%84%BF%E4%B8%8D%E6%AD%A2%E9%82%80%E8%AF%B7%E8%BF%87%E7%8E%8B%E5%AD%90%E7%92%87)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: eee5f03d0cffe87b2d07 -->
+<!-- content-fingerprint: e090740ed8d7ff9b6cb9 -->
