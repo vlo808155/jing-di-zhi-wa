@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 女子怀疑大爷偷拍 民警查手机无证据
+# 超40岁被拒入住酒店 一刀切合法吗
 
-> 来源：今日头条热榜 · 排名：第 19 位 · 热度：1662706 · 更新：2026-11-28T09:28:10+08:00
+> 来源：百度热搜 · 排名：第 18 位 · 热度：6090835 · 分类：热议 · 更新：2026-11-28T17:16:35+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“女子怀疑大爷偷拍 民警查手机无证据”位列第 19 位，公开热度指标为 1662706。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“超40岁被拒入住酒店 一刀切合法吗”位列第 18 位，公开热度指标为 6090835，榜单分类为“热议”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：近日，浙江嘉兴一酒店规定床位房仅限18至40岁客人，称床铺太高怕发生危险。律师解读称，该规定无法律与监管依据，即便商家履行提示义务，仍涉嫌基于年龄的消费歧视，侵害消费者公平交易权。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`百度热搜` `实时热搜` `热点资讯` `热议`
 
 ## 相关热点
 
-- [快手第三季度营收 316 亿元，净利润 7.9 亿元，日活 4.17 亿，如何解读这份财报？](bie-ju-jiang-xin.md)
-- [宠老头早午餐vlog有点高能量了](qiao-duo-tian-gong.md)
-- [最强厄尔尼诺来了！需防范极端天气](gui-fu-shen-gong.md)
-- [冯骥长文谈AI时代人怎么办](jin-shang-tian-hua.md)
+- [曝辛巴赔蛋蛋3个多亿](bie-ju-jiang-xin.md)
+- [医生推荐5分钟“耗糖操”](qiao-duo-tian-gong.md)
+- [U17 世界杯 32 强对阵出炉，中国 U17 vs 塞尔维亚，晋级可能性有多大？](gui-fu-shen-gong.md)
+- [灭霸这个臭校尉，打个三国杀口糊一整把](jin-shang-tian-hua.md)
 
 ## 站内推荐
 
-- [模特七海发博表示 「我的脸已经成 AI 短剧里的赛博恶役」，AI 融脸为什么维权难？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [孙女200斤男友上门被爷爷奶奶量血压](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [陈奕迅找梁咏琪要签名](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [国家队抄底力度已超“924”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [69岁葛优带儿子逛商场](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [【独家】《凡人修仙传之慕兰之战》第26集【总第202集】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [赵丽颖现身民政局陪好友领证](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [董明珠直播训员工引争议](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [冬天皮肤痒 可能这件事做错了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [男子因女友出轨患抑郁症追砍第三者](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [民航监管部门正研究国内航司整合计划，该方案落地会面临哪些现实难点？](http://www.daogukj.com/7203067)
-- [女子入住上海四千一晚酒店，孩子不慎碰坏一摆件被索赔三千元，远高于采购价，这一索赔标准合理吗？](http://www.daogukj.com/gowgjlqg/)
-- [谁是赛伊德？！！](http://www.daogukj.com/7329084)
-- [高血压标准更新](http://www.daogukj.com/tafakdgo/)
-- [媒体：董明珠回应争议言论褪去尖锐](http://www.play.hengshemaoyi.cn/kongbu/6822731.htm)
-- [69岁葛优带儿子逛商场](http://www.movie.hkepx.cn/movie/9763774.htm)
-- [12月起这些新规将影响你我生活](http://www.movie.hkepx.cn/movie/5499528.htm)
-- [工人爆料三只松鼠临时用工乱象](http://www.movie.hkepx.cn/xiju/2091376.htm)
-- [媒体：跳槽不是“偷人”](http://www.movie.hkepx.cn/movie/3384485.htm)
-- [我讨厌我的子宫、我的月经和我的胸，讨厌一切女性特质，但没钱做手术，只能靠cosplay来填补内心](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
-- [“请所有股民 重视A股今天的大涨”](http://www.daogukj.com/0541072)
-- [千万不要用纸巾包贵重物品](http://www.daogukj.com/jyvgfrcg/)
-- [“新版九年级教材多处错误”不实](http://www.daogukj.com/3891590)
-- [宠老头早午餐vlog有点高能量了](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
-- [宋慧乔和孔刘的新剧来了](http://www.movie.hkepx.cn/xiju/8805715.htm)
-- [快手第三季度营收 316 亿元，净利润 7.9 亿元，日活 4.17 亿，如何解读这份财报？](http://www.daogukj.com/5398424)
-- [外网评价肖战研讨会背头造型](http://www.movie.hkepx.cn/xiju/6277332.htm)
-- [北大教师右眼被注入工业气体获赔 388 万，顶格惩罚性赔偿的依据是什么？](http://www.movie.hkepx.cn/xiju/7873556.htm)
-- [董明珠现场发火魏建军解围](http://www.play.hengshemaoyi.cn/xiju/9370456.htm)
-- [孔子其实根本不姓孔](http://www.daogukj.com/nzepuewx/)
-- [第一次听说吃雪蛤直接抵制](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
-- [“天才少女”傅园慧悄悄上岸了](http://www.movie.hkepx.cn/movie/0752879.htm)
-- [208万！国产豪车捅破价格“天花板”](http://www.movie.hkepx.cn/xiju/3642771.htm)
-- [灭霸这个臭校尉，打个三国杀口糊一整把](http://www.daogukj.com/5617601)
-- [李香凝将用AIGC复活李小龙](http://www.daogukj.com/8998145)
-- [金属市场迎来强势反攻](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
-- [孙女200斤男友上门被爷爷奶奶量血压](http://www.movie.hkepx.cn/xiju/8984384.htm)
-- [国产显卡过几年是不是也要起来了？](http://www.movie.hkepx.cn/xiju/1180114.htm)
-- [《下一个是谁》第七季（6）](http://www.movie.hkepx.cn/movie/0847312.htm)
-- [为什么计算机现在已经不如土木了？](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
-- [能拍出《大明王朝 1566》的导演为什么会在《两京十五日》翻车了？](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
-- [又一家车企宣布停产燃油车](http://www.movie.hkepx.cn/xiju/6763243.htm)
-- [国常会的通稿首次使用了「国家队」、类「平准基金」这些提法，释放了哪些信号？](http://www.movie.hkepx.cn/xiju/9186695.htm)
-- [U17世界杯亚洲9队出战7队晋级](http://www.daogukj.com/pxvooxke/)
-- [为什么那么多人觉得杰克应该去blg而不是elk？](http://www.movie.hkepx.cn/xiju/1116357.htm)
-- [陆翊称拒绝调解文吉儿王子璇](http://www.movie.hkepx.cn/xiju/0923150.htm)
-- [国家队抄底力度已超“924”](http://www.daogukj.com/wwpryopq/)
-- [海康威视辟谣网传工作新规，称反对以在岗时间替代价值贡献的无效「内卷」，对此你怎么看？](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
-- [【欢迎来龙餐馆】起锅开灶，好好吃饭](http://www.movie.hkepx.cn/xiju/6581777.htm)
-- [央行新规 取消贷款罚息利率上下限](http://www.daogukj.com/ydetypas/)
-- [媒体：中国AI发展不是少数人的盛宴](http://www.movie.hkepx.cn/xiju/1440565.htm)
-- [《绝区零》挽昼动画短片 | 最后的旅途](http://www.movie.hkepx.cn/movie/0748348.htm)
-- [回家晚了一点，把小睦和大肥鱼饿坏了](http://www.daogukj.com/7529047)
-- [张颂文称不当演员了可以去干导游](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
-- [朋友借网贷被拒后说我小气](http://www.movie.hkepx.cn/movie/9462286.htm)
-- [许飞 天娱前员工](http://www.movie.hkepx.cn/xiju/6577988.htm)
-- [看懂前：啊？ 看懂后：啊啊啊！！！](http://www.movie.hkepx.cn/movie/1711969.htm)
-- [网友扒出厉娜雪藏期间行程图](http://www.movie.hkepx.cn/movie/1556531.htm)
-- [180秒回顾神24发射任务](http://www.play.hengshemaoyi.cn/kongbu/3467795.htm)
-- [厉娜前经纪人张阿瞳发文](http://www.movie.hkepx.cn/movie/2027222.htm)
+- [三款主力舰载机将再同框](http://www.daogukj.com/7203067)
+- [武汉一烧烤店员工餐有鲍鱼生蚝，大闸蟹基围虾随便吃，老板称「吃饱才有力气干活」，这个福利怎么样？](http://www.daogukj.com/gowgjlqg/)
+- [东北话魔仙](http://www.daogukj.com/7329084)
+- [华为Mate90激活销量破百万](http://www.daogukj.com/tafakdgo/)
+- [如何看待济南医保官方视频号工作人员误以为直播结束，骂咨询者脑子有病，医保局回应称已批评教育并要求道歉？](http://www.play.hengshemaoyi.cn/kongbu/6822731.htm)
+- [男子因女友出轨患抑郁症追砍第三者](http://www.movie.hkepx.cn/movie/9763774.htm)
+- [【海洋奇缘：启航】不谈恋爱只谈冒险！](http://www.movie.hkepx.cn/movie/5499528.htm)
+- [三只松鼠让员工住毛坯房是鼠目寸光](http://www.movie.hkepx.cn/xiju/2091376.htm)
+- [如何看待女子称因年龄超 40 岁被酒店拒绝入住？预订平台没有醒目提示，这种规定合法吗？](http://www.movie.hkepx.cn/movie/3384485.htm)
+- [14岁220cm高女孩攻防两端统治赛场](http://www.play.hengshemaoyi.cn/kongbu/9864265.htm)
+- [央行《大额存单管理办法》公布，个人投资人认购大额存单起点降为不低于10万元，如何解读？将带来哪些影响？](http://www.daogukj.com/0541072)
+- [丁肇中第九次回乡日照](http://www.daogukj.com/jyvgfrcg/)
+- [做梦不意味着睡眠质量差](http://www.daogukj.com/3891590)
+- [医生推荐5分钟“耗糖操”](http://www.play.hengshemaoyi.cn/kongbu/5312309.htm)
+- [央媒评梁靖崑加盟俄超方博去德甲](http://www.movie.hkepx.cn/xiju/8805715.htm)
+- [曝辛巴赔蛋蛋3个多亿](http://www.daogukj.com/5398424)
+- [50余人摘走数百斤橘子，只留下一张10元纸币。警方称“没有违法事实”，果园主人一纸诉状把公安局告了。（编辑：1M）](http://www.movie.hkepx.cn/xiju/6277332.htm)
+- [金饰克价涨到1093元](http://www.movie.hkepx.cn/xiju/7873556.htm)
+- [曝后会友期只剩三组嘉宾](http://www.play.hengshemaoyi.cn/xiju/9370456.htm)
+- [《后会友期》「告密门」播出后，厉娜风评光速下滑，网友要求她向许飞道歉，她们的矛盾真的只是友情问题吗？](http://www.daogukj.com/nzepuewx/)
+- [太唯美！歼-35A丝滑落地全程](http://www.play.hengshemaoyi.cn/kongbu/8521505.htm)
+- [可乐为啥不印生产日期了](http://www.movie.hkepx.cn/movie/0752879.htm)
+- [一块很宽很宽很宽很宽的人......](http://www.movie.hkepx.cn/xiju/3642771.htm)
+- [《下一个是谁》第七季（6）](http://www.daogukj.com/5617601)
+- [成都混团国乒韩国法国同组](http://www.daogukj.com/8998145)
+- [曝JackeyLove四选一](http://www.play.hengshemaoyi.cn/kongbu/4217571.htm)
+- [赵丽颖现身民政局陪好友领证](http://www.movie.hkepx.cn/xiju/8984384.htm)
+- [马欣不再担任江苏省委常委](http://www.movie.hkepx.cn/xiju/1180114.htm)
+- [订单飙涨80%！义乌又爆单了](http://www.movie.hkepx.cn/movie/0847312.htm)
+- [杨兰兰悉尼酒驾案出庭](http://www.play.hengshemaoyi.cn/xiju/5895126.htm)
+- [梁靖崑将赴俄超打球，怎样看待他的选择？对他职业生涯发展有哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/4629386.htm)
+- [年仅38岁！WWE巨星医疗并发症去世](http://www.movie.hkepx.cn/xiju/6763243.htm)
+- [《绝区零》挽昼EP | Triple Threat](http://www.movie.hkepx.cn/xiju/9186695.htm)
+- [地面零距离实拍歼-35A](http://www.daogukj.com/pxvooxke/)
+- [王源祝易烊千玺26岁自在辽阔](http://www.movie.hkepx.cn/xiju/1116357.htm)
+- [“一想到要单开族谱，这哥们的嘴角就没压下过！”](http://www.movie.hkepx.cn/xiju/0923150.htm)
+- [冬天皮肤痒 可能这件事做错了](http://www.daogukj.com/wwpryopq/)
+- [马伯庸回应电视剧《两京十五日》争议，自己是用历史逻辑反推朱瞻基的来时路，如何看待这一创作方法？](http://www.play.hengshemaoyi.cn/kongbu/1228272.htm)
+- [【纪录片】守护解放西·传承季 第2集 星城“奇幻夜”](http://www.movie.hkepx.cn/xiju/6581777.htm)
+- [金晨穿的什么雷霆裤子](http://www.daogukj.com/ydetypas/)
+- [微博国际文化交流之夜红毯](http://www.movie.hkepx.cn/xiju/1440565.htm)
+- [模特七海发博表示 「我的脸已经成 AI 短剧里的赛博恶役」，AI 融脸为什么维权难？](http://www.movie.hkepx.cn/movie/0748348.htm)
+- [7秒半的视频做1年？陶阿狗君的幕后有多离谱？](http://www.daogukj.com/7529047)
+- [澳门老人去珠海养老每月补5000元](http://www.play.hengshemaoyi.cn/kongbu/4951936.htm)
+- [2架歼-11BS抵达珠海 有2名女飞行员](http://www.movie.hkepx.cn/movie/9462286.htm)
+- [曝Elk回归BLG遇阻](http://www.movie.hkepx.cn/xiju/6577988.htm)
+- [广电新规首日部分电视仍有开机广告](http://www.movie.hkepx.cn/movie/1711969.htm)
+- [青稚 腿好漂亮](http://www.movie.hkepx.cn/movie/1556531.htm)
+- [我国河湖面貌发生历史性改善](http://www.play.hengshemaoyi.cn/kongbu/3467795.htm)
+- [国考倒计时1天](http://www.movie.hkepx.cn/movie/2027222.htm)
 
 </details>
 
 ## 原始来源
 
-- [女子怀疑大爷偷拍 民警查手机无证据](https://www.toutiao.com/trending/7712655976458027546/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227712655976458027546%22%2C%22hot_board_impr_id%22%3A%22202611280928098C6BCEB62C290765B292%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [超40岁被拒入住酒店 一刀切合法吗](https://www.baidu.com/s?wd=%E8%B6%8540%E5%B2%81%E8%A2%AB%E6%8B%92%E5%85%A5%E4%BD%8F%E9%85%92%E5%BA%97+%E4%B8%80%E5%88%80%E5%88%87%E5%90%88%E6%B3%95%E5%90%97&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 80340597916c4f668e26 -->
+<!-- content-fingerprint: 94f6ad91267fef3558bb -->
